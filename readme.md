@@ -1,6 +1,6 @@
-# TechiDaily
+# Youtube Clips Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://youtube-clips.techidaily.com](https://youtube-clips.techidaily.com)
 
 ## Publish
 
