@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Capture the Season' Wardrobe  Top 5 Winter YT Scenes\""
-date: 2024-05-25T19:34:39.498Z
-updated: 2024-05-26T19:34:39.498Z
+date: 2024-06-10T01:41:25.672Z
+updated: 2024-06-11T01:41:25.672Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Capture the Season' Wardrobe: Top 5 Winter YT Scenes\""
 excerpt: "\"This Article Describes In 2024, Capture the Season' Wardrobe: Top 5 Winter YT Scenes\""
 keywords: "\"Winter Fashion Tips,Cozy Holiday Outfits,Seasonal Style Guide,Winter Wardrobes YouTube,Chilly Clothing Trends,Cold-Weather Apparel YT,Holiday Wardrobe Ideas\""
-thumbnail: https://www.lifewire.com/thmb/L6-ZDM4b9RGQ6bLkGIiCxw-n8xQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-ab349991a4d748a38dc0028fbb611036.png
+thumbnail: https://thmb.techidaily.com/c477119574c19e1fe1c1e24c760eca970cf6d9df63cc3bc93f37a86e27d2e105.png
 ---
 
 ## Capture the Season' Wardrobe: Top 5 Winter YT Scenes

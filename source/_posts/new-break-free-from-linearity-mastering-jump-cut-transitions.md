@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Break Free From Linearity  Mastering Jump Cut Transitions\""
-date: 2024-05-25T20:01:58.122Z
-updated: 2024-05-26T20:01:58.122Z
+date: 2024-06-10T01:41:37.446Z
+updated: 2024-06-11T01:41:37.446Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Break Free From Linearity: Mastering Jump Cut Transitions\""
 excerpt: "\"This Article Describes [New] Break Free From Linearity: Mastering Jump Cut Transitions\""
 keywords: "\"Linearity Break,Jump Cut Basics,Master Jump Edits,Editing Techniques,Creative Cuts,Non-Linear Film,Transition Skills\""
-thumbnail: https://www.lifewire.com/thmb/vIrcE4SKlxDw0DhFl8M9ilBfxG4=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Streaming_GettyImages-1317797291_grinvalds_CROPPED-e2f9d4a91c004a85a244031575aca1a0.jpg
+thumbnail: https://thmb.techidaily.com/127593239da9ddf3aa0e35e9fdfe9cdfb96622adf462fe90ad515f1ed2896ad3.jpg
 ---
 
 ## Break Free From Linearity: Mastering Jump Cut Transitions

@@ -1,7 +1,7 @@
 ---
 title: "10 Most Popular Beauty Gurus on YouTube"
-date: 2024-05-25T18:20:23.756Z
-updated: 2024-05-26T18:20:23.756Z
+date: 2024-06-10T01:41:35.570Z
+updated: 2024-06-11T01:41:35.570Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes 10 Most Popular Beauty Gurus on YouTube"
 excerpt: "This Article Describes 10 Most Popular Beauty Gurus on YouTube"
 keywords: "Top Beauty Influencers,Popular Cosmetic Experts,Favorite Makeup Gurus,Leading Skincare Bloggers,Hottest Hairstyle Masters,Trendsetter Nail Artists,Esteemed Beauty Vlogs"
-thumbnail: https://www.lifewire.com/thmb/izBIha32HgabjptVJirtpKdPFJM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/youtubekids-30ac14dece6546eb98e32e3e18e447f8.jpg
+thumbnail: https://thmb.techidaily.com/57ebcefbd038d5518117756c100dd6989f85e0e6cff4615a7e12084a4473983a.jpg
 ---
 
 ## 10 Most Popular Beauty Gurus on YouTube

@@ -1,7 +1,7 @@
 ---
 title: "Time Management for Those Balancing Careers and YouTubing"
-date: 2024-05-25T20:34:28.916Z
-updated: 2024-05-26T20:34:28.916Z
+date: 2024-06-10T01:41:31.288Z
+updated: 2024-06-11T01:41:31.288Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Time Management for Those Balancing Careers and YouTubing"
 excerpt: "This Article Describes Time Management for Those Balancing Careers and YouTubing"
 keywords: "\"Career-YouTube Balance,Time Management Strategies,YouTuber Scheduling Tips,Productive YouTube Workflows,Managing Online Careers,YouTube Profit Timing,Efficient Time for Creators\""
-thumbnail: https://www.lifewire.com/thmb/uGlcYv-L56dzHpQafRHSaTb_cq8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-527803604-ad6f389c89ff4be1b953a3c2cdc64c09.jpg
+thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c465cacef45307df647411ca.jpg
 ---
 
 ## Time Management for Those Balancing Careers and YouTubing

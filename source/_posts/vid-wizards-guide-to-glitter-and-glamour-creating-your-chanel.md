@@ -1,7 +1,7 @@
 ---
 title: "\"Vid-Wizards Guide to Glitter and Glamour  Creating Your Chanel\""
-date: 2024-05-25T21:01:35.502Z
-updated: 2024-05-26T21:01:35.502Z
+date: 2024-06-10T01:41:29.547Z
+updated: 2024-06-11T01:41:29.547Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Vid-Wizards Guide to Glitter and Glamour: Creating Your Chanel\""
 excerpt: "\"This Article Describes Vid-Wizards Guide to Glitter and Glamour: Creating Your Chanel\""
 keywords: "Chanel Glamour Tips,Creation Glitter Wardrobe,Glamour Video Wizards,Couture Makeover Guide,Fashion with Chanel,Glitz in Wardrobes,Style Chanel Insights"
-thumbnail: https://www.lifewire.com/thmb/9sGbuH-TKWbuB1wIcmBvD76c1rc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/brett-jordan-xdBNTAdqU3A-unsplash-f13102e0cbcc4a99b093cf39e7c806f6.jpg
+thumbnail: https://thmb.techidaily.com/73a3da058ac7e5e3c1a423f3019de835e81b3d46160eaa65e56cf10a03717c28.jpg
 ---
 
 ## Vid-Wizards Guide to Glitter and Glamour: Creating Your Chanel

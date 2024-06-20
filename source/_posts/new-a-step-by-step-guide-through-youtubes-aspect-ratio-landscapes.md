@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes\""
-date: 2024-05-25T19:57:47.179Z
-updated: 2024-05-26T19:57:47.179Z
+date: 2024-06-10T01:41:37.275Z
+updated: 2024-06-11T01:41:37.275Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes\""
 excerpt: "\"This Article Describes [New] A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes\""
 keywords: "YouTube ASPECT RATIO GUIDE,YOUTUBE WIDE SHOTS TUTORIAL,Video LANDSCAPE ASPECT,Aspect Ratio in YouTube,Landscape Shot Guide YouTube,How to Choose YouTube Aspect,Adjusting YouTube Video Width"
-thumbnail: https://www.lifewire.com/thmb/w_dEKfQJMn0nm64gUL--TYv_DkU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/james-yarema-ZYVrM9caRpU-unsplash-ab032eae5afc45d7bdbc2b4e11f00a47.jpg
+thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98f5f309c7652fc768db4746d.jpg
 ---
 
 ## A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes

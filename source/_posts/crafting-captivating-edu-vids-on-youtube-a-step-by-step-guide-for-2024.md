@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Captivating Edu-Vids on YouTube  A Step-by-Step Guide for 2024\""
-date: 2024-05-25T18:59:51.919Z
-updated: 2024-05-26T18:59:51.919Z
+date: 2024-06-10T01:41:37.698Z
+updated: 2024-06-11T01:41:37.698Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Crafting Captivating Edu-Vids on YouTube: A Step-by-Step Guide for 2024\""
 excerpt: "\"This Article Describes Crafting Captivating Edu-Vids on YouTube: A Step-by-Step Guide for 2024\""
 keywords: "\"Edu-Vid Creation,Video Learning Tips,Engaging Educational Videos,Making Online Courses,Educational Content Video,Learning via YouTube,Teaching with Visuals\""
-thumbnail: https://www.lifewire.com/thmb/68FRwXnL6TRBKTZVHrIzMzZ_v6M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/403-forbidden-error-explained-2617989-2d79b84333b84a669430fd18f60dc9c9.png
+thumbnail: https://thmb.techidaily.com/33277df87367d0cdbce49fd32569ab0c6e35402a20f9cd77a73d4dd6ae5bf66d.png
 ---
 
 ## Crafting Captivating Edu-Vids on YouTube: A Step-by-Step Guide

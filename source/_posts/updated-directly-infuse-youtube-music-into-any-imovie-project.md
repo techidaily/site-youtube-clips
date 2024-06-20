@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Directly Infuse YouTube Music Into Any iMovie Project"
-date: 2024-05-25T20:54:51.054Z
-updated: 2024-05-26T20:54:51.054Z
+date: 2024-06-10T01:41:35.198Z
+updated: 2024-06-11T01:41:35.198Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Directly Infuse YouTube Music Into Any iMovie Project"
 excerpt: "This Article Describes [Updated] Directly Infuse YouTube Music Into Any iMovie Project"
 keywords: "Mix YouTube in iMovie,YouTube to iMovie Direct,Embed YouTube in Films,YouTube Video Integration,IMovie YouTube Infusion,Adding YouTube Music,YouTube Audio Into iMovie"
-thumbnail: https://www.lifewire.com/thmb/xDM-B4zVSXt5n027L2C5oNwTDN8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AIrendering_CROPPED_Guillaume_GettyImages-1418477818-d0a9c5ce09584a1099f21a5f1f690a88.jpg
+thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304ad9ab12b451e3ff69d2619e.jpg
 ---
 
 ## Directly Infuse YouTube Music Into Any iMovie Project

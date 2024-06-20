@@ -1,7 +1,7 @@
 ---
 title: "\"Master Visual Effects  Discover YouTube’s Green Screen Treasure\""
-date: 2024-05-25T19:51:49.126Z
-updated: 2024-05-26T19:51:49.126Z
+date: 2024-06-10T01:41:33.041Z
+updated: 2024-06-11T01:41:33.041Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Master Visual Effects: Discover YouTube’s Green Screen Treasure\""
 excerpt: "\"This Article Describes Master Visual Effects: Discover YouTube’s Green Screen Treasure\""
 keywords: "VFX Mastery,Green Screen Tutorial,YouTube VFX Guide,Learn Green Screening,Effective FX Techniques,Professional Visual Effects,Green Screen Masterclass"
-thumbnail: https://www.lifewire.com/thmb/A2aHnhbrA37anYrnsxGhPmuK51Q=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/Jay-AnnLopez-db0e07f11dd94db0ba5e04ed6cac43e7.jpg
+thumbnail: https://thmb.techidaily.com/46df1e48b2f44db2d880f0d7735cdada8076c6dcb75637faff2a09a30c684309.jpg
 ---
 
 ## Master Visual Effects: Discover YouTube’s Green Screen Treasure

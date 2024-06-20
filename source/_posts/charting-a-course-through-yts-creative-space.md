@@ -1,7 +1,7 @@
 ---
 title: "Charting a Course Through YT's Creative Space"
-date: 2024-05-25T18:56:10.338Z
-updated: 2024-05-26T18:56:10.338Z
+date: 2024-06-10T01:41:28.098Z
+updated: 2024-06-11T01:41:28.098Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Charting a Course Through YT's Creative Space"
 excerpt: "This Article Describes Charting a Course Through YT's Creative Space"
 keywords: "YouTube Creativity Guide,YT Content Strategy,Video Marketing Tactics,Digital Media Planning,Online Course Map,Creative Space Navigation,YouTube Pathfinding"
-thumbnail: https://www.lifewire.com/thmb/IGe5tDXunE7ah0Jj1vkTBJ078Jc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ring-binders-aligned-gac91bbfa1_1920-fa755b0998814dfe8a1d1477af095588.jpg
+thumbnail: https://thmb.techidaily.com/f35affd0446f81f879a70f50fd131f599003c290d87b21cce9966af54d527118.jpg
 ---
 
 ## Charting a Course Through YT's Creative Space

@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting a Profitable YouTube Content Strategy"
-date: 2024-05-25T20:05:51.299Z
-updated: 2024-05-26T20:05:51.299Z
+date: 2024-06-10T01:41:36.847Z
+updated: 2024-06-11T01:41:36.847Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Crafting a Profitable YouTube Content Strategy"
 excerpt: "This Article Describes [New] Crafting a Profitable YouTube Content Strategy"
 keywords: "\"Youtube Strategy Plan,Profit Video Content,YouTube Revenue Growth,Profit-Driven Videos,YouTube Success Tactics,Earnings Via Video,Video Business Model\""
-thumbnail: https://www.lifewire.com/thmb/smGZHYA5zzmQGVZSmdmcDE1qpc4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/durable__omxi3w443rue_large_2x-1-732c438d9048476bb6103184b27ee893.jpg
+thumbnail: https://thmb.techidaily.com/e9efae3ff791fb7b0dc6f1f4f1438b97e5574ba3442154b95456c4348b981cfa.jpg
 ---
 
 ## Crafting a Profitable YouTube Content Strategy

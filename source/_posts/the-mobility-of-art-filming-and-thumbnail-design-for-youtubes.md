@@ -1,7 +1,7 @@
 ---
 title: "\"The Mobility of Art  Filming and Thumbnail Design for YouTubes\""
-date: 2024-05-25T20:31:09.106Z
-updated: 2024-05-26T20:31:09.106Z
+date: 2024-06-10T01:41:23.862Z
+updated: 2024-06-11T01:41:23.862Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The Mobility of Art: Filming and Thumbnail Design for YouTubes\""
 excerpt: "\"This Article Describes The Mobility of Art: Filming and Thumbnail Design for YouTubes\""
 keywords: "Film & YouTube Mobility,Mobile Art Displaying,Video Thumbnails Impact,Art Thumbnails Strategy,Creative Filming Techniques,Thumbnail Design Tips,Mobility in Visual Arts"
-thumbnail: https://www.lifewire.com/thmb/CVZuqlWWc64y4oJL7YjFUY_yBzM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/19-ways-to-fix-a-chatgpt-network-error-on-long-responses-2c22dc8a46b540f28f81dfafb452492f.jpg
+thumbnail: https://thmb.techidaily.com/f7eb32e30dabd1ecde240ae4f390a8ba724185aa17a13d5ef1b9d86c145dc8b7.jpg
 ---
 
 ## The Mobility of Art: Filming and Thumbnail Design for YouTubes

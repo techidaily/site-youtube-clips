@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Customizable MCB Visuals for YouTube Banners"
-date: 2024-05-25T20:52:56.397Z
-updated: 2024-05-26T20:52:56.397Z
+date: 2024-06-10T01:41:37.234Z
+updated: 2024-06-11T01:41:37.234Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Customizable MCB Visuals for YouTube Banners"
 excerpt: "This Article Describes [Updated] Customizable MCB Visuals for YouTube Banners"
 keywords: "Custom MCB Images,MCB Design Options,Adaptable MCB Graphics,Personalized MCB Artwork,Tailored MCB Visuals,MCB Banner Creation,Variable MCB Graphics"
-thumbnail: https://www.lifewire.com/thmb/0rHOaQ6SpQrTZLMn7poOqvm28Xs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/rotate-video-getty-5ae80a9ca18d9e0037b96028.jpg
+thumbnail: https://thmb.techidaily.com/7fc466e5e2b7732daf41c9b5f420c5c5add88815dae1954866b21ab967027c21.jpg
 ---
 
 ## Customizable MCB Visuals for YouTube Banners

@@ -1,7 +1,7 @@
 ---
 title: "\"Rapid Relay  Youtube Playlists to the Public\""
-date: 2024-05-25T20:20:42.459Z
-updated: 2024-05-26T20:20:42.459Z
+date: 2024-06-10T01:41:35.530Z
+updated: 2024-06-11T01:41:35.530Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Rapid Relay: Youtube Playlists to the Public\""
 excerpt: "\"This Article Describes Rapid Relay: Youtube Playlists to the Public\""
 keywords: "Rapid YouTube Sharing,Quickplaylist Distribution,Instant Video Access,Youtube Playlist Ready,Speedy Content Share,Public Playlists Avail,Easy Video Dissemination"
-thumbnail: https://www.lifewire.com/thmb/zjPjlWJTSL68ZSlBHgpVNVEF0Y0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/free-disk-partition-software-tools-2624950-fad3ccc557d34ed89d53eff7538f5fdb.png
+thumbnail: https://thmb.techidaily.com/295eacd64272b4b4a8e96856aef38358e19d3e53299073754d2c1fe5d922072f.png
 ---
 
 ## Rapid Relay: Youtube Playlists to the Public

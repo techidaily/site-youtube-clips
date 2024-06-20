@@ -1,7 +1,7 @@
 ---
 title: "How To Share A YouTube Playlist"
-date: 2024-05-25T19:27:01.965Z
-updated: 2024-05-26T19:27:01.965Z
+date: 2024-06-10T01:41:25.530Z
+updated: 2024-06-11T01:41:25.530Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes How To Share A YouTube Playlist"
 excerpt: "This Article Describes How To Share A YouTube Playlist"
 keywords: "YouTube List Unreverse Guide,Reverse YouTube Playlist Process,Turning YT Playlists Backward,Flip YouTube Playlist Order,YT Playlist Undo Steps,Reverse Order on YouTube Playlist,Changing Youtube List Order"
-thumbnail: https://www.lifewire.com/thmb/yiCG9aCDz-S_uEZuz03MfJhTX40=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-3ea2024baf504584905b3806f88613e5.jpg
+thumbnail: https://thmb.techidaily.com/104a8ce1329a7cadce28c36353075eec1970039296b8147989b16ec309b7b44b.jpg
 ---
 
 ## How To Share A YouTube Playlist

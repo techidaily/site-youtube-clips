@@ -1,7 +1,7 @@
 ---
 title: "[New] Climate Change Mitigation Through Urban Design Innovations"
-date: 2024-05-25T20:04:33.098Z
-updated: 2024-05-26T20:04:33.098Z
+date: 2024-06-10T01:41:30.501Z
+updated: 2024-06-11T01:41:30.501Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Climate Change Mitigation Through Urban Design Innovations"
 excerpt: "This Article Describes [New] Climate Change Mitigation Through Urban Design Innovations"
 keywords: "\"Urban Climate Action,Green City Planning,Eco-Friendly Architecture,Sustainable Cities,Smart Urban Design,Low Carbon Development,Habitat Healing\""
-thumbnail: https://www.lifewire.com/thmb/6djIpUJcmwG0_WK4S9ftsLptHLg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/line-app-logo-ccdacd0f7c344b3d9d4847edcb90733d.jpg
+thumbnail: https://thmb.techidaily.com/35cdbcc9d0463edeaedcfabc37b755463ffdb3615e7f86b0660ca31e9acd1987.jpg
 ---
 
 ## Climate Change Mitigation Through Urban Design Innovations

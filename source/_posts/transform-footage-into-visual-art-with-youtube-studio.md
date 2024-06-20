@@ -1,7 +1,7 @@
 ---
 title: "Transform Footage Into Visual Art with YouTube Studio"
-date: 2024-05-25T20:36:27.140Z
-updated: 2024-05-26T20:36:27.140Z
+date: 2024-06-10T01:41:37.321Z
+updated: 2024-06-11T01:41:37.321Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Transform Footage Into Visual Art with YouTube Studio"
 excerpt: "This Article Describes Transform Footage Into Visual Art with YouTube Studio"
 keywords: "Video to Art Transformation,YouTube Art Creation,Visualize Footage Online,YouTube Creative Studio,Film to Art Conversion,Artistic YouTube Content,Filmmaking Into Artwork"
-thumbnail: https://www.lifewire.com/thmb/x2jPtBhwKcgHbmUnFr-G-8OYNd4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/_hero_SQ_Aeiusny-Portable-Power-Station-1-554da34ef2af4d08902894c44fbd3ecc.jpg
+thumbnail: https://thmb.techidaily.com/cd1e0583a3f82954a7a1df94033dc0576cc47353ebb15c30e049205c45a363ba.jpg
 ---
 
 ## Transform Footage Into Visual Art with YouTube Studio

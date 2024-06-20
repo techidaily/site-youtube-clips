@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A 20-Second Symphony  Understanding Music's Compact Formats\""
-date: 2024-05-25T18:22:59.334Z
-updated: 2024-05-26T18:22:59.334Z
+date: 2024-06-10T01:41:27.439Z
+updated: 2024-06-11T01:41:27.439Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: A 20-Second Symphony: Understanding Music's Compact Formats\""
 excerpt: "\"This Article Describes 2024 Approved: A 20-Second Symphony: Understanding Music's Compact Formats\""
 keywords: "ShortMusicSymphony,MusicCompactForms,QuickSymphonicMelody,EssentialMusicalFormats,SymphonicMinutiae,MelodicBriefComposition,SimplifiedMusicalExpression"
-thumbnail: https://www.lifewire.com/thmb/DZzhOu3SoIwZrYK-VSxEFYkh3ME=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Google-Home-vs-Apple-HomePod-32b211a06afa4667aeeeca447a39927e.jpg
+thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b7348173d3861777fbb2c2bf.jpg
 ---
 
 ## A 20-Second Symphony: Understanding Music's Compact Formats

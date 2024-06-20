@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, A Step-by-Step Guide  Share YouTube Vids with FB Friends\""
-date: 2024-05-25T19:29:06.958Z
-updated: 2024-05-26T19:29:06.958Z
+date: 2024-06-10T01:41:36.125Z
+updated: 2024-06-11T01:41:36.125Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, A Step-by-Step Guide: Share YouTube Vids with FB Friends\""
 excerpt: "\"This Article Describes In 2024, A Step-by-Step Guide: Share YouTube Vids with FB Friends\""
 keywords: "\"YouTube Video Sharing,Facebook Video Posting,FB Vid Collaboration,Social Media Content,Share Videos Online,FB Share Mechanics,Cross-Platform Streaming\""
-thumbnail: https://www.lifewire.com/thmb/J824Ra8KQFbLaWC_ATGxX22EzOA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/trends_MontyRakusen_Getty-5a4aa079482c5200362b0987.jpg
+thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373d5c47d7a53f258bef450907.jpg
 ---
 
 ## A Step-by-Step Guide: Share YouTube Vids with FB Friends
