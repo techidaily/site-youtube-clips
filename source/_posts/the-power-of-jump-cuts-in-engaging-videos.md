@@ -1,7 +1,7 @@
 ---
 title: "The Power of Jump Cuts in Engaging Videos"
-date: 2024-05-25T20:31:37.606Z
-updated: 2024-05-26T20:31:37.606Z
+date: 2024-06-19T02:39:13.609Z
+updated: 2024-06-20T02:39:13.609Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Power of Jump Cuts in Engaging Videos"
 excerpt: "This Article Describes The Power of Jump Cuts in Engaging Videos"
 keywords: "\"Video Engagement Techniques,Jump Cut Impact,Cinematic Editing Skills,Captivating Video Edits,Transition Effects in Film,Non-Linear Editing Power,Dynamic Storytelling Methods\""
-thumbnail: https://www.lifewire.com/thmb/L9CRzM0BFR4bTnY9IulGvi9fmEA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/kids-ipad-580f65635f9b58564cc0fc91-5c5cbb6ac9e77c0001d92aa4.jpg
+thumbnail: https://thmb.techidaily.com/c6fb0c53f67d408b9f1a8e71dd93d74b8d8f511c12090374117c9c8e1782192a.jpg
 ---
 
 ## The Power of Jump Cuts in Engaging Videos

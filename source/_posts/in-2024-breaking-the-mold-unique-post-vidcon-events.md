@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Breaking the Mold  Unique Post-VidCon Events\""
-date: 2024-05-25T19:33:43.435Z
-updated: 2024-05-26T19:33:43.435Z
+date: 2024-06-19T02:39:20.898Z
+updated: 2024-06-20T02:39:20.898Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Breaking the Mold: Unique Post-VidCon Events\""
 excerpt: "\"This Article Describes In 2024, Breaking the Mold: Unique Post-VidCon Events\""
 keywords: "\"VidCon Aftermath,Unique Event Ideas,Nonconventional Gatherings,Creativity in Events,Novel Post-VidCon Parties,Diverse Event Planning,Innovative Social Meetups\""
-thumbnail: https://www.lifewire.com/thmb/-ZARcWaSJKgfS2il1HTTeuwPDGY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-705002115Smaller-59a917ba396e5a001037e595.jpg
+thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf37286ae295fb39576034b13a.jpg
 ---
 
 ## Breaking the Mold: Unique Post-VidCon Events
@@ -42,7 +42,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-#### 1. **[VidCon](http://vidcon.com/)**
+#### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
 
@@ -70,7 +70,7 @@ The **Industry Track** is for anyone working in online video or video-adjacent i
 
 You have a two-week window (usually the first half of May) to submit your choices.
 
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+#### 2. ** PlayList Live
 
 **Orlando, Florida:** April/May
 
@@ -104,7 +104,7 @@ The **Premium Pass** ($250-$404) grants you standard access plus early access fo
 
 There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
 
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+#### 3. ** Beautycon Festivals
 
 **Los Angeles:** July
 
@@ -140,7 +140,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
-#### 5. **[RTX](https://www.rtxaustin.com/)**
+#### 5. ** RTX
 
 **Austin, Texas:** August
 
@@ -162,7 +162,7 @@ A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plu
 
 The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
 
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+#### 6. ** Amplify Live
 
 **Sydney, Australia:** April
 
@@ -182,7 +182,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
 
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+#### 7. ** Summer in the City
 
 **London, UK:** August
 
@@ -240,7 +240,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-#### 1. **[VidCon](http://vidcon.com/)**
+#### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
 
@@ -268,7 +268,7 @@ The **Industry Track** is for anyone working in online video or video-adjacent i
 
 You have a two-week window (usually the first half of May) to submit your choices.
 
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+#### 2. ** PlayList Live
 
 **Orlando, Florida:** April/May
 
@@ -302,7 +302,7 @@ The **Premium Pass** ($250-$404) grants you standard access plus early access fo
 
 There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
 
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+#### 3. ** Beautycon Festivals
 
 **Los Angeles:** July
 
@@ -338,7 +338,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
-#### 5. **[RTX](https://www.rtxaustin.com/)**
+#### 5. ** RTX
 
 **Austin, Texas:** August
 
@@ -360,7 +360,7 @@ A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plu
 
 The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
 
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+#### 6. ** Amplify Live
 
 **Sydney, Australia:** April
 
@@ -380,7 +380,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
 
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+#### 7. ** Summer in the City
 
 **London, UK:** August
 
@@ -438,7 +438,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-#### 1. **[VidCon](http://vidcon.com/)**
+#### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
 
@@ -466,7 +466,7 @@ The **Industry Track** is for anyone working in online video or video-adjacent i
 
 You have a two-week window (usually the first half of May) to submit your choices.
 
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+#### 2. ** PlayList Live
 
 **Orlando, Florida:** April/May
 
@@ -500,7 +500,7 @@ The **Premium Pass** ($250-$404) grants you standard access plus early access fo
 
 There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
 
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+#### 3. ** Beautycon Festivals
 
 **Los Angeles:** July
 
@@ -536,7 +536,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
-#### 5. **[RTX](https://www.rtxaustin.com/)**
+#### 5. ** RTX
 
 **Austin, Texas:** August
 
@@ -558,7 +558,7 @@ A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plu
 
 The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
 
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+#### 6. ** Amplify Live
 
 **Sydney, Australia:** April
 
@@ -578,7 +578,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
 
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+#### 7. ** Summer in the City
 
 **London, UK:** August
 
@@ -636,7 +636,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-#### 1. **[VidCon](http://vidcon.com/)**
+#### 1. ** VidCon
 
 **VidCon US:** June (Anaheim, California)
 
@@ -664,7 +664,7 @@ The **Industry Track** is for anyone working in online video or video-adjacent i
 
 You have a two-week window (usually the first half of May) to submit your choices.
 
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+#### 2. ** PlayList Live
 
 **Orlando, Florida:** April/May
 
@@ -698,7 +698,7 @@ The **Premium Pass** ($250-$404) grants you standard access plus early access fo
 
 There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
 
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+#### 3. ** Beautycon Festivals
 
 **Los Angeles:** July
 
@@ -734,7 +734,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
-#### 5. **[RTX](https://www.rtxaustin.com/)**
+#### 5. ** RTX
 
 **Austin, Texas:** August
 
@@ -756,7 +756,7 @@ A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plu
 
 The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
 
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+#### 6. ** Amplify Live
 
 **Sydney, Australia:** April
 
@@ -776,7 +776,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
 
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+#### 7. ** Summer in the City
 
 **London, UK:** August
 
@@ -879,7 +879,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -891,7 +891,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -899,7 +899,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -1009,7 +1009,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -1021,7 +1021,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -1029,7 +1029,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -1139,7 +1139,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -1151,7 +1151,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -1159,7 +1159,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -1269,7 +1269,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -1281,7 +1281,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -1289,7 +1289,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 

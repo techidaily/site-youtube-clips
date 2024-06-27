@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Classic Cinematography  Step-by-Step Guide\""
-date: 2024-05-25T19:00:00.773Z
-updated: 2024-05-26T19:00:00.773Z
+date: 2024-06-19T02:39:21.643Z
+updated: 2024-06-20T02:39:21.643Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Crafting Classic Cinematography: Step-by-Step Guide\""
 excerpt: "\"This Article Describes Crafting Classic Cinematography: Step-by-Step Guide\""
 keywords: "Film Noir Techniques,Cinematic Lighting Basics,Cinemagraphy Essentials,Film Composition Rules,Classic Camera Movements,Shot Sequencing Guide,Storyboard Crafting"
-thumbnail: https://www.lifewire.com/thmb/zPbrz0xYT6-e-Siew_kTQcwmGaI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MayHabib-d884611c85bf4b909b33ee1410d6544b.jpeg
+thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff22e113abbe3abedfe2cc94d.jpeg
 ---
 
 ## Crafting Classic Cinematography: Step-by-Step Guide

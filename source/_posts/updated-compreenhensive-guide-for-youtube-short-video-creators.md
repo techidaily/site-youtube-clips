@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Compreenhensive Guide for YouTube Short Video Creators"
-date: 2024-05-25T20:50:39.801Z
-updated: 2024-05-26T20:50:39.801Z
+date: 2024-06-19T02:39:11.331Z
+updated: 2024-06-20T02:39:11.331Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Compreenhensive Guide for YouTube Short Video Creators"
 excerpt: "This Article Describes [Updated] Compreenhensive Guide for YouTube Short Video Creators"
 keywords: "\"YouTubE Short Film Tips,Creating Short Vids YT,YT Short-Form Content Guide,Essential YT Short Vid Skills,Best Practices for YT Shorts,Crafting Engaging Short YouTube Videos,Strategies for Successful YT Shorts\""
-thumbnail: https://www.lifewire.com/thmb/iwoCmi7AdF2SQEdJBdU3jN_mTWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-136612668-5c640cc5c9e77c00010a4ff4.jpg
+thumbnail: https://thmb.techidaily.com/fd49bc993ce8510e13bd3ece8f5853b9890f1d550e51d2b3c30dcfc01a7a61b2.jpg
 ---
 
 ## Compreenhensive Guide for YouTube Short Video Creators

@@ -1,7 +1,7 @@
 ---
 title: "\"Infographic - Mind Numbing YouTube Facts,Figures and Statistics\""
-date: 2024-05-25T19:48:04.806Z
-updated: 2024-05-26T19:48:04.806Z
+date: 2024-06-19T02:39:11.376Z
+updated: 2024-06-20T02:39:11.376Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Infographic - Mind Numbing YouTube Facts,Figures and Statistics\""
 excerpt: "\"This Article Describes Infographic - Mind Numbing YouTube Facts,Figures and Statistics\""
 keywords: "Youtube Infographics Trends,Popular YouTube Stats,Fascinating YouTube Facts,Statistical YouTube Data,Engaging YouTube Figures,Informative YouTube Graphics,Enlightening YouTube Numbers"
-thumbnail: https://www.lifewire.com/thmb/AH9mqPzoPDVMP3GVRyEpC5WN6uM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/yandex_eng_logo-56a289a13df78cf772774ad4.png
+thumbnail: https://thmb.techidaily.com/4bc09bf00dd16476adc7181e127ad6390edb7499dd05b4708d5bc6f8d46016ec.png
 ---
 
 ## Infographic - Mind Numbing YouTube Facts,Figures and Statistics

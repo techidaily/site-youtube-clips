@@ -1,7 +1,7 @@
 ---
 title: "\"Digital Deck of Cards  YouTube's Milestone Challenges\""
-date: 2024-05-25T19:05:40.367Z
-updated: 2024-05-26T19:05:40.367Z
+date: 2024-06-19T02:39:21.587Z
+updated: 2024-06-20T02:39:21.587Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Digital Deck of Cards: YouTube's Milestone Challenges\""
 excerpt: "\"This Article Describes Digital Deck of Cards: YouTube's Milestone Challenges\""
 keywords: "Digital Card Games,YouTube Challenges,Streaming Gaming Hits,Video Game Content,Digital Media Deck,Online Gaming Trends,Milestone YouTube Videos"
-thumbnail: https://www.lifewire.com/thmb/TmsJcCDSLMPoLojfhSM-bFiZpq4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1091848586-b2b3894011ae4ffe98697d9b361c2483.jpg
+thumbnail: https://thmb.techidaily.com/99663f80a681577ef6d172804500e3555c286bc17d7a19ae0d763067c374fc29.jpg
 ---
 
 ## Digital Deck of Cards: YouTube's Milestone Challenges

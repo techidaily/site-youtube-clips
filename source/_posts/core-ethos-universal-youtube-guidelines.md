@@ -1,7 +1,7 @@
 ---
 title: "\"Core Ethos  Universal YouTube Guidelines\""
-date: 2024-05-25T18:59:12.344Z
-updated: 2024-05-26T18:59:12.344Z
+date: 2024-06-19T02:39:09.805Z
+updated: 2024-06-20T02:39:09.805Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Core Ethos: Universal YouTube Guidelines\""
 excerpt: "\"This Article Describes Core Ethos: Universal YouTube Guidelines\""
 keywords: "YouTube Ethos Guide,Core YouTube Principles,Ethical YouTube Standards,Global YouTube Etiquette,YouTube Code Conduct,Universal YouTube Norms,Ethos in Video Sharing"
-thumbnail: https://www.lifewire.com/thmb/jD_kFZDJsy0NuwGoh-_aKA_Bnn4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/computermouse-05fc5beb2a7a4a9eac684f3687bdae70.jpg
+thumbnail: https://thmb.techidaily.com/109f8e41f016b710f8a0ad598776af950e5e0ec716fb01a083b32b51c83dd241.jpg
 ---
 
 ## Core Ethos: Universal YouTube Guidelines

@@ -1,7 +1,7 @@
 ---
 title: "\"Video Vanishing Act  Cutting Duration on YouTube\""
-date: 2024-05-25T21:01:49.861Z
-updated: 2024-05-26T21:01:49.861Z
+date: 2024-06-19T02:39:08.449Z
+updated: 2024-06-20T02:39:08.449Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Video Vanishing Act: Cutting Duration on YouTube\""
 excerpt: "\"This Article Describes Video Vanishing Act: Cutting Duration on YouTube\""
 keywords: "\"Video Length Reduction,Shorten YouTube Videos,Durations in Videos,Time-Cutting Techniques,YouTube Content Shrinkage,Streamline Video Duration,Minimize Video Runtime\""
-thumbnail: https://www.lifewire.com/thmb/reiA5q9g7RC-d0IhGypCqLpbhbY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-turn-on-microphone-on-an-android-phone-5184530-372d01459baa44978ef72242d007992a.jpg
+thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323a0faabfa25ea26bfdcf4c13.jpg
 ---
 
 ## Video Vanishing Act: Cutting Duration on YouTube

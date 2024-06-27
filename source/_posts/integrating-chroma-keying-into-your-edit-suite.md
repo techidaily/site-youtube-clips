@@ -1,7 +1,7 @@
 ---
 title: "Integrating Chroma Keying Into Your Edit Suite"
-date: 2024-05-25T19:49:07.283Z
-updated: 2024-05-26T19:49:07.283Z
+date: 2024-06-19T02:39:14.635Z
+updated: 2024-06-20T02:39:14.635Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Integrating Chroma Keying Into Your Edit Suite"
 excerpt: "This Article Describes Integrating Chroma Keying Into Your Edit Suite"
 keywords: "\"Keying Tech Advancements,Edit Suite Enhancement,Visual Effects Integration,Green Screen Techniques,Color Background Removal,Video Post-Production,Chroma Editing Tools\""
-thumbnail: https://www.lifewire.com/thmb/PUnRurqDMEhLT6VrZqPRE65yXbk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-set-up-and-use-the-nintendo-online-family-plan-featured-3b6c415d14f34e37a972e3800dc94c7d.jpg
+thumbnail: https://thmb.techidaily.com/9e3c28da8c3857f4b56c87999aa1c53599613008193fcbe550b0f87978d3601d.jpg
 ---
 
 ## Integrating Chroma Keying Into Your Edit Suite

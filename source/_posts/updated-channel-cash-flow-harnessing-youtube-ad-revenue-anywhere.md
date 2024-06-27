@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Channel Cash Flow  Harnessing YouTube Ad Revenue Anywhere\""
-date: 2024-05-25T20:49:07.539Z
-updated: 2024-05-26T20:49:07.539Z
+date: 2024-06-19T02:39:13.143Z
+updated: 2024-06-20T02:39:13.143Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Channel Cash Flow: Harnessing YouTube Ad Revenue Anywhere\""
 excerpt: "\"This Article Describes [Updated] Channel Cash Flow: Harnessing YouTube Ad Revenue Anywhere\""
 keywords: "YouTubAdRevenue,ChannelCashFlow,VideoMonetization,AdIncomeStream,OnlineRevenueGrowth,YouTubeFinance,RevenueOptimization"
-thumbnail: https://www.lifewire.com/thmb/O24I8iXS-dMG3iz5GRgkPvi2p4Y=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/family-using-wireless-devices-at-home-468774723-5a52b68a9e942700378ddbf8.jpg
+thumbnail: https://thmb.techidaily.com/bcb4dab5fca23c5552c696b1f9621ccec9d5240a378ece9f04f489b258c09834.jpg
 ---
 
 ## Channel Cash Flow: Harnessing YouTube Ad Revenue Anywhere
@@ -20,9 +20,7 @@ Do you want to makе vidеos for YouTubе? It is simple to upload a vidеo on th
 
 This article will assist you in uploading videos with the YouTube Studio and monetizing them. You can learn more about YouTube Studio monetization on Mobile and Desktop.
 
-**YouTube Studio Monetization** A cross-platform edits YouTube videos and transforms raw video footage into something spectacular!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
+**YouTube Studio Monetization** A cross-platform edits YouTube videos and transforms raw video footage into something spectacular![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
@@ -192,7 +190,7 @@ You will bе ablе to еdit your vidеo bеforе you publish it. Insert a descri
 
 Are you excited to make your YouTube videos stand out with amazing editing? Wondershare Filmora helps you enhance your videos before uploading them to YouTube. You can see the process of editing your videos using Filmora and then uploading them to YouTube via YouTube Studio. You'll find this journey both fun and educational!
 
-### [Introducing Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/): Your Video Editing Buddy
+### Introducing Wondershare Filmora
 
 With Filmora, you can edit videos in a variety of ways and transform raw video footage into something spectacular. It's perfect for all those creative minds out there who want to add an extra layer of professionalism to their YouTube content.
 
@@ -202,23 +200,23 @@ With Filmora, you can edit videos in a variety of ways and transform raw video f
 
 ### Editing and Exporting Your Videos with Filmora
 
-#### 1\. [Motion Tracking](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 1\. Motion Tracking
 
 Ever wanted to make text or graphics follow an object's movement in your video? Filmora lets you do just that with motion tracking. Pin graphics or media files to move magically with the object.
 
-#### 2\. [Speed Ramping](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 2\. Speed Ramping
 
 Now, you can adjust your video's speed with precision. Create unique cinematic effects by controlling keyframes to make your videos pop.
 
-#### 3\. [Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 3\. Screen Recorder
 
 Filmora's screen recorder is a handy tool. It is possible to simultaneously record your screen and webcam. Plus, you can capture system sounds and your voice through the microphone.
 
-#### 4\. [Instant Mode](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 4\. Instant Mode
 
 If you're new to video editing, don't worry! Filmora's Instant Mode is perfect for beginners. Just add your media, and Filmora will create a video for you in no time.
 
-#### 5\. [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 5\. Auto Reframe
 
 No need to be a video editing pro! With Auto Reframe, you can resize your videos automatically without any editing skills.
 
@@ -402,7 +400,7 @@ You will bе ablе to еdit your vidеo bеforе you publish it. Insert a descri
 
 Are you excited to make your YouTube videos stand out with amazing editing? Wondershare Filmora helps you enhance your videos before uploading them to YouTube. You can see the process of editing your videos using Filmora and then uploading them to YouTube via YouTube Studio. You'll find this journey both fun and educational!
 
-### [Introducing Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/): Your Video Editing Buddy
+### Introducing Wondershare Filmora
 
 With Filmora, you can edit videos in a variety of ways and transform raw video footage into something spectacular. It's perfect for all those creative minds out there who want to add an extra layer of professionalism to their YouTube content.
 
@@ -412,23 +410,23 @@ With Filmora, you can edit videos in a variety of ways and transform raw video f
 
 ### Editing and Exporting Your Videos with Filmora
 
-#### 1\. [Motion Tracking](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 1\. Motion Tracking
 
 Ever wanted to make text or graphics follow an object's movement in your video? Filmora lets you do just that with motion tracking. Pin graphics or media files to move magically with the object.
 
-#### 2\. [Speed Ramping](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 2\. Speed Ramping
 
 Now, you can adjust your video's speed with precision. Create unique cinematic effects by controlling keyframes to make your videos pop.
 
-#### 3\. [Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 3\. Screen Recorder
 
 Filmora's screen recorder is a handy tool. It is possible to simultaneously record your screen and webcam. Plus, you can capture system sounds and your voice through the microphone.
 
-#### 4\. [Instant Mode](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 4\. Instant Mode
 
 If you're new to video editing, don't worry! Filmora's Instant Mode is perfect for beginners. Just add your media, and Filmora will create a video for you in no time.
 
-#### 5\. [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 5\. Auto Reframe
 
 No need to be a video editing pro! With Auto Reframe, you can resize your videos automatically without any editing skills.
 
@@ -478,13 +476,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -496,19 +494,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -548,7 +546,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -566,7 +564,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -606,13 +604,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -624,19 +622,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -676,7 +674,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -694,7 +692,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -734,13 +732,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -752,19 +750,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -804,7 +802,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -822,7 +820,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -862,13 +860,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -880,19 +878,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -932,7 +930,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -950,7 +948,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 

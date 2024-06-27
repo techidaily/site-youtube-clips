@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Connoisseur of Cinematic Composition"
-date: 2024-05-25T19:36:31.184Z
-updated: 2024-05-26T19:36:31.184Z
+date: 2024-06-19T02:39:12.491Z
+updated: 2024-06-20T02:39:12.491Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, Connoisseur of Cinematic Composition"
 excerpt: "This Article Describes In 2024, Connoisseur of Cinematic Composition"
 keywords: "Film Artistry Expert,Movie Aestheticist,Cinema Composer Skills,Visual Storytelling Master,Filmmaking Craftsmanship,Cinematic Design Thinking,Directorial Sense Approach"
-thumbnail: https://www.lifewire.com/thmb/M8nTiwLLAFZesyB_EbKXIxGR1nU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1148422594-c785d515e0a34d2dba107f88fb475071.jpg
+thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816dfbd913fea0d2186dd349bdd.jpg
 ---
 
 ## Connoisseur of Cinematic Composition

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Bypassing Blockbusters  2023 Indie Favorites\""
-date: 2024-05-25T18:28:44.811Z
-updated: 2024-05-26T18:28:44.811Z
+date: 2024-06-19T02:39:11.742Z
+updated: 2024-06-20T02:39:11.742Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Bypassing Blockbusters: 2023 Indie Favorites\""
 excerpt: "\"This Article Describes 2024 Approved: Bypassing Blockbusters: 2023 Indie Favorites\""
 keywords: "\"Independent Films 2023,Indie Film Hits,Low-Budget Cinema,Alternative Movies,Smallscreen Wins,Cult Videography,Niche Film Choices\""
-thumbnail: https://www.lifewire.com/thmb/JLGKov-NY8__Hrmk-5FFFcAzeT4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/arnel-hasanovic-4oWSXdeAS2g-unsplash-3aa9018ab1a74e9796b929882a9e133e.jpg
+thumbnail: https://thmb.techidaily.com/48b583faa31b393aa904516c2278bd0e1546bcda1fa4122648e108e1ee1f91de.jpg
 ---
 
 ## Bypassing Blockbusters: 2023 Indie Favorites
@@ -563,7 +563,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -572,15 +572,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -677,7 +677,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -686,15 +686,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -791,7 +791,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -800,15 +800,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -905,7 +905,7 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -914,15 +914,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
