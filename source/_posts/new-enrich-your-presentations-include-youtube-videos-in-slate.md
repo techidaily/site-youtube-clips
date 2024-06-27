@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enrich Your Presentations - Include YouTube Videos in Slate\""
-date: 2024-05-25T20:14:48.392Z
-updated: 2024-05-26T20:14:48.392Z
+date: 2024-06-26T15:42:26.488Z
+updated: 2024-06-27T15:42:26.488Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Enrich Your Presentations - Include YouTube Videos in Slate\""
 excerpt: "\"This Article Describes [New] Enrich Your Presentations - Include YouTube Videos in Slate\""
 keywords: "\"Slides Enhance with Video,Slate & YouTube Integration,Adding Video to Slides,Engaging Slides with YouTube,Presentations: Video Inclusion,Boosting Slates with Videos,Embedding YouTube in Slides\""
-thumbnail: https://www.lifewire.com/thmb/Yk18C2JpdeHxzNdqdb-EFRV41fk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iphone_photo-5beafcda46e0fb00514cbb56.jpg
+thumbnail: https://thmb.techidaily.com/98a90a980daafb5d4122c6bec488811f000154f10382aff0b3452de9d0f47411.jpg
 ---
 
 ## Enrich Your Presentations - Include YouTube Videos in Slate
@@ -602,9 +602,7 @@ For macOS 10.12 or later
 
 ## The Art of Plotting Success on YouTube
 
-# The Best Storytelling Techniques to Grow Your YouTube Channel
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Best Storytelling Techniques to Grow Your YouTube Channel ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -672,7 +670,7 @@ A good cliffhanger does not have to be life or death, but it does have to be the
 
 **Before you start telling your story, consider the key details that are most impactful.**
 
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then [deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Here are two ways you can present your cliffhanger for amplified effect:
 
@@ -734,7 +732,7 @@ This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVL
 
 #### Use Metaphors
 
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm) to increase the impact.
 
 If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
 
@@ -842,7 +840,7 @@ A good cliffhanger does not have to be life or death, but it does have to be the
 
 **Before you start telling your story, consider the key details that are most impactful.**
 
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then [deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Here are two ways you can present your cliffhanger for amplified effect:
 
@@ -904,7 +902,7 @@ This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVL
 
 #### Use Metaphors
 
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm) to increase the impact.
 
 If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
 
@@ -1012,7 +1010,7 @@ A good cliffhanger does not have to be life or death, but it does have to be the
 
 **Before you start telling your story, consider the key details that are most impactful.**
 
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then [deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Here are two ways you can present your cliffhanger for amplified effect:
 
@@ -1074,7 +1072,7 @@ This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVL
 
 #### Use Metaphors
 
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm) to increase the impact.
 
 If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
 
@@ -1182,7 +1180,7 @@ A good cliffhanger does not have to be life or death, but it does have to be the
 
 **Before you start telling your story, consider the key details that are most impactful.**
 
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then [deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Here are two ways you can present your cliffhanger for amplified effect:
 
@@ -1244,7 +1242,7 @@ This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVL
 
 #### Use Metaphors
 
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm) to increase the impact.
 
 If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
 

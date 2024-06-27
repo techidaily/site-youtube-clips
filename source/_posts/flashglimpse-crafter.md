@@ -1,7 +1,7 @@
 ---
 title: "FlashGlimpse Crafter"
-date: 2024-05-25T19:21:35.000Z
-updated: 2024-05-26T19:21:35.000Z
+date: 2024-06-26T15:42:20.555Z
+updated: 2024-06-27T15:42:20.555Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes FlashGlimpse Crafter"
 excerpt: "This Article Describes FlashGlimpse Crafter"
 keywords: "Crafting Insights,FlashCrafter Tips,Glimpse Crafter Secrets,Crafty Photography,QuickCraft Ideas,Creativity FlashTutorial,Artisan Glimpse Guide"
-thumbnail: https://www.lifewire.com/thmb/52vAO-Tr9m6ZoIOARQ_rx3SY5GY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/womanchargingcarwithdognearby_RyanJLane_Getty-60af98b715d241ea8be4252d5bf1e967.jpg
+thumbnail: https://thmb.techidaily.com/b5d7a060863d8900073e79dab85dc7e851c9bee60e59b4a6159a2401dabd161b.jpg
 ---
 
 ## FlashGlimpse Crafter
@@ -430,9 +430,7 @@ YouTubers use several video editors for their work. Some of the most popular edi
 
 ## Crucial Info Every ASMR Viewer Should Absorb
 
-# Things About ASMR Video You Should Know
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Things About ASMR Video You Should Know ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

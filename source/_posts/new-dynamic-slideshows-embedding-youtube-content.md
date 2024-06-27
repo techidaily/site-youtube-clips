@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Dynamic Slideshows  Embedding YouTube Content\""
-date: 2024-05-25T20:10:45.151Z
-updated: 2024-05-26T20:10:45.151Z
+date: 2024-06-26T15:42:17.383Z
+updated: 2024-06-27T15:42:17.383Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Dynamic Slideshows: Embedding YouTube Content\""
 excerpt: "\"This Article Describes [New] Dynamic Slideshows: Embedding YouTube Content\""
 keywords: "Dynamic Slide Show,YouTube Video Embed,Engaging Slideshow,Video Integration Tip,YouTube in Presentations,Interactive Media Slides,Live Content Display"
-thumbnail: https://www.lifewire.com/thmb/xXXXABZAmSAt0BL3NSr1kTD8CVM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/tesla-bot-f6353f76ae214924916445da1da620ca.png
+thumbnail: https://thmb.techidaily.com/b3d61cb315de3688d633dcaa1de969d34c57d2ef4835c89401c3246551696a45.png
 ---
 
 ## Dynamic Slideshows: Embedding YouTube Content
@@ -726,9 +726,7 @@ Clearing the DNS cache ensures that your PC is now ready to accept and save new 
 
 Type **CMD** in the **Cortana** search box, and click **Run as administrator** from the right menu of the results list.
 
-Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
-
-![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
+Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
 
@@ -890,9 +888,7 @@ Clearing the DNS cache ensures that your PC is now ready to accept and save new 
 
 Type **CMD** in the **Cortana** search box, and click **Run as administrator** from the right menu of the results list.
 
-Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
-
-![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
+Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
 
@@ -1054,9 +1050,7 @@ Clearing the DNS cache ensures that your PC is now ready to accept and save new 
 
 Type **CMD** in the **Cortana** search box, and click **Run as administrator** from the right menu of the results list.
 
-Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
-
-![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
+Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
 
@@ -1218,9 +1212,7 @@ Clearing the DNS cache ensures that your PC is now ready to accept and save new 
 
 Type **CMD** in the **Cortana** search box, and click **Run as administrator** from the right menu of the results list.
 
-Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
-
-![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
+Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
 

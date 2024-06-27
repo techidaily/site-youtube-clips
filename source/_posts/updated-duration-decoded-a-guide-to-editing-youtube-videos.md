@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Duration Decoded  A Guide to Editing YouTube Videos\""
-date: 2024-05-25T20:56:10.059Z
-updated: 2024-05-26T20:56:10.059Z
+date: 2024-06-26T15:42:28.895Z
+updated: 2024-06-27T15:42:28.895Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes [Updated] Duration Decoded: A Guide to Editing YouTube Videos\""
 excerpt: "\"This Article Describes [Updated] Duration Decoded: A Guide to Editing YouTube Videos\""
 keywords: "YouTube Video Length,Editing Longer Clips,Reducing Video Duration,YouTube Timing Tips,Shortening Videos Quickly,Optimizing Video Time,YouTube Editing Guide"
-thumbnail: https://www.lifewire.com/thmb/9-8N1hD2MYqTcjuzb69k4fYxXsk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-469187056-57cdf0a45f9b5829f4457c9a.jpg
+thumbnail: https://thmb.techidaily.com/f353031385ec13b27002aeb25b2433c7b7f2839e202aee43a31b71787185171a.jpg
 ---
 
 ## Duration Decoded: A Guide to Editing YouTube Videos
 
-# How to Edit the Length of a Video on YouTube
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Edit the Length of a Video on YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -42,9 +40,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
 
-#### Step 1 Get to the video editor
-
-![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### Step 1 Get to the video editor ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -96,9 +92,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
 
-#### Step 1 Get to the video editor
-
-![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### Step 1 Get to the video editor ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -150,9 +144,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
 
-#### Step 1 Get to the video editor
-
-![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### Step 1 Get to the video editor ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -204,9 +196,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
 
-#### Step 1 Get to the video editor
-
-![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+#### Step 1 Get to the video editor ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -250,9 +240,7 @@ Follow @Richard Bennett
 
 ## Unlocking Emotional Depth in Self-Narrated Videos YT
 
-# 10 YouTube Video Ideas for Sharing Your Personal Story
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 YouTube Video Ideas for Sharing Your Personal Story ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

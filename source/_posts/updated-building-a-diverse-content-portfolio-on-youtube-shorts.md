@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Building a Diverse Content Portfolio on YouTube Shorts"
-date: 2024-05-25T20:48:28.094Z
-updated: 2024-05-26T20:48:28.094Z
+date: 2024-06-26T15:42:29.024Z
+updated: 2024-06-27T15:42:29.024Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes [Updated] Building a Diverse Content Portfolio on YouTube Shorts"
 excerpt: "This Article Describes [Updated] Building a Diverse Content Portfolio on YouTube Shorts"
 keywords: "Diverse Content Strategy,Short Video Creation,Content Variety Growth,Inclusive Media Planning,Multicultural Channeling,Broad Reach Tactics,Unique Shorts Portfolio"
-thumbnail: https://www.lifewire.com/thmb/G5iaGrLrJAGURZkzImfPXc16aTk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-492690527-5820ab5e3df78cc2e8829737.jpg
+thumbnail: https://thmb.techidaily.com/3d3cca1cb8e22e05445139021e91e25daa93afe1718351a0f0a580312ddf158d.jpg
 ---
 
 ## Building a Diverse Content Portfolio on YouTube Shorts
 
-# All You Need to Know About the YouTube Shorts Fund
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# All You Need to Know About the YouTube Shorts Fund ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -522,9 +520,7 @@ Follow @Shanoon Cox
 
 ## Mastering the Download of Your YouTube Playlist Today
 
-# How to Download YouTube Playlist-Step by Step
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Download YouTube Playlist-Step by Step ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

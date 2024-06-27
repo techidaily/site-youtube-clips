@@ -1,7 +1,7 @@
 ---
 title: "[New] Enhancing Video Quality with Right Lighting"
-date: 2024-05-25T20:14:32.738Z
-updated: 2024-05-26T20:14:32.738Z
+date: 2024-06-26T15:42:21.644Z
+updated: 2024-06-27T15:42:21.644Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes [New] Enhancing Video Quality with Right Lighting"
 excerpt: "This Article Describes [New] Enhancing Video Quality with Right Lighting"
 keywords: "\"Video Quality Improvement,Optimal Lighting Techniques,High-Quality Video,Professional Video Production,Enhance Visual Clarity,Lighting for Video,Amplify Video Resolution\""
-thumbnail: https://www.lifewire.com/thmb/18xIWVgwfIJ0V9is8QVNZgp5lKg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-673781390-59f0b3b8685fbe0011e5991e.jpg
+thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d753be69ed2a2544fd8a3a51.jpg
 ---
 
 ## Enhancing Video Quality with Right Lighting
 
-# Lighting Tips for Vlogging: How to Light
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -28,9 +26,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -98,9 +94,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -168,9 +162,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -238,9 +230,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -314,9 +304,7 @@ Follow @Richard Bennett
 
 ## YouTube & Dailymotion: Unveiling Core Variations
 
-# What is the Difference between YouTube and Dailymotion
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# What is the Difference between YouTube and Dailymotion ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

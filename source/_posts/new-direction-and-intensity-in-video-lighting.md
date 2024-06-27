@@ -1,7 +1,7 @@
 ---
 title: "[New] Direction and Intensity in Video Lighting"
-date: 2024-05-25T20:09:09.033Z
-updated: 2024-05-26T20:09:09.033Z
+date: 2024-06-26T15:42:20.351Z
+updated: 2024-06-27T15:42:20.351Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes [New] Direction and Intensity in Video Lighting"
 excerpt: "This Article Describes [New] Direction and Intensity in Video Lighting"
 keywords: "Video Light Quality,Direct Video Illumination,Videolight Directional,Light Angle for Videos,Intense Film Lighting,Visual Media Brightness,Video Lens Focus Points"
-thumbnail: https://www.lifewire.com/thmb/GYiqe6p1ML8iMsOVu1sELyODoQ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Apple-WWCD23-Vision-Pro-with-battery-230605-153f3de9d33b4b80b640d1e9955db287.jpg
+thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12a2b526e9a90435fad802df2.jpg
 ---
 
 ## Direction and Intensity in Video Lighting
 
-# Lighting Tips for Vlogging: How to Light
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Lighting Tips for Vlogging: How to Light ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -28,9 +26,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -98,9 +94,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -168,9 +162,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -238,9 +230,7 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
-## Video Lighting Basics: Three Point Lighting
-
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+## Video Lighting Basics: Three Point Lighting ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -314,9 +304,7 @@ Follow @Richard Bennett
 
 ## 25 Smart & Proven Tactics to Get Your YouTube Channel Noticed
 
-# 25 Smart & Proven Tactics to Get Your YouTube Channel Noticed
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 25 Smart & Proven Tactics to Get Your YouTube Channel Noticed ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -402,7 +390,7 @@ To differentiate yourself from your competition you're going to need to have [cu
 
 In order to start producing more professional content, you need to practice your filmmaking technique. Regardless of the type of video that you are producing, a little bit of practice goes a long way.
 
-Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will[save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
+Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will [save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
 
 Simply making more videos is a great way to get in more practice.
 
@@ -584,7 +572,7 @@ To differentiate yourself from your competition you're going to need to have [cu
 
 In order to start producing more professional content, you need to practice your filmmaking technique. Regardless of the type of video that you are producing, a little bit of practice goes a long way.
 
-Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will[save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
+Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will [save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
 
 Simply making more videos is a great way to get in more practice.
 
@@ -766,7 +754,7 @@ To differentiate yourself from your competition you're going to need to have [cu
 
 In order to start producing more professional content, you need to practice your filmmaking technique. Regardless of the type of video that you are producing, a little bit of practice goes a long way.
 
-Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will[save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
+Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will [save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
 
 Simply making more videos is a great way to get in more practice.
 
@@ -948,7 +936,7 @@ To differentiate yourself from your competition you're going to need to have [cu
 
 In order to start producing more professional content, you need to practice your filmmaking technique. Regardless of the type of video that you are producing, a little bit of practice goes a long way.
 
-Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will[save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
+Rehearsing what you are going to say can make you feel much more confident. Playing with the video editing software that you're working with will [save you time when you’re actually polishing a video](https://www.filmora.io/community-blog/faster-rendering-faster-uploads-and-other-post-production-speed-hacks-211.html). Practicing taking photos and videos with your camera outside of making YouTube videos will help you feel familiar with its features. As you start to get more dedicated and practice with your video creation, your videos will gain more viewers and you can grow more subscribers on YouTube.
 
 Simply making more videos is a great way to get in more practice.
 

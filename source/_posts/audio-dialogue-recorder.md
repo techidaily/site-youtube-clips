@@ -1,7 +1,7 @@
 ---
 title: "Audio Dialogue Recorder"
-date: 2024-05-25T18:47:22.130Z
-updated: 2024-05-26T18:47:22.130Z
+date: 2024-06-26T15:42:21.799Z
+updated: 2024-06-27T15:42:21.799Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Audio Dialogue Recorder"
 excerpt: "This Article Describes Audio Dialogue Recorder"
 keywords: "Voice Capture Device,Sound Recording Microphone,Audio Interaction Tool,Dialogue Transcription Software,Lecture Screener Kit,Conversation Logging Gear,Speech Analysis Appliance"
-thumbnail: https://www.lifewire.com/thmb/p0ylhoIohfzUUD_zptkk_cS1LaE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zenbook-17-fold-oled-72de5601b7334834a2962b7a8c7b4e9b-16fb2ba97f414911a71ffd37c82c541e.png
+thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32ba37267dd79e6e802f121e2.png
 ---
 
 ## Audio Dialogue Recorder
@@ -558,9 +558,7 @@ Captions are a great way to get users to engage with your videos. Studies have s
 
 ## Step-by-Step for Sports Video Compilation
 
-# How to Create a Sports Highlight Video
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create a Sports Highlight Video ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

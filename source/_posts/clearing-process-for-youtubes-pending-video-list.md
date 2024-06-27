@@ -1,7 +1,7 @@
 ---
 title: "Clearing Process for YouTube's Pending Video List"
-date: 2024-05-25T18:57:14.551Z
-updated: 2024-05-26T18:57:14.551Z
+date: 2024-06-26T15:42:14.920Z
+updated: 2024-06-27T15:42:14.920Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Clearing Process for YouTube's Pending Video List"
 excerpt: "This Article Describes Clearing Process for YouTube's Pending Video List"
 keywords: "Clearing Pending Videos,YouTube Video Resolution,Streamlining Vid List,YouTube Content Review,Managing Unlisted Vids,Efficient Vid Queue,Video Status Update Process"
-thumbnail: https://www.lifewire.com/thmb/aqzoJvuc7HUCTQdUzpa5GXlHCac=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Mini-Splash-ef002ffe8db643d2a2b4de772ff46790.jpg
+thumbnail: https://thmb.techidaily.com/5a88545795b5ca3ae26e7c947a2bcf90d0830b425a670680d043fc15ab445500.jpg
 ---
 
 ## Clearing Process for YouTube's Pending Video List
@@ -62,7 +62,7 @@ Step2 Now, hit the **"Ctrl + Shift + J"** keys on Windows or the **"Command + Op
 
 Step3 Copy and paste the following lines of the script at the end of the line under the Console tab where the cursor is blinking.
 
-setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate( '//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
+setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate('//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
 
 Step4 In the last step, hit the **"Enter"** key to clear the Watch Later Playlist on YouTube. However, the process may take some time, depending on the number of videos in your playlist.
 
@@ -160,9 +160,7 @@ This guide was informative enough to answer most of your queries, and after read
 
 ## Your Journey to Glamorous Guruship: Launching an Aesthetic Channel
 
-# How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -174,9 +172,7 @@ Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are a
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
-#### 1\. Light It Up
-
-![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+#### 1\. Light It Up ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -224,9 +220,7 @@ Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are a
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
-#### 1\. Light It Up
-
-![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+#### 1\. Light It Up ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -274,9 +268,7 @@ Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are a
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
-#### 1\. Light It Up
-
-![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+#### 1\. Light It Up ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -324,9 +316,7 @@ Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are a
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
-#### 1\. Light It Up
-
-![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+#### 1\. Light It Up ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 

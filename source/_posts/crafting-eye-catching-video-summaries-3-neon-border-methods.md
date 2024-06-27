@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Eye-Catching Video Summaries  3 Neon Border Methods\""
-date: 2024-05-25T19:00:26.060Z
-updated: 2024-05-26T19:00:26.060Z
+date: 2024-06-26T15:42:25.330Z
+updated: 2024-06-27T15:42:25.330Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Crafting Eye-Catching Video Summaries: 3 Neon Border Methods\""
 excerpt: "\"This Article Describes Crafting Eye-Catching Video Summaries: 3 Neon Border Methods\""
 keywords: "\"Video Summary Crafting,Neon Borders Design,Eye-Catching Videos,Summary Techniques,Neon Border Tips,Creative Video Edits,Border Effects Video\""
-thumbnail: https://www.lifewire.com/thmb/WRDmGM751bcd-uPEnTRppKvTp80=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/sergey-zolkin-_UeY8aTI6d0-unsplash-70ae49e2888e4a9eb06efe3050fcb772.jpg
+thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f80591ecadf09ffda8a120cc.jpg
 ---
 
 ## Crafting Eye-Catching Video Summaries: 3 Neon Border Methods
@@ -48,11 +48,11 @@ Launch Wondershare Filmora X on your PC (a MacBook Pro M1 is used here), ensure 
 
 Then select **My Media** from the menu bar if not already selected, click **Project Media** from the navigation pane, and click **Import** from the **Media** box to select and import the image of the main character or object that you want to use in the thumbnail.
 
-![Import videos to Filmora  ](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
+![Import videos to Filmora](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
 
 Now, drag the image from the **Media** box to the Timeline at the bottom.
 
-![add youtube thumbnail photo to Filmora  ](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
+![add youtube thumbnail photo to Filmora](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
 
 **Step 2: Clear Image Background, Add Border, and Add Custom Background**
 
@@ -62,11 +62,11 @@ Go to **Effects** from the menu bar, click to select the **Default** tab and the
 
 Double-click the image layer, scroll down the upper-left box to the **Video Effects** section, and use the **Edge Thickness** and **Edge Feather** sliders to adjust the character’s edges to make them as realistic as possible. Click **OK** when done.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
 
 Next, click and drag the **Human Border** preset over the image track in the Timeline, and follow the same procedure to customize the border. This will give the character a **neon border** effect.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
 
 Now, use the method explained earlier to import a custom image for the background, and drag and place it under the previous track in the Timeline.
 
@@ -74,7 +74,7 @@ Now, use the method explained earlier to import a custom image for the backgroun
 
 If you are running the latest version of Filmora, you will find there are some neon light effects available under AI Portrait as well.
 
-![add neon effects to thumbnail photo ](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
+![add neon effects to thumbnail photo](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
 
 **Step 3: Add Titles to Thumbnail**
 
@@ -82,15 +82,15 @@ Go to **Titles** from the menu bar, click to select the **Default** tab and then
 
 Next, click to select **Titles** from the navigation pane, and drag your preferred title from the right window to the upper-most track in the Timeline. Now use the method explained earlier to edit the text, its color, position, etc. to make it look professional.
 
-![add title to thumbnail with border ](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
+![add title to thumbnail with border](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
 
-_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 **Step 4: Get the Neon Border Thumbnail**
 
 Click the **Snapshot** (**Camera**) icon from the upper-right area of the Timeline, go to **My Media** from the menu bar, right-click the thumbnail of the screenshot you captured, and click **Reveal in Finder** (on Mac) or **Reveal in Explorer** (on Windows) to get to the folder the **YouTube thumbnail border** is saved in.
 
-![take snapshot in Filmora ](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
+![take snapshot in Filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
 
 ## Part 2: How to Add a Glowing Neon Border in Your YouTube Thumbnail with Canva
 
@@ -104,7 +104,7 @@ After signing in to your Canva account, click **Create a design** from the top-r
 
 Now, click to select **Background** from the navigation bar on the left (if the **Background** tool is not visible, click **More** and then choose **Background** from the expanded list), and click to select a background from the images available in the center pane.
 
-![ choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
+![choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
 
 **Step 2: Upload an Image and Add Effects**
 
@@ -122,13 +122,13 @@ Then, click **Edit image** from the upper-left corner of the Canvas, click **Duo
 
 Next, click **See all** next to the **Adjust** section from the center pane, and drag the **Blur** slider to the right to increase the blur effect on the image.
 
-![blur thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
+![blur thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
 
 **Step 3: Position the Layers**
 
 While keeping the duplicate image selected, click the **Position** button from the upper-right area of the Canvas, and click **Background** to send the second image behind the first one to get the **neon border** effect for the photo.
 
-![add border to  thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
+![add border to  thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
 
 ## Part 3: How to Outline a Person in a YouTube Thumbnail with Photoshop
 
@@ -138,19 +138,19 @@ Because YouTube thumbnails are nothing but static images, creating **YouTube thu
 
 Launch Adobe Photoshop on your PC, click **Create new**, and on the **New Document** customization box, define the width and height values to **1280** and **720** pixels respectively. Select **Transparent** from the **Background Contents** menu as well if not already selected. Click **Create** from the bottom to create a new Photoshop document with the specified document settings. Next, open the folder that contains the source image, drag the photo to Photoshop, and press **Enter** to place the photo.
 
-![import thumbnail image to ps  ](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
+![import thumbnail image to ps](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
 
 **Step 2: Remove Background from the Image**
 
 Make sure that the image layer is selected in the **Layers** panel on the right, go to **Select** from the menu bar at the top, and click **Subject**. From the bottom of the **Layers** panel, click the **Add a mask** icon to get rid of the background, leaving only the human on the Canvas.
 
-![remove thumbnail background in ps  ](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
+![remove thumbnail background in ps](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
 
 **Step 3: Add a Custom Background and an Outline Around the Subject**
 
 Use the method explained earlier to import a background image of your choice to Photoshop. Drag the background image layer to the bottom in the **Layers** panel. Double-click the masked layer, click to select **Stroke** from the left pane of the **Layer Style** box, and use the options available on the right to manage the size, color, position, etc. of the stroke that has been added around the human subject. Click **OK** when done, and then export the image normally to use it as a **YouTube thumbnail border**.
 
-![outline thumbnail border in ps  ](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
+![outline thumbnail border in ps](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
 
 **Summary**
 
@@ -180,11 +180,11 @@ Launch Wondershare Filmora X on your PC (a MacBook Pro M1 is used here), ensure 
 
 Then select **My Media** from the menu bar if not already selected, click **Project Media** from the navigation pane, and click **Import** from the **Media** box to select and import the image of the main character or object that you want to use in the thumbnail.
 
-![Import videos to Filmora  ](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
+![Import videos to Filmora](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
 
 Now, drag the image from the **Media** box to the Timeline at the bottom.
 
-![add youtube thumbnail photo to Filmora  ](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
+![add youtube thumbnail photo to Filmora](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
 
 **Step 2: Clear Image Background, Add Border, and Add Custom Background**
 
@@ -194,11 +194,11 @@ Go to **Effects** from the menu bar, click to select the **Default** tab and the
 
 Double-click the image layer, scroll down the upper-left box to the **Video Effects** section, and use the **Edge Thickness** and **Edge Feather** sliders to adjust the character’s edges to make them as realistic as possible. Click **OK** when done.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
 
 Next, click and drag the **Human Border** preset over the image track in the Timeline, and follow the same procedure to customize the border. This will give the character a **neon border** effect.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
 
 Now, use the method explained earlier to import a custom image for the background, and drag and place it under the previous track in the Timeline.
 
@@ -206,7 +206,7 @@ Now, use the method explained earlier to import a custom image for the backgroun
 
 If you are running the latest version of Filmora, you will find there are some neon light effects available under AI Portrait as well.
 
-![add neon effects to thumbnail photo ](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
+![add neon effects to thumbnail photo](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
 
 **Step 3: Add Titles to Thumbnail**
 
@@ -214,15 +214,15 @@ Go to **Titles** from the menu bar, click to select the **Default** tab and then
 
 Next, click to select **Titles** from the navigation pane, and drag your preferred title from the right window to the upper-most track in the Timeline. Now use the method explained earlier to edit the text, its color, position, etc. to make it look professional.
 
-![add title to thumbnail with border ](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
+![add title to thumbnail with border](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
 
-_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 **Step 4: Get the Neon Border Thumbnail**
 
 Click the **Snapshot** (**Camera**) icon from the upper-right area of the Timeline, go to **My Media** from the menu bar, right-click the thumbnail of the screenshot you captured, and click **Reveal in Finder** (on Mac) or **Reveal in Explorer** (on Windows) to get to the folder the **YouTube thumbnail border** is saved in.
 
-![take snapshot in Filmora ](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
+![take snapshot in Filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
 
 ## Part 2: How to Add a Glowing Neon Border in Your YouTube Thumbnail with Canva
 
@@ -236,7 +236,7 @@ After signing in to your Canva account, click **Create a design** from the top-r
 
 Now, click to select **Background** from the navigation bar on the left (if the **Background** tool is not visible, click **More** and then choose **Background** from the expanded list), and click to select a background from the images available in the center pane.
 
-![ choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
+![choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
 
 **Step 2: Upload an Image and Add Effects**
 
@@ -254,13 +254,13 @@ Then, click **Edit image** from the upper-left corner of the Canvas, click **Duo
 
 Next, click **See all** next to the **Adjust** section from the center pane, and drag the **Blur** slider to the right to increase the blur effect on the image.
 
-![blur thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
+![blur thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
 
 **Step 3: Position the Layers**
 
 While keeping the duplicate image selected, click the **Position** button from the upper-right area of the Canvas, and click **Background** to send the second image behind the first one to get the **neon border** effect for the photo.
 
-![add border to  thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
+![add border to  thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
 
 ## Part 3: How to Outline a Person in a YouTube Thumbnail with Photoshop
 
@@ -270,19 +270,19 @@ Because YouTube thumbnails are nothing but static images, creating **YouTube thu
 
 Launch Adobe Photoshop on your PC, click **Create new**, and on the **New Document** customization box, define the width and height values to **1280** and **720** pixels respectively. Select **Transparent** from the **Background Contents** menu as well if not already selected. Click **Create** from the bottom to create a new Photoshop document with the specified document settings. Next, open the folder that contains the source image, drag the photo to Photoshop, and press **Enter** to place the photo.
 
-![import thumbnail image to ps  ](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
+![import thumbnail image to ps](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
 
 **Step 2: Remove Background from the Image**
 
 Make sure that the image layer is selected in the **Layers** panel on the right, go to **Select** from the menu bar at the top, and click **Subject**. From the bottom of the **Layers** panel, click the **Add a mask** icon to get rid of the background, leaving only the human on the Canvas.
 
-![remove thumbnail background in ps  ](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
+![remove thumbnail background in ps](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
 
 **Step 3: Add a Custom Background and an Outline Around the Subject**
 
 Use the method explained earlier to import a background image of your choice to Photoshop. Drag the background image layer to the bottom in the **Layers** panel. Double-click the masked layer, click to select **Stroke** from the left pane of the **Layer Style** box, and use the options available on the right to manage the size, color, position, etc. of the stroke that has been added around the human subject. Click **OK** when done, and then export the image normally to use it as a **YouTube thumbnail border**.
 
-![outline thumbnail border in ps  ](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
+![outline thumbnail border in ps](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
 
 **Summary**
 
@@ -312,11 +312,11 @@ Launch Wondershare Filmora X on your PC (a MacBook Pro M1 is used here), ensure 
 
 Then select **My Media** from the menu bar if not already selected, click **Project Media** from the navigation pane, and click **Import** from the **Media** box to select and import the image of the main character or object that you want to use in the thumbnail.
 
-![Import videos to Filmora  ](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
+![Import videos to Filmora](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
 
 Now, drag the image from the **Media** box to the Timeline at the bottom.
 
-![add youtube thumbnail photo to Filmora  ](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
+![add youtube thumbnail photo to Filmora](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
 
 **Step 2: Clear Image Background, Add Border, and Add Custom Background**
 
@@ -326,11 +326,11 @@ Go to **Effects** from the menu bar, click to select the **Default** tab and the
 
 Double-click the image layer, scroll down the upper-left box to the **Video Effects** section, and use the **Edge Thickness** and **Edge Feather** sliders to adjust the character’s edges to make them as realistic as possible. Click **OK** when done.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
 
 Next, click and drag the **Human Border** preset over the image track in the Timeline, and follow the same procedure to customize the border. This will give the character a **neon border** effect.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
 
 Now, use the method explained earlier to import a custom image for the background, and drag and place it under the previous track in the Timeline.
 
@@ -338,7 +338,7 @@ Now, use the method explained earlier to import a custom image for the backgroun
 
 If you are running the latest version of Filmora, you will find there are some neon light effects available under AI Portrait as well.
 
-![add neon effects to thumbnail photo ](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
+![add neon effects to thumbnail photo](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
 
 **Step 3: Add Titles to Thumbnail**
 
@@ -346,15 +346,15 @@ Go to **Titles** from the menu bar, click to select the **Default** tab and then
 
 Next, click to select **Titles** from the navigation pane, and drag your preferred title from the right window to the upper-most track in the Timeline. Now use the method explained earlier to edit the text, its color, position, etc. to make it look professional.
 
-![add title to thumbnail with border ](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
+![add title to thumbnail with border](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
 
-_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 **Step 4: Get the Neon Border Thumbnail**
 
 Click the **Snapshot** (**Camera**) icon from the upper-right area of the Timeline, go to **My Media** from the menu bar, right-click the thumbnail of the screenshot you captured, and click **Reveal in Finder** (on Mac) or **Reveal in Explorer** (on Windows) to get to the folder the **YouTube thumbnail border** is saved in.
 
-![take snapshot in Filmora ](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
+![take snapshot in Filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
 
 ## Part 2: How to Add a Glowing Neon Border in Your YouTube Thumbnail with Canva
 
@@ -368,7 +368,7 @@ After signing in to your Canva account, click **Create a design** from the top-r
 
 Now, click to select **Background** from the navigation bar on the left (if the **Background** tool is not visible, click **More** and then choose **Background** from the expanded list), and click to select a background from the images available in the center pane.
 
-![ choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
+![choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
 
 **Step 2: Upload an Image and Add Effects**
 
@@ -386,13 +386,13 @@ Then, click **Edit image** from the upper-left corner of the Canvas, click **Duo
 
 Next, click **See all** next to the **Adjust** section from the center pane, and drag the **Blur** slider to the right to increase the blur effect on the image.
 
-![blur thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
+![blur thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
 
 **Step 3: Position the Layers**
 
 While keeping the duplicate image selected, click the **Position** button from the upper-right area of the Canvas, and click **Background** to send the second image behind the first one to get the **neon border** effect for the photo.
 
-![add border to  thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
+![add border to  thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
 
 ## Part 3: How to Outline a Person in a YouTube Thumbnail with Photoshop
 
@@ -402,19 +402,19 @@ Because YouTube thumbnails are nothing but static images, creating **YouTube thu
 
 Launch Adobe Photoshop on your PC, click **Create new**, and on the **New Document** customization box, define the width and height values to **1280** and **720** pixels respectively. Select **Transparent** from the **Background Contents** menu as well if not already selected. Click **Create** from the bottom to create a new Photoshop document with the specified document settings. Next, open the folder that contains the source image, drag the photo to Photoshop, and press **Enter** to place the photo.
 
-![import thumbnail image to ps  ](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
+![import thumbnail image to ps](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
 
 **Step 2: Remove Background from the Image**
 
 Make sure that the image layer is selected in the **Layers** panel on the right, go to **Select** from the menu bar at the top, and click **Subject**. From the bottom of the **Layers** panel, click the **Add a mask** icon to get rid of the background, leaving only the human on the Canvas.
 
-![remove thumbnail background in ps  ](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
+![remove thumbnail background in ps](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
 
 **Step 3: Add a Custom Background and an Outline Around the Subject**
 
 Use the method explained earlier to import a background image of your choice to Photoshop. Drag the background image layer to the bottom in the **Layers** panel. Double-click the masked layer, click to select **Stroke** from the left pane of the **Layer Style** box, and use the options available on the right to manage the size, color, position, etc. of the stroke that has been added around the human subject. Click **OK** when done, and then export the image normally to use it as a **YouTube thumbnail border**.
 
-![outline thumbnail border in ps  ](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
+![outline thumbnail border in ps](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
 
 **Summary**
 
@@ -444,11 +444,11 @@ Launch Wondershare Filmora X on your PC (a MacBook Pro M1 is used here), ensure 
 
 Then select **My Media** from the menu bar if not already selected, click **Project Media** from the navigation pane, and click **Import** from the **Media** box to select and import the image of the main character or object that you want to use in the thumbnail.
 
-![Import videos to Filmora  ](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
+![Import videos to Filmora](https://images.wondershare.com/filmora/article-images/import-change-aspect-ratio-filmora.jpg)
 
 Now, drag the image from the **Media** box to the Timeline at the bottom.
 
-![add youtube thumbnail photo to Filmora  ](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
+![add youtube thumbnail photo to Filmora](https://images.wondershare.com/filmora/article-images/add-youtube-thumbnail-background-photo.jpg)
 
 **Step 2: Clear Image Background, Add Border, and Add Custom Background**
 
@@ -458,11 +458,11 @@ Go to **Effects** from the menu bar, click to select the **Default** tab and the
 
 Double-click the image layer, scroll down the upper-left box to the **Video Effects** section, and use the **Edge Thickness** and **Edge Feather** sliders to adjust the character’s edges to make them as realistic as possible. Click **OK** when done.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/adjust-border-settings.jpg)
 
 Next, click and drag the **Human Border** preset over the image track in the Timeline, and follow the same procedure to customize the border. This will give the character a **neon border** effect.
 
-![adjust thumbnail border settings ](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
+![adjust thumbnail border settings](https://images.wondershare.com/filmora/article-images/add-human-border-effects.jpg)
 
 Now, use the method explained earlier to import a custom image for the background, and drag and place it under the previous track in the Timeline.
 
@@ -470,7 +470,7 @@ Now, use the method explained earlier to import a custom image for the backgroun
 
 If you are running the latest version of Filmora, you will find there are some neon light effects available under AI Portrait as well.
 
-![add neon effects to thumbnail photo ](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
+![add neon effects to thumbnail photo](https://images.wondershare.com/filmora/article-images/neon-effect-ai-portrait.jpg)
 
 **Step 3: Add Titles to Thumbnail**
 
@@ -478,15 +478,15 @@ Go to **Titles** from the menu bar, click to select the **Default** tab and then
 
 Next, click to select **Titles** from the navigation pane, and drag your preferred title from the right window to the upper-most track in the Timeline. Now use the method explained earlier to edit the text, its color, position, etc. to make it look professional.
 
-![add title to thumbnail with border ](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
+![add title to thumbnail with border](https://images.wondershare.com/filmora/article-images/add-title-border-thumbnail.jpg)
 
-_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_For more tips and tricks for creating YouTube thumbnail, you can check this_ [_You_ _Tube thumbnail creating guide_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 **Step 4: Get the Neon Border Thumbnail**
 
 Click the **Snapshot** (**Camera**) icon from the upper-right area of the Timeline, go to **My Media** from the menu bar, right-click the thumbnail of the screenshot you captured, and click **Reveal in Finder** (on Mac) or **Reveal in Explorer** (on Windows) to get to the folder the **YouTube thumbnail border** is saved in.
 
-![take snapshot in Filmora ](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
+![take snapshot in Filmora](https://images.wondershare.com/filmora/article-images/take-snapshot-border-thumbnail.jpg)
 
 ## Part 2: How to Add a Glowing Neon Border in Your YouTube Thumbnail with Canva
 
@@ -500,7 +500,7 @@ After signing in to your Canva account, click **Create a design** from the top-r
 
 Now, click to select **Background** from the navigation bar on the left (if the **Background** tool is not visible, click **More** and then choose **Background** from the expanded list), and click to select a background from the images available in the center pane.
 
-![ choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
+![choose background in Canva](https://images.wondershare.com/filmora/article-images/canva-choose-background.jpg)
 
 **Step 2: Upload an Image and Add Effects**
 
@@ -518,13 +518,13 @@ Then, click **Edit image** from the upper-left corner of the Canvas, click **Duo
 
 Next, click **See all** next to the **Adjust** section from the center pane, and drag the **Blur** slider to the right to increase the blur effect on the image.
 
-![blur thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
+![blur thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/blur-thumbnail-canva.jpg)
 
 **Step 3: Position the Layers**
 
 While keeping the duplicate image selected, click the **Position** button from the upper-right area of the Canvas, and click **Background** to send the second image behind the first one to get the **neon border** effect for the photo.
 
-![add border to  thumbnail image in Canva  ](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
+![add border to  thumbnail image in Canva](https://images.wondershare.com/filmora/article-images/position-layer-canva-border-effects.jpg)
 
 ## Part 3: How to Outline a Person in a YouTube Thumbnail with Photoshop
 
@@ -534,19 +534,19 @@ Because YouTube thumbnails are nothing but static images, creating **YouTube thu
 
 Launch Adobe Photoshop on your PC, click **Create new**, and on the **New Document** customization box, define the width and height values to **1280** and **720** pixels respectively. Select **Transparent** from the **Background Contents** menu as well if not already selected. Click **Create** from the bottom to create a new Photoshop document with the specified document settings. Next, open the folder that contains the source image, drag the photo to Photoshop, and press **Enter** to place the photo.
 
-![import thumbnail image to ps  ](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
+![import thumbnail image to ps](https://images.wondershare.com/filmora/article-images/import-youtube-thumbnail-photoshop.jpg)
 
 **Step 2: Remove Background from the Image**
 
 Make sure that the image layer is selected in the **Layers** panel on the right, go to **Select** from the menu bar at the top, and click **Subject**. From the bottom of the **Layers** panel, click the **Add a mask** icon to get rid of the background, leaving only the human on the Canvas.
 
-![remove thumbnail background in ps  ](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
+![remove thumbnail background in ps](https://images.wondershare.com/filmora/article-images/remove-thumbnail-background.jpg)
 
 **Step 3: Add a Custom Background and an Outline Around the Subject**
 
 Use the method explained earlier to import a background image of your choice to Photoshop. Drag the background image layer to the bottom in the **Layers** panel. Double-click the masked layer, click to select **Stroke** from the left pane of the **Layer Style** box, and use the options available on the right to manage the size, color, position, etc. of the stroke that has been added around the human subject. Click **OK** when done, and then export the image normally to use it as a **YouTube thumbnail border**.
 
-![outline thumbnail border in ps  ](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
+![outline thumbnail border in ps](https://images.wondershare.com/filmora/article-images/outline-neon-border-photoshop.jpg)
 
 **Summary**
 
@@ -568,9 +568,7 @@ It is important to know that the default resolution of a YouTube thumbnail is 12
 
 YouTube offers content creators a platform for creating a lucrative career. Of the major developments made in the recent past is the introduction of Shorts. These short vertical videos have grown in popularity as more people view videos on their phones. With this development, the **YouTube Shorts fund** was launched to reward creators for their efforts. The fund allows creators to monetize their Shorts quickly, supporting and incentivizing them to create high-quality Shorts content. In this article, we will explore the YouTube Shorts Fund 2023, including YouTube shorts fund eligibility.
 
-**YouTube Shorts Monetization** A cross-platform for taking your overexposed footage to cinema-quality Shorts video!
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
+**YouTube Shorts Monetization** A cross-platform for taking your overexposed footage to cinema-quality Shorts video ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
@@ -661,23 +659,23 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
-### 1\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1\. **Auto Reframe**
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
 
-### 2\. [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2\. **Add Text to Video**
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
-### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3\. **Auto Synchronization**
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
 
-### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4\. **Mask & Blend**
 
 Creativity is a major component of YouTube Shorts content. The Filmora Masking and Blending mode helps you make creative video clips. It comes with a pen tool for creating free-form shapes on the go. Make your videos more impressive to your audience.
 
-### 5\. [**Auto Beat Sync**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5\. **Auto Beat Sync**
 
 With YouTube Shorts, you need to entertain your audience in under a minute. A combination of visual and audio elements makes the video more entertaining. The Auto Beat Sync feature matches the footage with the music automatically. Be sure every beat corresponds to the scene.
 
@@ -776,23 +774,23 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
-### 1\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1\. **Auto Reframe**
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
 
-### 2\. [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2\. **Add Text to Video**
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
-### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3\. **Auto Synchronization**
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
 
-### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4\. **Mask & Blend**
 
 Creativity is a major component of YouTube Shorts content. The Filmora Masking and Blending mode helps you make creative video clips. It comes with a pen tool for creating free-form shapes on the go. Make your videos more impressive to your audience.
 
-### 5\. [**Auto Beat Sync**](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5\. **Auto Beat Sync**
 
 With YouTube Shorts, you need to entertain your audience in under a minute. A combination of visual and audio elements makes the video more entertaining. The Auto Beat Sync feature matches the footage with the music automatically. Be sure every beat corresponds to the scene.
 

@@ -1,7 +1,7 @@
 ---
 title: "\"SMB Social Media Strategies  Infographic Guide\""
-date: 2024-05-25T20:23:46.245Z
-updated: 2024-05-26T20:23:46.245Z
+date: 2024-06-26T15:42:11.291Z
+updated: 2024-06-27T15:42:11.291Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes SMB Social Media Strategies: Infographic Guide\""
 excerpt: "\"This Article Describes SMB Social Media Strategies: Infographic Guide\""
 keywords: "SMB Social Guides,Infographic Marketing,Social Strategy Tips,Business Infographics,Social Media Plans,Brand Engagement Guide,Content Marketing Tools"
-thumbnail: https://www.lifewire.com/thmb/5Rh0DF6BYnizE71kVQ1TrYntJLc=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1372111529-f0c3f175f8b14fdbbc7ecf33e125848e.jpg
+thumbnail: https://thmb.techidaily.com/ced9cab3bb4f4b670e0a461fa0277071d0fe6cc512c46ece52a065d147ecc37a.jpg
 ---
 
 ## SMB Social Media Strategies: Infographic Guide
 
-# \[Infographic\] Social Video Marketing Tips for Small Business
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# \[Infographic\] Social Video Marketing Tips for Small Business ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -194,9 +192,7 @@ Follow @Richard Bennett
 
 ## 10 Tips for Teachers Creating a YouTube Channel
 
-# 10 YouTube Tips for Teachers
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 YouTube Tips for Teachers ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

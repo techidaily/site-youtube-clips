@@ -1,7 +1,7 @@
 ---
 title: "\"Excellence Guild  Crafting Photos + Sounds, Visuals\""
-date: 2024-05-25T19:19:35.465Z
-updated: 2024-05-26T19:19:35.465Z
+date: 2024-06-26T15:42:28.551Z
+updated: 2024-06-27T15:42:28.551Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Excellence Guild: Crafting Photos + Sounds, Visuals\""
 excerpt: "\"This Article Describes Excellence Guild: Crafting Photos + Sounds, Visuals\""
 keywords: "\"Excellent Photography & Audio,Top-Tier Creative Design,Mastering Visual Arts,High-Quality Imagery,Premium Sound Production,Artistic Photo & Sound Mix,Professional Image + Audio Craft\""
-thumbnail: https://www.lifewire.com/thmb/Z3Xs6-UzsSzaSd95X6saYFKQuKE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-77744394-e5f79596e54a4ba6a914eed31be7efc4.jpg
+thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ceaf1fe51880dc088692edac0.jpg
 ---
 
 ## Excellence Guild: Crafting Photos + Sounds, Visuals
@@ -504,9 +504,7 @@ If you are making a video from your photos, you can use an online video maker wi
 
 ## Elevate Your Aspects: A Beginner' Cookbook for ASMR Filmmaking
 
-# How to Make ASMR Videos: a Complete Guide
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make ASMR Videos: a Complete Guide ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

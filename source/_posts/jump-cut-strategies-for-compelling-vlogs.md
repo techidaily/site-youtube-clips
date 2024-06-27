@@ -1,7 +1,7 @@
 ---
 title: "Jump Cut Strategies for Compelling Vlogs"
-date: 2024-05-25T19:49:46.998Z
-updated: 2024-05-26T19:49:46.998Z
+date: 2024-06-26T15:42:24.545Z
+updated: 2024-06-27T15:42:24.545Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes Jump Cut Strategies for Compelling Vlogs"
 excerpt: "This Article Describes Jump Cut Strategies for Compelling Vlogs"
 keywords: "Vlog Cuts Techniques,Jump Cut Tactics,Video Editing Skills,Engaging Vlog Tricks,Strategic Videography,Compelling Cut Methods,Effective Vlog Sequences"
-thumbnail: https://www.lifewire.com/thmb/TYlonbITONJw8xjZiugj3nr8x0k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/image5-a09202a279f54f0fb179c8cbcb2acc92.png
+thumbnail: https://thmb.techidaily.com/bd73d50e5d9ed4daeccbe66a94668b925bf784c3cbb50495af3357fea0a04a08.png
 ---
 
 ## Jump Cut Strategies for Compelling Vlogs
 
-# How To Use Jump Cuts in Your Vlog
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Use Jump Cuts in Your Vlog ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -274,9 +272,7 @@ Follow @Richard Bennett
 
 ## Capturing Live Sounds Directly From YouTube Videos
 
-# How to Record Audio from YouTube
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+# How to Record Audio from YouTube ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
 
@@ -308,15 +304,13 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
 
 The simplest technique to record audio from YouTube videos is to use a trustworthy online application that can perform the conversion from [video to MP3 file](https://tools.techidaily.com/wondershare/filmora/download/). In this article, I am going to show you how to **capture audio from YouTube** with the assist of a free online convert tool named YouTube to MP3\. To do this, simply follow these simple steps:
 
-![Capture Audio from YouTube ](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
+![Capture Audio from YouTube](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
 
 * Visit the YouTube video page and copy the URL of the video whose audio you want to get in form of an MP3
 * Go to the internet and open the online YouTube to MP3 converter tool.
@@ -335,12 +329,12 @@ In case if you are interested to record yourself or want to capture just a small
 * Run the setup to begin the installation process and follow on-screen guidelines to finish the process.
 * Open Audacity software on your system and from the top menu bar hit the Edit option and then go to Preferences.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity.jpg)
 
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
@@ -352,14 +346,14 @@ The third choice for recording YouTube audios is using [Streaming Audio Recorder
 
 You will be happy to hear that this recorder is not just dedicated to YouTube platform only rather it can also work perfectly with Grooveshark, Jango, and Spotify. Below are few simple steps that you can use to complete the audio recording task with Streaming Audio Recorder:
 
-![ Streaming Audio Recorder ](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
+![Streaming Audio Recorder](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
 
 * Go to the internet and download Streaming Audio Recorder. Install and open the program.
 * Hit gear icon on the main interface and then move to settings. Set source of the audio input as System Sound.
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
-## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Recommended: Record Audio and Save to MP3 Format with Wondershare Filmora
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -411,15 +405,13 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
 
 The simplest technique to record audio from YouTube videos is to use a trustworthy online application that can perform the conversion from [video to MP3 file](https://tools.techidaily.com/wondershare/filmora/download/). In this article, I am going to show you how to **capture audio from YouTube** with the assist of a free online convert tool named YouTube to MP3\. To do this, simply follow these simple steps:
 
-![Capture Audio from YouTube ](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
+![Capture Audio from YouTube](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
 
 * Visit the YouTube video page and copy the URL of the video whose audio you want to get in form of an MP3
 * Go to the internet and open the online YouTube to MP3 converter tool.
@@ -438,12 +430,12 @@ In case if you are interested to record yourself or want to capture just a small
 * Run the setup to begin the installation process and follow on-screen guidelines to finish the process.
 * Open Audacity software on your system and from the top menu bar hit the Edit option and then go to Preferences.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity.jpg)
 
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
@@ -455,14 +447,14 @@ The third choice for recording YouTube audios is using [Streaming Audio Recorder
 
 You will be happy to hear that this recorder is not just dedicated to YouTube platform only rather it can also work perfectly with Grooveshark, Jango, and Spotify. Below are few simple steps that you can use to complete the audio recording task with Streaming Audio Recorder:
 
-![ Streaming Audio Recorder ](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
+![Streaming Audio Recorder](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
 
 * Go to the internet and download Streaming Audio Recorder. Install and open the program.
 * Hit gear icon on the main interface and then move to settings. Set source of the audio input as System Sound.
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
-## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Recommended: Record Audio and Save to MP3 Format with Wondershare Filmora
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -514,15 +506,13 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
 
 The simplest technique to record audio from YouTube videos is to use a trustworthy online application that can perform the conversion from [video to MP3 file](https://tools.techidaily.com/wondershare/filmora/download/). In this article, I am going to show you how to **capture audio from YouTube** with the assist of a free online convert tool named YouTube to MP3\. To do this, simply follow these simple steps:
 
-![Capture Audio from YouTube ](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
+![Capture Audio from YouTube](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
 
 * Visit the YouTube video page and copy the URL of the video whose audio you want to get in form of an MP3
 * Go to the internet and open the online YouTube to MP3 converter tool.
@@ -541,12 +531,12 @@ In case if you are interested to record yourself or want to capture just a small
 * Run the setup to begin the installation process and follow on-screen guidelines to finish the process.
 * Open Audacity software on your system and from the top menu bar hit the Edit option and then go to Preferences.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity.jpg)
 
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
@@ -558,14 +548,14 @@ The third choice for recording YouTube audios is using [Streaming Audio Recorder
 
 You will be happy to hear that this recorder is not just dedicated to YouTube platform only rather it can also work perfectly with Grooveshark, Jango, and Spotify. Below are few simple steps that you can use to complete the audio recording task with Streaming Audio Recorder:
 
-![ Streaming Audio Recorder ](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
+![Streaming Audio Recorder](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
 
 * Go to the internet and download Streaming Audio Recorder. Install and open the program.
 * Hit gear icon on the main interface and then move to settings. Set source of the audio input as System Sound.
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
-## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Recommended: Record Audio and Save to MP3 Format with Wondershare Filmora
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -617,15 +607,13 @@ For Win 7 or later (64-bit)
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For macOS 10.12 or later
-
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+For macOS 10.12 or later ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
 
 The simplest technique to record audio from YouTube videos is to use a trustworthy online application that can perform the conversion from [video to MP3 file](https://tools.techidaily.com/wondershare/filmora/download/). In this article, I am going to show you how to **capture audio from YouTube** with the assist of a free online convert tool named YouTube to MP3\. To do this, simply follow these simple steps:
 
-![Capture Audio from YouTube ](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
+![Capture Audio from YouTube](https://images.wondershare.com/filmora/article-images/youtubetomp3music-capture-audio-from-mp3.jpg)
 
 * Visit the YouTube video page and copy the URL of the video whose audio you want to get in form of an MP3
 * Go to the internet and open the online YouTube to MP3 converter tool.
@@ -644,12 +632,12 @@ In case if you are interested to record yourself or want to capture just a small
 * Run the setup to begin the installation process and follow on-screen guidelines to finish the process.
 * Open Audacity software on your system and from the top menu bar hit the Edit option and then go to Preferences.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity.jpg)
 
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
+![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
@@ -661,14 +649,14 @@ The third choice for recording YouTube audios is using [Streaming Audio Recorder
 
 You will be happy to hear that this recorder is not just dedicated to YouTube platform only rather it can also work perfectly with Grooveshark, Jango, and Spotify. Below are few simple steps that you can use to complete the audio recording task with Streaming Audio Recorder:
 
-![ Streaming Audio Recorder ](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
+![Streaming Audio Recorder](https://images.wondershare.com/filmora/article-images/streaming-audio-recorder.jpg)
 
 * Go to the internet and download Streaming Audio Recorder. Install and open the program.
 * Hit gear icon on the main interface and then move to settings. Set source of the audio input as System Sound.
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
-## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+## Recommended: Record Audio and Save to MP3 Format with Wondershare Filmora
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
