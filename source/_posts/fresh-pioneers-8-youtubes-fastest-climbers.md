@@ -1,7 +1,7 @@
 ---
 title: "\"Fresh Pioneers 8  YouTube's Fastest Climbers\""
-date: 2024-05-25T19:22:23.836Z
-updated: 2024-05-26T19:22:23.836Z
+date: 2024-07-06T03:05:24.818Z
+updated: 2024-07-07T03:05:24.818Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Fresh Pioneers 8: YouTube's Fastest Climbers\""
 excerpt: "\"This Article Describes Fresh Pioneers 8: YouTube's Fastest Climbers\""
 keywords: "\"Fresh Pioneer Climb,YouTube Growth Stars,Top YouTubers Rise,Video Creator Success,Rapid Channel Achievement,Up-and-Comer Channels,Quick YouTuber Ascents\""
-thumbnail: https://www.lifewire.com/thmb/dpIy1Vb0m2YNL1LlGPZga8opYUc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsungtvhomepage-58f0d708245a4140bb4bbad8ea0cfc26.jpg
+thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e09d897a36274e3de6aadbd39.jpg
 ---
 
 ## Fresh Pioneers 8: YouTube's Fastest Climbers

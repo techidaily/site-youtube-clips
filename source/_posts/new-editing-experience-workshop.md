@@ -1,7 +1,7 @@
 ---
 title: "[New] Editing Experience Workshop"
-date: 2024-05-25T20:11:23.166Z
-updated: 2024-05-26T20:11:23.166Z
+date: 2024-07-06T03:05:40.112Z
+updated: 2024-07-07T03:05:40.112Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Editing Experience Workshop"
 excerpt: "This Article Describes [New] Editing Experience Workshop"
 keywords: "Editing Workshops,Writing Mastery,Content Development,Editorial Expertise,Professional Writing,Writing Skills Improvement,Article Editing Tips"
-thumbnail: https://www.lifewire.com/thmb/iarZB_EFbm9GNptJUkKRT5Iko6U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/lg-screen-share-menu-yellow-819f174e11fa46eb9ab39a80d20a6872.jpg
+thumbnail: https://thmb.techidaily.com/fcf5c5ea9608f76f888a293e8f1d7735a9ef3d7b559d6f2e28e14efe6f5fdf86.jpg
 ---
 
 ## Editing Experience Workshop

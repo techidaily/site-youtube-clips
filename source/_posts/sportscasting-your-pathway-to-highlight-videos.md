@@ -1,7 +1,7 @@
 ---
 title: "\"Sportscasting  Your Pathway to Highlight Videos\""
-date: 2024-05-25T20:24:30.363Z
-updated: 2024-05-26T20:24:30.363Z
+date: 2024-07-06T03:05:28.778Z
+updated: 2024-07-07T03:05:28.778Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Sportscasting: Your Pathway to Highlight Videos\""
 excerpt: "\"This Article Describes Sportscasting: Your Pathway to Highlight Videos\""
 keywords: "Sports Broadcasting,Highlight Video Tips,Video Production Sports,Profession Sportcaster,Create Engaging Content,Professional Sports Media,Highlight Film Techniques"
-thumbnail: https://www.lifewire.com/thmb/an2sUUuxV4lgDigUv90Uy-5izas=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-soundbar-c1b91ce1db6644d09b8b7684262cb8b1.jpg
+thumbnail: https://thmb.techidaily.com/8e48b2813408b75482794fbb8e9c7fd16cd8c115a0a176db85647e2b441ce187.jpg
 ---
 
 ## Sportscasting: Your Pathway to Highlight Videos

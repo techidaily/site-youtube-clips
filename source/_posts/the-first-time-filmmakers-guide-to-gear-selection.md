@@ -1,7 +1,7 @@
 ---
 title: "\"The First-Time Filmmaker's Guide to Gear Selection\""
-date: 2024-05-25T20:30:28.940Z
-updated: 2024-05-26T20:30:28.940Z
+date: 2024-07-06T03:05:25.294Z
+updated: 2024-07-07T03:05:25.294Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The First-Time Filmmaker's Guide to Gear Selection\""
 excerpt: "\"This Article Describes The First-Time Filmmaker's Guide to Gear Selection\""
 keywords: "\"Beginner Filmmaking Equipment,Film Kit Fundamentals,Entry-Level Cinematography Tools,Novice Filming Techniques,Initial Filmmaker Gear Guide,Newcomer Camera Selection,Essential Filmmaking Devices\""
-thumbnail: https://www.lifewire.com/thmb/ir-tdkJhetInDNhHCkfbZa8f19M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Flack-6b3c3167132c467db22bae39689c44ef.jpg
+thumbnail: https://thmb.techidaily.com/918ad49eae4bb09e7bbe637c097999923379261d114b5800bdb87d98b552aa6d.jpg
 ---
 
 ## The First-Time Filmmaker's Guide to Gear Selection

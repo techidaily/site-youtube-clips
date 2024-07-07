@@ -1,7 +1,7 @@
 ---
 title: "From Zero to Hero in YouTubing Equipment Essentials"
-date: 2024-05-25T19:23:40.617Z
-updated: 2024-05-26T19:23:40.617Z
+date: 2024-07-06T03:05:28.167Z
+updated: 2024-07-07T03:05:28.167Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes From Zero to Hero in YouTubing Equipment Essentials"
 excerpt: "This Article Describes From Zero to Hero in YouTubing Equipment Essentials"
 keywords: "\"YouTube Essentials Gear,Beginner Video Tools,First-Time Videographer,Professional Video Setup,Budget Videography Kit,Entry-Level Camera Equipment,Basic Editing Software\""
-thumbnail: https://www.lifewire.com/thmb/fAu6_ORb9M5oeIYjTL2bgG5hxho=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-image-creator-from-microsoft-designer-7fad906276724cac96622cfcf3af3322.jpg
+thumbnail: https://thmb.techidaily.com/246a59716ccd46798f84896d6b6802f3ff638286b1b806ed68510f39b79036cf.jpg
 ---
 
 ## From Zero to Hero in YouTubing Equipment Essentials

@@ -1,7 +1,7 @@
 ---
 title: "Assembling Channel Summaries That Attract"
-date: 2024-06-26T15:42:28.612Z
-updated: 2024-06-27T15:42:28.612Z
+date: 2024-07-06T03:05:36.381Z
+updated: 2024-07-07T03:05:36.381Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/93fd3ecf6c0ec1cdbec9f4930fda0699ca8c61749
 
 ## Assembling Channel Summaries That Attract
 
-# How to Make a Channel Trailer ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Make a Channel Trailer
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

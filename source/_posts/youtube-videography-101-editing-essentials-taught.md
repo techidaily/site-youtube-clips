@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Videography 101  Editing Essentials Taught\""
-date: 2024-05-25T21:05:07.931Z
-updated: 2024-05-26T21:05:07.931Z
+date: 2024-07-06T03:05:37.030Z
+updated: 2024-07-07T03:05:37.030Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes YouTube Videography 101: Editing Essentials Taught\""
 excerpt: "\"This Article Describes YouTube Videography 101: Editing Essentials Taught\""
 keywords: "Video Edits Basics,YouTube Video Production,Beginner Video Editing,Editing Techniques for YouTubers,Essential Video Editor Tips,Fundamental Video Editing Skills,First Steps in Video Editing"
-thumbnail: https://www.lifewire.com/thmb/PCP004eh2yqRameBwbwdc5YUBAI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-915277708-addd7c34af0542c48c09732d19f25cc3.jpg
+thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff84337aa8bb982a08609d9e6.jpg
 ---
 
 ## YouTube Videography 101: Editing Essentials Taught

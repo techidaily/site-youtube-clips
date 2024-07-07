@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Pathway to Writing YouTube Video Plans"
-date: 2024-05-25T19:57:40.297Z
-updated: 2024-05-26T19:57:40.297Z
+date: 2024-07-06T03:05:26.756Z
+updated: 2024-07-07T03:05:26.756Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] A Novice's Pathway to Writing YouTube Video Plans"
 excerpt: "This Article Describes [New] A Novice's Pathway to Writing YouTube Video Plans"
 keywords: "YouTube Video Plan Guide,Writing YouTube Plans,Beginner Writing Strategies,Creating Effective Video Content,Plotting YouTube Videos,Scripting for YouTube Success,Video Plan Creation Basics"
-thumbnail: https://www.lifewire.com/thmb/R2EAcV3wZUv2LpJtJ6Pbo23Xsuk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-752179111-e4cc13e6bc184d0cb0ccfca448ce9aa0.jpg
+thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5dbda3843a3191dbeadf76d9d.jpg
 ---
 
 ## A Novice's Pathway to Writing YouTube Video Plans

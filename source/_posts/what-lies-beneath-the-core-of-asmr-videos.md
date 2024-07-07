@@ -1,7 +1,7 @@
 ---
 title: "\"What Lies Beneath  The Core of ASMR Videos\""
-date: 2024-05-25T21:02:48.181Z
-updated: 2024-05-26T21:02:48.181Z
+date: 2024-07-06T03:05:40.279Z
+updated: 2024-07-07T03:05:40.279Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes What Lies Beneath: The Core of ASMR Videos\""
 excerpt: "\"This Article Describes What Lies Beneath: The Core of ASMR Videos\""
 keywords: "ASMR Basics,Neuronal Sensory,Audio Stimulation,Subconscious Response,Relaxation Technique,Sensory Experience,Video Core Insight"
-thumbnail: https://www.lifewire.com/thmb/Qa72eBfCZc6Kch4bXzH3ZVm1XTU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/LifewireClubhousePrimary-6ea7cf41b0884f88b419ec23bc3c35be.jpg
+thumbnail: https://thmb.techidaily.com/cabed3ff31b82926ba008513e58f8543d937e5a9afb11a07e4133edf1c0ffefb.jpg
 ---
 
 ## What Lies Beneath: The Core of ASMR Videos

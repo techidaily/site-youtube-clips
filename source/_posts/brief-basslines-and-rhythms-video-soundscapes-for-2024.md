@@ -1,7 +1,7 @@
 ---
 title: "\"Brief Basslines & Rhythms  Video Soundscapes for 2024\""
-date: 2024-05-25T18:52:59.606Z
-updated: 2024-05-26T18:52:59.606Z
+date: 2024-07-06T03:05:27.491Z
+updated: 2024-07-07T03:05:27.491Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Brief Basslines & Rhythms: Video Soundscapes for 2024\""
 excerpt: "\"This Article Describes Brief Basslines & Rhythms: Video Soundscapes for 2024\""
 keywords: "Bassline Visuals,Rhythm Soundscape,Audio Brief Art,Sound Visual Video,Basslines in Videos,Rhythmic Scene Craft,Soundscapes in Media"
-thumbnail: https://www.lifewire.com/thmb/M_X1ma-kuwmeQ-kg-ITiIY4tMQQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2023-03-14at12.27.14PM-07cb4c0039e84004a9918ecb5dee60ec.jpg
+thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c350e0ba60cc8399b6967ad03.jpg
 ---
 
 ## Brief Basslines & Rhythms: Video Soundscapes

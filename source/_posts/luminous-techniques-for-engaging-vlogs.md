@@ -1,7 +1,7 @@
 ---
 title: "Luminous Techniques for Engaging Vlogs"
-date: 2024-05-25T19:51:12.675Z
-updated: 2024-05-26T19:51:12.675Z
+date: 2024-07-06T03:05:34.145Z
+updated: 2024-07-07T03:05:34.145Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Luminous Techniques for Engaging Vlogs"
 excerpt: "This Article Describes Luminous Techniques for Engaging Vlogs"
 keywords: "\"Luminary Filming Tips,Vlog Captivation Secrets,Enthralling Video Creation,Stunning B-Roll Techniques,Engaging Lighting Methods,Intriguing Editing Strategies,Glowing Visual Storytelling\""
-thumbnail: https://www.lifewire.com/thmb/PhJb27m0Nxh6LtiIING__W0vBrg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/corinne-kutz-tMI2_-r5Nfo-unsplash-aec79963aac341289ac3bb16be99df9b.jpg
+thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa85251ef89317616bbcd9f8d8.jpg
 ---
 
 ## Luminous Techniques for Engaging Vlogs
@@ -30,7 +30,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -100,7 +100,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -170,7 +170,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -240,7 +240,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -354,7 +354,7 @@ You can also access the Creator Studio by clicking on your icon in the top right
 
 4\. Select the Subscribers option from the menu and wait for the list of the subscribers to appear on your screen. You'll be able to see a list of YouTube users that have subscribed to your channel.
 
-![Finding YouTube Subscribers ](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
+![Finding YouTube Subscribers](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
 
 Constantly checking the list of subscribers is a great way to keep track of new subscribers to your channel, which is important if you want to know how many new subscribers you got within a day or a week.
 
@@ -362,7 +362,7 @@ If you would like to go through a more detailed tutorial about how to see who yo
 
 If you’re using YouTube Studio, you can go to the **Recent subscribers** card on the Dashboard, and then click **SEE ALL** to check the list of the recent subscribers.
 
-![ See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
+![See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
 
 ## Part 2: How to See Which of Your Subscribers are the Most Popular
 
@@ -430,7 +430,7 @@ You can also access the Creator Studio by clicking on your icon in the top right
 
 4\. Select the Subscribers option from the menu and wait for the list of the subscribers to appear on your screen. You'll be able to see a list of YouTube users that have subscribed to your channel.
 
-![Finding YouTube Subscribers ](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
+![Finding YouTube Subscribers](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
 
 Constantly checking the list of subscribers is a great way to keep track of new subscribers to your channel, which is important if you want to know how many new subscribers you got within a day or a week.
 
@@ -438,7 +438,7 @@ If you would like to go through a more detailed tutorial about how to see who yo
 
 If you’re using YouTube Studio, you can go to the **Recent subscribers** card on the Dashboard, and then click **SEE ALL** to check the list of the recent subscribers.
 
-![ See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
+![See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
 
 ## Part 2: How to See Which of Your Subscribers are the Most Popular
 
@@ -506,7 +506,7 @@ You can also access the Creator Studio by clicking on your icon in the top right
 
 4\. Select the Subscribers option from the menu and wait for the list of the subscribers to appear on your screen. You'll be able to see a list of YouTube users that have subscribed to your channel.
 
-![Finding YouTube Subscribers ](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
+![Finding YouTube Subscribers](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
 
 Constantly checking the list of subscribers is a great way to keep track of new subscribers to your channel, which is important if you want to know how many new subscribers you got within a day or a week.
 
@@ -514,7 +514,7 @@ If you would like to go through a more detailed tutorial about how to see who yo
 
 If you’re using YouTube Studio, you can go to the **Recent subscribers** card on the Dashboard, and then click **SEE ALL** to check the list of the recent subscribers.
 
-![ See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
+![See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
 
 ## Part 2: How to See Which of Your Subscribers are the Most Popular
 
@@ -582,7 +582,7 @@ You can also access the Creator Studio by clicking on your icon in the top right
 
 4\. Select the Subscribers option from the menu and wait for the list of the subscribers to appear on your screen. You'll be able to see a list of YouTube users that have subscribed to your channel.
 
-![Finding YouTube Subscribers ](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
+![Finding YouTube Subscribers](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-community.jpg)
 
 Constantly checking the list of subscribers is a great way to keep track of new subscribers to your channel, which is important if you want to know how many new subscribers you got within a day or a week.
 
@@ -590,7 +590,7 @@ If you would like to go through a more detailed tutorial about how to see who yo
 
 If you’re using YouTube Studio, you can go to the **Recent subscribers** card on the Dashboard, and then click **SEE ALL** to check the list of the recent subscribers.
 
-![ See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
+![See YouTube Subscriber](https://images.wondershare.com/filmora/article-images/check-youtube-subscriber-in-youtube-studio.jpg)
 
 ## Part 2: How to See Which of Your Subscribers are the Most Popular
 
