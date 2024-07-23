@@ -1,7 +1,7 @@
 ---
 title: "A Vlogger's Guide To Camera Lenses for 2024"
-date: 2024-07-06T03:06:07.493Z
-updated: 2024-07-07T03:06:07.493Z
+date: 2024-07-22T22:22:20.483Z
+updated: 2024-07-23T22:22:20.483Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,9 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -78,6 +81,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -86,6 +92,9 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -101,12 +110,22 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -115,6 +134,9 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -157,3 +179,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-valorant-videos-with-impressive-thumbnails/"><u>[New] Elevating Your Valorant Videos with Impressive Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-video-brand-tips-for-great-youtube-banners/"><u>[New] Elevating Your Video Brand  Tips for Great YouTube Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-videos-reach-top-8-youtube-ranks-unveiled/"><u>[New] Elevating Your Video's Reach - Top 8 YouTube Ranks Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-presence-through-famebit-inspired-sponsorships/"><u>[New] Elevating Your YouTube Presence Through FameBit-Inspired Sponsorships</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-presence-with-customized-subtitles/"><u>[New] Elevating Your YouTube Presence with Customized Subtitles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-presence-with-strategic-banners/"><u>[New] Elevating Your YouTube Presence with Strategic Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-presence-with-strategic-post-publish-video-updates/"><u>[New] Elevating Your YouTube Presence with Strategic Post-Publish Video Updates</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-projects-with-enhancements/"><u>[New] Elevating Your YouTube Projects with Enhancements</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-youtube-creativity-ideal-concepts-and-themes-for-channels/"><u>[New] Elevating YouTube Creativity  Ideal Concepts and Themes for Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-youtube-prominence-with-expert-use-of-the-hub/"><u>[New] Elevating Youtube Prominence with Expert Use of the Hub</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-eliminate-camera-sway-no-tripods-allowed/"><u>[New] Eliminate Camera Sway  No Tripods, Allowed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-eliminate-youtube-these-10-mobile-app-alternatives-will-fill-the-void/"><u>[New] Eliminate YouTube? These 10 Mobile App Alternatives Will Fill the Void</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-eliminated-invisible-youtube-micro-videos/"><u>[New] Eliminated  Invisible YouTube Micro Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-eliminating-grey-edges-on-video-a-youtube-fix-guide/"><u>[New] Eliminating Grey Edges on Video  A YouTube Fix Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>[New] Eliminating Odd Shades  A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-10-sound-enhancers-across-os-platforms/"><u>[New] Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-10-volume-augmenters-for-all-os/"><u>[New] Elite 10 Volume Augmenters for All OS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-7-dslr-options-superior-for-professional-videography/"><u>[New] Elite 7 DSLR Options Superior for Professional Videography</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-alternative-edits-skip-youtube-not-just-content/"><u>[New] Elite Alternative Edits  Skip Youtube, Not Just Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-channel-analyzer-top-youtube-positioning-tool/"><u>[New] Elite Channel Analyzer  Top YouTube Positioning Tool</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-collection-of-online-video-grabbers-and-savers/"><u>[New] Elite Collection of Online Video Grabbers & Savers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-content-makers-top-paid-online-stars/"><u>[New] Elite Content Makers  Top Paid Online Stars</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-creator-hub-professional-pc-cutting-and-tunes/"><u>[New] Elite Creator Hub  Professional PC Cutting and Tunes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-equipment-showcasing-gameplay-innovations/"><u>[New] Elite Equipment  Showcasing Gameplay Innovations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-gamers-capturing-solutions/"><u>[New] Elite Gamers' Capturing Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-influencer-economy-leaders/"><u>[New] Elite Influencer Economy Leaders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastery-manual-downloading-hd-videos-on-todays-digital-landscapes/"><u>[New] In 2024, Mastery Manual  Downloading HD Videos on Today's Digital Landscapes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-streamlining-content-tweeting-videos-on-snapchat/"><u>[New] In 2024, Streamlining Content  Tweeting Videos on Snapchat</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-instagram-to-tik-tok-a-social-pivot-blueprint/"><u>[New] Instagram to Tik Tok - A Social Pivot Blueprint</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-which-frame-rate-is-ideal-analyzing-benefits-of-30fps-and-60fps/"><u>[New] Which Frame Rate Is Ideal? Analyzing Benefits of 30Fps and 60Fps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-audio-adaptation-innovations-for-youtubers-videos/"><u>[Updated] Audio Adaptation Innovations for YouTubers' Videos</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-8-best-tools-to-make-animated-photo-easily/"><u>2024 Approved 8 Best Tools to Make Animated Photo Easily</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/connectivity-and-convenience-integrating-zoom-into-your-xbox-experience-for-2024/"><u>Connectivity & Convenience  Integrating Zoom Into Your Xbox Experience for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-creating-stunning-3d-text-with-ps/"><u>In 2024, Creating Stunning 3D Text with PS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-flipping-and-tilting-photos-perfectly/"><u>In 2024, Mastering iPhone  Flipping & Tilting Photos Perfectly</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-how-to-apply-video-filters/"><u>Updated In 2024, How to Apply Video Filters</u></a></li>
+</ul></div>

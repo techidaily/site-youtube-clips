@@ -1,7 +1,7 @@
 ---
 title: "A Simple Approach to YouTube Statistics Review"
-date: 2024-07-06T03:05:58.603Z
-updated: 2024-07-07T03:05:58.603Z
+date: 2024-07-22T22:22:09.847Z
+updated: 2024-07-23T22:22:09.847Z
 tags:
   - ai video
   - ai youtube
@@ -41,8 +41,15 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -51,6 +58,9 @@ In order to check which of your videos are performing the best, click on **Watch
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -65,6 +75,9 @@ In the watch time reports for individual videos, you will be able to see data on
 
 Click here for more tips on [increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -89,12 +102,18 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,3 +130,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-discover-the-art-of-making-captivating-discord-profile-pictures/"><u>[New] 2024 Approved  Discover the Art of Making Captivating Discord Profile Pictures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dslrs-place-among-mirrorless-cameras-for-videos/"><u>[New] DSLR's Place Among Mirrorless Cameras for Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dual-platform-dominance-how-to-captivate-a-wider-audience-via-youtube-and-twitch-multistreaming/"><u>[New] Dual Platform Dominance  How to Captivate a Wider Audience via Youtube & Twitch Multistreaming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-decibels-the-best-background-sounds-for-yt-shorts/"><u>[New] Dynamic Decibels  The Best Background Sounds for YT Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-descriptor-constructor/"><u>[New] Dynamic Descriptor Constructor</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-duo-shots-perfecting-youtube-video-splitting/"><u>[New] Dynamic Duo Shots  Perfecting YouTube Video Splitting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-lighting-elevating-video-aesthetics/"><u>[New] Dynamic Lighting  Elevating Video Aesthetics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-slideshows-embedding-youtube-content/"><u>[New] Dynamic Slideshows  Embedding YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-thumbnails-captivating-vistas/"><u>[New] Dynamic Thumbnails  Captivating Vistas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-videos-made-easy-with-best-stabilizers/"><u>[New] Dynamic Videos Made Easy with Best Stabilizers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-website-content-incorporating-youtube-playlists/"><u>[New] Dynamic Website Content  Incorporating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>[New] Earn Big on YouTube Shorts  Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-big-on-youtube-via-cp2024-step-by-step-approach/"><u>[New] Earn Big on YouTube via CP2024  Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-more-maximizing-income-through-youtube-mobile-advertising/"><u>[New] Earn More  Maximizing Income Through YouTube Mobile Advertising</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-on-youtube-decoding-recent-policy-changes/"><u>[New] Earn on YouTube  Decoding Recent Policy Changes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-while-playing-games-online/"><u>[New] Earn While Playing Games Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-while-you-entertain-the-content-creators-guide/"><u>[New] Earn While You Entertain  The Content Creator's Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits/"><u>[New] Earn Wisely  The Simple Triad Method for Scrutinizing YouTube Profits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-as-a-video-game-geek/"><u>[New] Earning as a Video Game Geek</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-at-age-ten-the-extraordinary-financial-rise-of-ryan-kaji/"><u>[New] Earning at Age Ten  The Extraordinary Financial Rise of Ryan Kaji</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-in-a-world-dominated-by-youtubers/"><u>[New] Earning in a World Dominated by YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>[New] Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>[New] Earning on YouTube  A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-potential-for-creators-in-youtube-ads/"><u>[New] Earning Potential for Creators in YouTube Ads?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-potential-in-beauty-blogging/"><u>[New] Earning Potential in Beauty Blogging</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-potential-in-gaming-videos/"><u>[New] Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-power-through-engagement-ajays-success-on-youtube-monetization/"><u>[New] Earning Power Through Engagement  Ajay’s Success on YouTube Monetization</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-strategies-for-successful-youtube-shorts-what-you-need-and-how-much/"><u>[New] Earning Strategies for Successful Youtube Shorts  What You Need & How Much?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-through-youtube-an-overview/"><u>[New] Earning Through YouTube  An Overview</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-through-youtube-navigating-revenue-without-ads/"><u>[New] Earning Through YouTube  Navigating Revenue Without Ads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-through-youtube-partnerships/"><u>[New] Earning Through YouTube Partnerships</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earnings-breakdown-youtubes-adsense-payments-by-thousands-of-views/"><u>[New] Earnings Breakdown  Youtube's AdSense Payments by Thousands of Views</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earnings-epicenter-tech-gaming-on-youtube/"><u>[New] Earnings Epicenter  Tech Gaming on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>[New] Earnings Escalation  Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earnings-expansion-on-glamour-channels/"><u>[New] Earnings Expansion on Glamour Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-video-production-the-audio-edition-on-youtube/"><u>[Updated] 2024 Approved  Elevate Video Production  The Audio Edition on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-uniting-obs-and-zoom-a-compreehensive-video-guide-for-2024/"><u>[Updated] Uniting OBS and Zoom  A Compreehensive Video Guide for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/10-advanced-audio-separation-programs-for-video-content-for-2024/"><u>10 Advanced Audio Separation Programs for Video Content for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-code-of-conduct-for-youtube-creators/"><u>2024 Approved  Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-expert-guide-to-tiktoks-must-have-elements/"><u>2024 Approved  Expert Guide to TikTok's Must-Have Elements</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-expert-insights-efficiently-attaching-subtitles-to-mp4s/"><u>2024 Approved  Expert Insights  Efficiently Attaching Subtitles to MP4s</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capture-every-moment-essential-ways-for-google-meet-recordings-for-2024/"><u>Capture Every Moment  Essential Ways for Google Meet Recordings for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/effective-strategies-for-mov-video-recording-in-windows-11-for-2024/"><u>Effective Strategies for MOV Video Recording in Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-screen-surfing-simplified-navigate-with-netflixs-pip/"><u>In 2024, Screen Surfing Simplified  Navigate with Netflix's PIP</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/innovative-metaverse-humor-generating-unique-memes-for-2024/"><u>Innovative Metaverse Humor  Generating Unique Memes for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/optimizing-youtube-content-for-instagram-platforms-for-2024/"><u>Optimizing YouTube Content for Instagram Platforms for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/y-showlines-top-30-engaging-recipe-broadcast-names-for-2024/"><u>Savory Showlines  Top 30 Engaging Recipe Broadcast Names for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/the-best-free-face-generator-websites-to-create-synthetic-identities-for-2024/"><u>The Best Free Face Generator Websites to Create Synthetic Identities for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-best-value-in-cloud-pricing-a-comprehensive-list/"><u>The Best Value in Cloud Pricing  A Comprehensive List</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeos-no-cost-tools-elevate-your-video-edits/"><u>Vimeo's No-Cost Tools  Elevate Your Video Edits</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-moto-e13-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Moto E13 Device</u></a></li>
+</ul></div>

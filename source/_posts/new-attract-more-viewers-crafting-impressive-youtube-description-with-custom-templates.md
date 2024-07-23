@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Attract More Viewers  Crafting Impressive Youtube Description with Custom Templates\""
-date: 2024-05-25T19:59:37.422Z
-updated: 2024-05-26T19:59:37.422Z
+date: 2024-07-22T21:26:28.785Z
+updated: 2024-07-23T21:26:28.785Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,9 @@ What are YouTube descriptions? There are two types: video description and channe
 
 ### YouTube Video Description
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![example of a video description](https://images.wondershare.com/filmora/article-images/youtube-description-templates-video-description-sample.JPG)
 
 The video description is the text below each video. Adding descriptions to your videos is not required. However, if you want success on YouTube, we highly recommend paying attention to video descriptions. It will give viewers more context about the video and will convince them to watch it.
@@ -50,6 +53,9 @@ YouTube is not only telling people that they should watch your content. It also 
 6. Add a call-to-action to remind your viewers to like and subscribe.
 7. Note that only the first 200 characters will appear on the screen. Users need to click the "Show More" button to view the rest. So put what's most important in the first 200 characters.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Benefits of Using a YouTube Description Templates
 
 If you have a business or something on the internet that needs promotion, you think of SEO (Search Engine Optimization.) It makes the material appear more often and higher on searches.
@@ -62,6 +68,9 @@ YouTube descriptions play a huge part in SEO. And description templates make wri
 
 Now, you are well aware of the importance of YouTube descriptions. That may have made you feel more pressured to write fantastic ones. Here are 5 YouTube description templates you can use so it would not be much of a problem.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. YouTube Video Description About New Products
 
 _The \[latest version of your product\] is HERE! Download and Try \[latest version of your product\] now: \[Download link\]_
@@ -96,6 +105,9 @@ _\[Timestamps\]_
 
 Use this template when making an informative video. It could be how-tos, tutorials, or other educational stuff.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. YouTube Video Description for Funneling Viewers Into Your Website
 
 _This video will show you a preview of \[topic.\] If you're interested to learn more about this and what we do, please visit us at \[website link.\] You can also reach out to us at \[contact information.\]_
@@ -104,6 +116,9 @@ Please note that this is not the whole description. Rather, it is only the first
 
 **Tip:** Use URL shorteners if your website URL is too long. Remember that you only have 200 characters to use. So every character you can remove counts.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. YouTube Video Descriptions for How-To Videos With Products
 
 _Hello! Today I'm going to teach you how to \[topic.\] I regularly post things like this. So please subscribe and turn on your notifications to know when I post new content._
@@ -126,6 +141,9 @@ _Instagram: \[Your Instagram account link\]_
 
 Use this template for how-to videos wherein you use or mention your products. For example, the makeup products you used in a makeup tutorial video.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### 5\. YouTube Video Description for Travel Vlogs
 
 _Join me as I explore \[location\], a \[more information about the location.\] To know more about this place, you can visit: \[website for the location.\]_
@@ -190,6 +208,9 @@ _Hi! I'm \[Your Name\] of the \[Your channel name\] YouTube Channel._
 
  _If you are interested in learning some outfit ideas, hit the Subscribe button. Also, turn on your notification, so you don't miss a video!_
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 5\. YouTube Channel Description Template for Couples
 
 Some couples enjoy sharing their daily lives with their followers through vlogs. Are you among them? You can use this template if that is the case.
@@ -202,6 +223,9 @@ _Welcome to our YouTube channel. We are two people in love who also love sharing
 
  _\[Insert your socials.\]_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## \[Bonus\] Create Awesome YouTube Videos With Filmora Video Editor
 
 Of course, good video and channel descriptions are useless if your videos aren't that good. Thus, we recommend using a powerful video editor to ensure your videos are high-quality. One of your best options is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -214,6 +238,9 @@ Of course, good video and channel descriptions are useless if your videos aren't
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube descriptions are crucial to the success of your YouTube channel. If you can't write a good one by yourself, don't worry. You can use YouTube description [**templates**](https://tools.techidaily.com/wondershare/filmora/download/) to make it easier.
@@ -222,6 +249,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora editing videos](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
@@ -244,6 +274,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Uniting Creative Minds: A Guide to Selecting YouTube Pairings
 
 # How to Find YouTube Collaboration Partners?
@@ -349,6 +382,9 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -384,6 +420,10 @@ The following is a guide to **YouTube collaborations** \- specifically, it's a l
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## Tips From Tech YouTuber Roberto Blake
 
 **[Roberto Blake](https://www.youtube.com/channel/UCovtFObhY9NypXcyHxAS7-Q)** is a YouTuber who does tech reviews and graphic design tutorials in addition to providing great information about being a creative entrepreneur. He has done several collab videos and has a lot of advice about how to find potential partners. Here are 3 of his biggest tips:
@@ -400,6 +440,9 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -452,8 +495,140 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Excellent YouTube Video Editor Always Save Your Time
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
+
+1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
+   1. _[Approach people you already have a relationship with](#askfriends)_  
+   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
+   3. _[Create quality content consistently](#qualitycontent)_
+2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
+   1. _[Use the person’s name when you contact them](#usename)_  
+   2. _[Keep it simple](#simple)_  
+   3. _[Have ideas](#ideas)_
+3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
+   1. _[Networking is important in finding collab partners](#networking)_  
+   2. _[Don’t stray too far from your other content](#dontstray)_  
+   3. _[Thank the people you work with in your videos](#thankpeople)_
+4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
+   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
+   2. _[Ask questions](#ask)_  
+   3. _[Use Twitter](#twitter)_
+
+ Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+## Tips From Tech YouTuber Roberto Blake
+
+**[Roberto Blake](https://www.youtube.com/channel/UCovtFObhY9NypXcyHxAS7-Q)** is a YouTuber who does tech reviews and graphic design tutorials in addition to providing great information about being a creative entrepreneur. He has done several collab videos and has a lot of advice about how to find potential partners. Here are 3 of his biggest tips:
+
+#### 1\. Approach people you already have a relationship with
+
+This could mean friends, people you have met at events like VidCon, or people who are subscribed to your channel. It is easier for someone to want to collaborate with you if they feel like they know you.
+
+#### **2\. Think about what your potential partner could have to offer your existing subscribers.**
+
+People sub to Roberto for tech advice, for example, so it makes sense for him to collaborate with people who have insights into technology. Collaborations should never be all about bringing in new subs – make your videos for the people who already watch your channel.
+
+#### **3\. Create quality content consistently.**
+
+If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
+
+## Tips From YouTube Guru Nich Nimmin
+
+This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
+
+#### **1\. Use the person’s name when you contact them.**
+
+This might seem obvious, but it is an easy mistake to make. If you send someone an email where you don’t use their name (maybe you just say ‘hey’) it will seem like you aren’t interested in them. Talking about a video of theirs you like can also help show your interest in them as a creator.
+
+#### **2\. Keep it simple.**
+
+When you’re approaching someone for the first time, don’t overwhelm them with a long email. Limit yourself to around two paragraphs.
+
+#### **3\. Have ideas.**
+
+Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
+
+**[Amy Schmittauer](https://www.youtube.com/user/savvysexysocial/featured)** of Savvy Sexy Social does vlogs, lifestyle videos, and provides tips on being a freelancer. After doing several collabs in one week, she posted this video about how collaborations work best and how you should approach people you might want to work with.
+
+#### **1\.** **Networking is important in finding collab partners.**
+
+Be nice to other creators when you meet them, offline or online, and build real relationships. Amy got to collaborate with **[Marques Brownlee](https://www.youtube.com/user/marquesbrownlee)** (MKBHD) even though she had not met him before because **[Austin Evans](https://www.youtube.com/user/duncan33303)** \- who she had built a friendship with – vouched for her with him. When you are networking, think beyond what the immediate payoff could be.
+
+#### **2\. Don’t stray too far from your other content.**
+
+Aim to make your collab videos similar, content-wise, to the other videos on your channel. That way the new viewers you get from having the guest YouTuber in your video will be able to make an informed decision about whether they want to subscribe to you.
+
+#### **3\. Thank the people you work with in your videos.**
+
+If you appeared in someone else’s video, you would probably appreciate it if they thanked you for being there, told their viewers to go check out your channel, and provided a link for them to do so. So, when you host someone else in one of your videos, that’s the kind of treatment you should give them. If you don’t, then the next person you want to collaborate with will see that and probably won’t want to work with you.
+
+ _Collab advice starts at around 2:10._
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
+## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
+
+**[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
+
+#### **1\. Don’t approach other YouTubers as a ‘fan’.**
+
+If you want to be friends and collab partners, talk to other YouTubers as if you are their equal (which you are!). If you want to work with someone it’s probably because you like their videos, and there’s nothing wrong with saying so. Being all ‘omg, I love you, please subscribe to me too!’ isn’t likely to lead to a collab, though.
+
+#### **2\. Ask questions.**
+
+If you’re just trying to break the ice with someone, it is a good idea to as them a question – potentially about YouTube or one of their videos. This will give them something to engage with, and it’s also a good way to let them know you’re a YouTuber too.
+
+#### **3\. Use Twitter.**
+
+Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an easy place to casually introduce yourself and ask questions.
+
+ Do you have any of your advice on YouTube collaborations?
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Excellent YouTube Video Editor Always Save Your Time
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -491,6 +666,9 @@ The following is a guide to **YouTube collaborations** \- specifically, it's a l
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Tips From Tech YouTuber Roberto Blake
 
 **[Roberto Blake](https://www.youtube.com/channel/UCovtFObhY9NypXcyHxAS7-Q)** is a YouTuber who does tech reviews and graphic design tutorials in addition to providing great information about being a creative entrepreneur. He has done several collab videos and has a lot of advice about how to find potential partners. Here are 3 of his biggest tips:
@@ -541,6 +719,9 @@ If you appeared in someone else’s video, you would probably appreciate it if t
 
  _Collab advice starts at around 2:10._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -563,113 +744,9 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
-
-1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
-   1. _[Approach people you already have a relationship with](#askfriends)_  
-   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
-   3. _[Create quality content consistently](#qualitycontent)_
-2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
-   1. _[Use the person’s name when you contact them](#usename)_  
-   2. _[Keep it simple](#simple)_  
-   3. _[Have ideas](#ideas)_
-3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
-   1. _[Networking is important in finding collab partners](#networking)_  
-   2. _[Don’t stray too far from your other content](#dontstray)_  
-   3. _[Thank the people you work with in your videos](#thankpeople)_
-4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
-   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
-   2. _[Ask questions](#ask)_  
-   3. _[Use Twitter](#twitter)_
-
- Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
-
-## Tips From Tech YouTuber Roberto Blake
-
-**[Roberto Blake](https://www.youtube.com/channel/UCovtFObhY9NypXcyHxAS7-Q)** is a YouTuber who does tech reviews and graphic design tutorials in addition to providing great information about being a creative entrepreneur. He has done several collab videos and has a lot of advice about how to find potential partners. Here are 3 of his biggest tips:
-
-#### 1\. Approach people you already have a relationship with
-
-This could mean friends, people you have met at events like VidCon, or people who are subscribed to your channel. It is easier for someone to want to collaborate with you if they feel like they know you.
-
-#### **2\. Think about what your potential partner could have to offer your existing subscribers.**
-
-People sub to Roberto for tech advice, for example, so it makes sense for him to collaborate with people who have insights into technology. Collaborations should never be all about bringing in new subs – make your videos for the people who already watch your channel.
-
-#### **3\. Create quality content consistently.**
-
-If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
-
-## Tips From YouTube Guru Nich Nimmin
-
-This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
-
-#### **1\. Use the person’s name when you contact them.**
-
-This might seem obvious, but it is an easy mistake to make. If you send someone an email where you don’t use their name (maybe you just say ‘hey’) it will seem like you aren’t interested in them. Talking about a video of theirs you like can also help show your interest in them as a creator.
-
-#### **2\. Keep it simple.**
-
-When you’re approaching someone for the first time, don’t overwhelm them with a long email. Limit yourself to around two paragraphs.
-
-#### **3\. Have ideas.**
-
-Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
-
-## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
-
-**[Amy Schmittauer](https://www.youtube.com/user/savvysexysocial/featured)** of Savvy Sexy Social does vlogs, lifestyle videos, and provides tips on being a freelancer. After doing several collabs in one week, she posted this video about how collaborations work best and how you should approach people you might want to work with.
-
-#### **1\.** **Networking is important in finding collab partners.**
-
-Be nice to other creators when you meet them, offline or online, and build real relationships. Amy got to collaborate with **[Marques Brownlee](https://www.youtube.com/user/marquesbrownlee)** (MKBHD) even though she had not met him before because **[Austin Evans](https://www.youtube.com/user/duncan33303)** \- who she had built a friendship with – vouched for her with him. When you are networking, think beyond what the immediate payoff could be.
-
-#### **2\. Don’t stray too far from your other content.**
-
-Aim to make your collab videos similar, content-wise, to the other videos on your channel. That way the new viewers you get from having the guest YouTuber in your video will be able to make an informed decision about whether they want to subscribe to you.
-
-#### **3\. Thank the people you work with in your videos.**
-
-If you appeared in someone else’s video, you would probably appreciate it if they thanked you for being there, told their viewers to go check out your channel, and provided a link for them to do so. So, when you host someone else in one of your videos, that’s the kind of treatment you should give them. If you don’t, then the next person you want to collaborate with will see that and probably won’t want to work with you.
-
- _Collab advice starts at around 2:10._
-
-## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
-
-**[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
-
-#### **1\. Don’t approach other YouTubers as a ‘fan’.**
-
-If you want to be friends and collab partners, talk to other YouTubers as if you are their equal (which you are!). If you want to work with someone it’s probably because you like their videos, and there’s nothing wrong with saying so. Being all ‘omg, I love you, please subscribe to me too!’ isn’t likely to lead to a collab, though.
-
-#### **2\. Ask questions.**
-
-If you’re just trying to break the ice with someone, it is a good idea to as them a question – potentially about YouTube or one of their videos. This will give them something to engage with, and it’s also a good way to let them know you’re a YouTuber too.
-
-#### **3\. Use Twitter.**
-
-Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an easy place to casually introduce yourself and ask questions.
-
- Do you have any of your advice on YouTube collaborations?
-
-## Excellent YouTube Video Editor Always Save Your Time
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -693,3 +770,65 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-browser-fb-vid-extractor-kit/"><u>[New] Master Browser FB Vid Extractor Kit</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nlock-viewers-interest-with-these-10-yt-reaction-strategies-for-2024/"><u>[New] Unlock Viewers' Interest with These 10 YT Reaction Strategies for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-video-brand-tips-for-great-youtube-banners/"><u>[Updated] Elevating Your Video Brand  Tips for Great YouTube Banners</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-10-best-free-photo-collage-apps-for-iphone/"><u>[Updated] In 2024, 10 Best FREE Photo Collage Apps for iPhone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-melodies-meet-movements-creating-tiktok-videos-with-music/"><u>[Updated] In 2024, Melodies Meet Movements  Creating TikTok Videos with Music</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-visual-voyages-the-most-motivating-instagram-images/"><u>[Updated] In 2024, Visual Voyages  The Most Motivating Instagram Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-making-history-a-present-using-camera-roll-in-snaps-for-2024/"><u>[Updated] Making History a Present - Using Camera Roll in Snaps for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-aesthetic-assemblies-engaging-collages-for-all-ages/"><u>2024 Approved  Aesthetic Assemblies  Engaging Collages for All Ages</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-astonishing-critique-and-substitutes-guide/"><u>2024 Approved  Astonishing Critique & Substitutes Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-practices-the-8-truly-effective-promotion-techniques/"><u>2024 Approved  Best Practices  The 8 Truly Effective Promotion Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-practices-for-youtube-outro-design/"><u>2024 Approved  Best Practices for YouTube Outro Design</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>2024 Approved  Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-practices-in-youtube-keyword-selection/"><u>2024 Approved  Best Practices in YouTube Keyword Selection</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-practices-in-yt-thumbnail-sizing/"><u>2024 Approved  Best Practices in YT Thumbnail Sizing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-screen-grabber-gadgets-for-youtube-channels/"><u>2024 Approved  Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-selection-turn-your-videos-into-text-fast/"><u>2024 Approved  Best Selection  Turn Your Videos Into Text Fast</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-sound-transforming-apps-for-youtube-vloggers/"><u>2024 Approved  Best Sound Transforming Apps for YouTube Vloggers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-starting-points-on-youtube-top-16-opener-list-for-growth/"><u>2024 Approved  Best Starting Points on YouTube  Top 16 Opener List for Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-stream-tech-innovative-hardware-and-software-guide-for-youtubers/"><u>2024 Approved  Best Stream Tech  Innovative Hardware & Software Guide for Youtubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-streaming-setup-leading-livestream-hardware-and-software-guide/"><u>2024 Approved  Best Streaming Setup  Leading Livestream Hardware & Software Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-student-focused-historical-yt-series/"><u>2024 Approved  Best Student-Focused Historical YT Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-tales-for-youtube-triumph-top-3-strategies/"><u>2024 Approved  Best Tales for YouTube Triumph  Top 3 Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-video-apps-review-youtube-iphones-and-androids/"><u>2024 Approved  Best Video Apps Review  YouTube iPhones & Androids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-video-experts-in-photo-song-collaboration/"><u>2024 Approved  Best Video Experts in Photo-Song Collaboration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-video-makers-with-music-and-photos/"><u>2024 Approved  Best Video Makers with Music and Photos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-webcams-unveiled-a-youtube-livestreamers-handbook/"><u>2024 Approved  Best Webcams Unveiled  A YouTube Livestreamer's Handbook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-youtube-live-streaming-software-and-hardware-you-should-know/"><u>2024 Approved  Best YouTube Live Streaming Software and Hardware You Should Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-youtube-livestreaming-screen-recorders/"><u>2024 Approved  Best YouTube Livestreaming Screen Recorders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-youtube-shorts-video-editor-tools-for-ios-and-android-devices/"><u>2024 Approved  Best YouTube Shorts Video Editor Tools for iOS & Android Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-youtube-video-reaction-ideas/"><u>2024 Approved  Best YouTube Video Reaction Ideas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beware-the-allure-of-sham-youtube-audience/"><u>2024 Approved  Beware the Allure of Sham YouTube Audience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>2024 Approved  Beyond Boundaries  Recognizing Leading Women in Digital Storytelling</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-popularity-youtube-earnings-for-1m-viewer-base/"><u>2024 Approved  Beyond Popularity – YouTube Earnings for 1M Viewer Base</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-algorithm-a-look-at-27-non-youtube-platforms/"><u>2024 Approved  Beyond The Algorithm  A Look at 27 Non-YouTube Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>2024 Approved  Beyond the Basics  Advanced Techniques for Improved Recordings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-buffering-a-ranked-list-of-top-27-video-streamers-excluding-youtube/"><u>2024 Approved  Beyond the Buffering  A Ranked List of Top 27 Video Streamers Excluding YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-home-page-top-27-competitors-to-youtubes-dominance/"><u>2024 Approved  Beyond the Home Page  Top 27 Competitors to YouTube's Dominance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-leading-films-hidden-cinema-treasures/"><u>2024 Approved  Beyond the Leading Films  Hidden Cinema Treasures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-tubes-the-ultimate-video-share-sites/"><u>2024 Approved  Beyond Tubes  The Ultimate Video Share Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-channel-appeal-with-free-professional-banner-designs/"><u>2024 Approved  Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-rise-above-the-rest-one-person-podcast-mastery/"><u>2024 Approved  Rise Above the Rest  One-Person Podcast Mastery</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-10-video-cutter-tools-for-efficient-content-editing/"><u>2024 Approved  Top 10 Video Cutter Tools for Efficient Content Editing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/best-practices-for-capturing-facecam-footage-for-2024/"><u>Best Practices for Capturing Facecam Footage for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-iphone-12-pro-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From iPhone 12 Pro Max</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-xiaomi-13-ultra-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Xiaomi 13 Ultra Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-itel-a70-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/if-the-phenomenon-of-augmented-reality-fascinates-you-consider-entering-into-the-gaming-world-with-the-best-ar-games-you-will-ever-come-across-for-2024/"><u>If the Phenomenon of Augmented Reality Fascinates You, Consider Entering Into the Gaming World with the Best AR Games You Will Ever Come Across for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-iphone-6s-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On iPhone 6s</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-finding-the-most-economical-streaming-apps-for-your-phone/"><u>In 2024, Finding the Most Economical Streaming Apps for Your Phone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-macbook-air-vs-pro-evaluating-the-m1-advantage/"><u>In 2024, MacBook Air Vs. Pro  Evaluating the M1 Advantage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-masterful-plot-crafting-in-film-history/"><u>In 2024, Masterful Plot Crafting in Film History</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-minisnapper-screen-recorder-feedback/"><u>In 2024, MiniSnapper Screen Recorder Feedback</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-the-best-asmr-microphones-you-should-try/"><u>In 2024, The Best ASMR Microphones You Should Try</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inside-the-directors-suite-powerdirector-2024-deep-dive/"><u>Inside the Director's Suite  PowerDirector 2024 Deep Dive</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/legal-chants-for-clarity-top-10-downloads-guide-for-2024/"><u>Legal Chants for Clarity  Top 10 Downloads Guide for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-uncover-the-best-ways-to-download-instagram-audio/"><u>New In 2024, Uncover the Best Ways to Download Instagram Audio</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-oculus-errors-on-ws11wc10-systems/"><u>Troubleshooting Oculus Errors on WS11/WC10 Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Infinix Smart 8 Plus | Dr.fone</u></a></li>
+</ul></div>

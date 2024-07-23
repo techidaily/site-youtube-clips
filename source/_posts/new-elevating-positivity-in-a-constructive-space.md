@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevating Positivity in a Constructive Space"
-date: 2024-05-25T20:13:02.837Z
-updated: 2024-05-26T20:13:02.837Z
+date: 2024-07-22T21:37:17.049Z
+updated: 2024-07-23T21:37:17.049Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Elevating Positivity in a Constructive Space"
 excerpt: "This Article Describes [New] Elevating Positivity in a Constructive Space"
 keywords: "Positive Workspace,Elevate Optimism,Brighten Team Spaces,Constructive Positivity,Uplifting Collaboration,Creative Environments,Inspiring Group Dynamics"
-thumbnail: https://www.lifewire.com/thmb/0ReomQ5wrb7WSffrn0hDnZKzgPU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5-things-to-consider-before-buying-a-gaming-laptop-5235493-145a8c941b9f46e99d9a90bdee387893.jpg
+thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1ab1cb47d3f2f93a3bce610c.jpg
 ---
 
 ## Elevating Positivity in a Constructive Space
@@ -26,6 +26,9 @@ thumbnail: https://www.lifewire.com/thmb/0ReomQ5wrb7WSffrn0hDnZKzgPU=/400x300/fi
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -106,6 +109,23 @@ Follow @Richard Bennett
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -132,6 +152,9 @@ Follow @Richard Bennett
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -172,6 +195,9 @@ Follow @Richard Bennett
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -214,6 +240,9 @@ It was formerly known as YouTube Red three years ago when it first launched. It 
 
 02 [Is YouTube Premium worth subscribing to?](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is YouTube Premium?
 
 This streaming service was initially launched in 2014 and was later rebranded in 2018 as YouTube Premium. It includes YouTube music and other features that Google added to it. You can download content, perform background playback and even get access to YouTube original content. Note that this came at a cost as its price was raised. But what remains is that you get value for your money.
@@ -323,6 +352,10 @@ It was formerly known as YouTube Red three years ago when it first launched. It 
 
 02 [Is YouTube Premium worth subscribing to?](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## What is YouTube Premium?
 
 This streaming service was initially launched in 2014 and was later rebranded in 2018 as YouTube Premium. It includes YouTube music and other features that Google added to it. You can download content, perform background playback and even get access to YouTube original content. Note that this came at a cost as its price was raised. But what remains is that you get value for your money.
@@ -424,6 +457,9 @@ Despite all the reasons to subscribe to YouTube Premium, it still needs a minor 
 
 It was formerly known as YouTube Red three years ago when it first launched. It brings to your screen tones of perks for better viewing. However, the service isn't still widely known, and most people are on the verge of understanding what is entailed in the subscription. Most YouTube premium subscribers attest that the service is of value and are even relieved of the constant ads in the Free version. Dive into the article for more insights.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![youtube premium subscriber](https://images.wondershare.com/filmora/article-images/2021/youtube-premium-subscription-1.png)
 
 #### In this article
@@ -495,6 +531,9 @@ YouTube Premium subscribers think it's the better choice. For one, if you like e
 * You can also change your language if it presents a foreign language video and description. Just click on the "Language" button on the page.
 * Finally, access and play any YouTube premium video virtually from the country you switched to.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Is YouTube Premium worth subscribing to?
 
 Even with the lack of YouTube Premium annual subscription, it still beats all odds to subscribe to this streaming service.
@@ -525,6 +564,9 @@ Despite all the reasons to subscribe to YouTube Premium, it still needs a minor 
 * This streaming service lacks some extras like rentals and charged station subscriptions. Other features like "lyrics" to the songs have also not been catered for. Likewise, some extra information like the title or genre of the video you watch is not included. These small extras could go a long way if they were to be added.
 * YouTube Premium also seems to pay attention to celebrities other than YouTubers. Most originals are not exclusive to Premium subscribers, while you can watch them with ads on a free account.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 ● Amidst the many YouTube subscriptions, YouTube Premium has come a long way. Additionally, it hasn't covered all the countries just yet. However, it has eliminated the presence of annoying ads that are prominent with the free YouTube service. More so, you get free access to Google Play Music, among other added values. Despite those, the app still needs some improvements in its services to incorporate YouTube Premium subscribers in its walk fully.
@@ -533,6 +575,9 @@ Despite all the reasons to subscribe to YouTube Premium, it still needs a minor 
 
 It was formerly known as YouTube Red three years ago when it first launched. It brings to your screen tones of perks for better viewing. However, the service isn't still widely known, and most people are on the verge of understanding what is entailed in the subscription. Most YouTube premium subscribers attest that the service is of value and are even relieved of the constant ads in the Free version. Dive into the article for more insights.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube premium subscriber](https://images.wondershare.com/filmora/article-images/2021/youtube-premium-subscription-1.png)
 
 #### In this article
@@ -541,6 +586,14 @@ It was formerly known as YouTube Red three years ago when it first launched. It 
 
 02 [Is YouTube Premium worth subscribing to?](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## What is YouTube Premium?
 
 This streaming service was initially launched in 2014 and was later rebranded in 2018 as YouTube Premium. It includes YouTube music and other features that Google added to it. You can download content, perform background playback and even get access to YouTube original content. Note that this came at a cost as its price was raised. But what remains is that you get value for your money.
@@ -604,6 +657,9 @@ YouTube Premium subscribers think it's the better choice. For one, if you like e
 * You can also change your language if it presents a foreign language video and description. Just click on the "Language" button on the page.
 * Finally, access and play any YouTube premium video virtually from the country you switched to.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is YouTube Premium worth subscribing to?
 
 Even with the lack of YouTube Premium annual subscription, it still beats all odds to subscribe to this streaming service.
@@ -653,3 +709,41 @@ Despite all the reasons to subscribe to YouTube Premium, it still needs a minor 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-deciphering-instagrams-video-snippet-size/"><u>[New] 2024 Approved  Deciphering Instagram's Video Snippet Size</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-video-stock-investment-guides/"><u>[Updated] Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-vids-summary-uncovered/"><u>[Updated] Essential Vids Summary Uncovered</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-websites-for-youtube-preview-creation-tools/"><u>[Updated] Essential Websites for YouTube Preview Creation Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-beauty-influencers-10-creators-to-watch/"><u>[Updated] Essential YouTube Beauty Influencers  10 Creators to Watch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-end-screen-templates-for-content-makers/"><u>[Updated] Essential YouTube End Screen Templates for Content Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-marketing-techniques-ranked-from-best-to-worst/"><u>[Updated] Essential YouTube Marketing Techniques – Ranked From Best to Worst</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-news-outlets-your-ultimate-guide/"><u>[Updated] Essential YouTube News Outlets  Your Ultimate Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-news-sources-list/"><u>[Updated] Essential YouTube News Sources List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-subscriptions-for-economic-updates/"><u>[Updated] Essential YouTube Subscriptions for Economic Updates</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-to-webm-video-transformers/"><u>[Updated] Essential YouTube-to-WebM Video Transformers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essentials-checklist-what-you-must-know-before-sharing-4k-videos-on-youtube/"><u>[Updated] Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essentials-for-efficient-youtube-content-trimming/"><u>[Updated] Essentials for Efficient YouTube Content Trimming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essentials-of-youtube-mastery-free-online-course-series/"><u>[Updated] Essentials of YouTube Mastery  Free Online Course Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-ethical-approaches-to-extract-and-convert-youtube-videos/"><u>[Updated] Ethical Approaches to Extract and Convert YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evaluating-dailymotion-vs-youtube-profitability/"><u>[Updated] Evaluating Dailymotion vs YouTube Profitability</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evaluating-earnings-the-effective-3-step-process-for-youtube-financial-analysis/"><u>[Updated] Evaluating Earnings  The Effective 3-Step Process for YouTube Financial Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evaluating-mr-beasts-fortune/"><u>[Updated] Evaluating Mr. Beast’s Fortune</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evaluating-mr-beasts-monetary-world/"><u>[Updated] Evaluating Mr. Beast's Monetary World</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>[Updated] Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-evasion-techniques-for-youtube-bans/"><u>[Updated] Evasion Techniques for YouTube Bans</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-every-creators-guide-to-youtube-revenue/"><u>[Updated] Every Creator's Guide to YouTube Revenue</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-hot-dish-discoveries-on-tiktok/"><u>[Updated] In 2024, Hot Dish Discoveries on TikTok</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-isolating-still-images-from-motion-in-windows-11-photos/"><u>[Updated] Isolating Still Images From Motion in Windows 11 Photos</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-mastering-the-art-of-engaging-viral-tiktok-reaction-videos/"><u>[Updated] Mastering the Art of Engaging Viral TikTok Reaction Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-forego-youtube-previews-to-enjoy-live-videos/"><u>2024 Approved  Forego YouTube Previews to Enjoy Live Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-from-apple-iphone-14-pro-max-without-password-by-drfone-ios/"><u>How to Delete iCloud Account From Apple iPhone 14 Pro Max without Password?</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-y77t-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/narratives-unleashed-10-adventure-games-reviewed-for-2024/"><u>Narratives Unleashed  #10 Adventure Games Reviewed for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-final-cut-pro-essentials-creating-engaging-video-slideshows-from-your-favorite-moments/"><u>New 2024 Approved Final Cut Pro Essentials Creating Engaging Video Slideshows From Your Favorite Moments</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-virtualdub-and-its-most-popular-alternatives/"><u>New The Ultimate Guide to Virtualdub and Its Most Popular Alternatives</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/obs-studio-vs-fraps-best-screen-recording-tools-battle/"><u>OBS Studio vs Fraps  Best Screen Recording Tools Battle</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/top-10-ipad-slideshow-apps-to-create-a-slideshow-for-2024/"><u>Top 10 iPad Slideshow Apps to Create a Slideshow for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "How to View YouTube Statistics"
-date: 2024-05-25T18:21:08.481Z
-updated: 2024-05-26T18:21:08.481Z
+date: 2024-07-22T20:15:23.118Z
+updated: 2024-07-23T20:15:23.118Z
 tags:
   - ai video
   - ai youtube
@@ -11,13 +11,16 @@ categories:
 description: "This Article Describes How to View YouTube Statistics"
 excerpt: "This Article Describes How to View YouTube Statistics"
 keywords: "Youtube Stats Overview,YouTube Analytics Access,Video Performance Metrics,Tracking YouTube Success,YouTube Engagement Stats,Viewership Data Insights,YouTube Statistics Guide"
-thumbnail: https://www.lifewire.com/thmb/u__p9PWL3Uvoj7yKh73LTAz8p1I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iphonedefaultalerttone-15a2b7bd66de41878765af23bd0d6c6f.png
+thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb44504b07d25f967a878becd.png
 ---
 
 ## Mastering YouTube Stat Tracking Essentials
 
 # How to View YouTube Statistics
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,14 +38,23 @@ The information available for each video includes how many new subscribers it at
 * **[Interpreting YouTube Interaction Reports](#interaction)**
 * **[How to View Other People's YouTube Statistics](#otherpeople)**
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ### Making Better YouTube Videos with Filmora to Get More Views
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -51,6 +63,108 @@ In order to check which of your videos are performing the best, click on **Watch
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+### 1. Interpreting YouTube Watch Time Reports
+
+To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
+
+A watch time report includes the total amount of time that your video, or a selection of videos, is actually being watched for. In order to make sure that you are publishing only quality videos you need to make sure that your viewers are consistently sticking to your videos and watching them all away through, or at least to the half-way mark. Watch time represents one of the most meaningful metrics in ensuring that you are engaging your audience.
+
+YouTube analytics can now display a watch time of every video that you have produced. Seeing the metrics on how long people are actually watching every video that you produce can show you what you’ve done right in the past and what you need to do more of to continue raising your watch time.
+
+Alongside watch time you can see the average duration individual viewers are watching your videos for. The average percentage of your video that gets viewed will showcase areas where you may be struggling with your video content. For example, if an abnormally high number of viewers are clicking away during your intro, there’s probably something about that clip that needs to be changed.
+
+In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
+
+Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2. Interpreting YouTube Interaction Reports
+
+Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
+
+Interaction reports can be broken down into several different reports that can help determine the overall performance of any YouTube videos. The main interaction reports that you should be interested in include:
+
+**1\. Subscribers:** You can find extensive data on your subscribers, like demographics including age groups and gender. Learning more about your subscribers can help you to tailor your content. For example, if you learn that your viewers are mostly young women under 24 in the USA, you can do research into what is currently popular with young women under 24 in the USA.
+
+[Want to see your subscriber count in real-time?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**2\. Likes and dislikes:** Likes and dislikes aren't a powerful metric when it comes to search engine rankings, but they provide useful information to creators. If you’re getting a lot of dislikes on a video, you should look into why. If you're getting a lot of likes on a video, it can indicate that you should focus on creating similar content.
+
+**3\. Playlists:** A viewer watching a video in a playlist is much more likely to keep watching more videos from that playlist, making playlists great for the growth of your channel. Reports in this section will help you figure out which of your playlists is performing best, which could give you an idea of which types of videos or video topics are going over best with your viewers.
+
+**4\. Comments:** Reading comments is a great way to figure out what your viewers think, but that's not all they're good for. If viewers return to a video to continue talking to you or other viewers then that will drive up your views and watch time. If a video is especially good at generating discussion, you should figure out why (i.e. your sign-off question) and keep doing it.
+
+**5\. Sharing:** Discovering where your video is being shared can be important for figuring out what platforms you should be on besides YouTube. If your video is shared and viewed a lot on Twitter, you should consider making a Twitter account for your channel.
+
+**6\. Cards:** Tracking the performance of your Cards will help you optimize them to direct traffic between your videos. By testing out different time stamps for cards you’ll find the perfect places to put them. By trying different messages in your cards you’ll learn how to write ‘calls to action’ that mobilize your viewers.
+
+**End screens:** End Screens are essential for keeping viewers on your channel. The report of the click-through rates of your end screens is important for helping you figure out which kinds of links work, and which style of ends screen is most effective for you. Are people more likely to click when you talk to them through the end screen, or when it’s a static card?
+
+**7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
+
+## How to View Other Peoples YouTube Statistics
+
+If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
+
+Now that you know how to view YouTube statistics, what will you do with them?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Learn how to view YouTube statistics and you can grow your channel faster. By paying attention to your statistics, which are available for free to every YouTuber in the **Analytics** section of the **Creator Studio**, you will be able to see how successful your individual videos are and replicate that success.
+
+The information available for each video includes how many new subscribers it attracted and how much watch time it has so far (which is important if you want to monetize someday). By looking at which videos are performing well in these areas you can determine what you are doing right and replicate that success in future videos.
+
+* **[How to View Your YouTube Statistics](#yourstats)**
+* **[Interpreting YouTube Watch Time Reports](#watchtime)**
+* **[Interpreting YouTube Interaction Reports](#interaction)**
+* **[How to View Other People's YouTube Statistics](#otherpeople)**
+
+### Making Better YouTube Videos with Filmora to Get More Views
+
+As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
+## How to View Your YouTube Statistics
+
+In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
+
+In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
+
+The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -122,8 +236,14 @@ The information available for each video includes how many new subscribers it at
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## How to View Your YouTube Statistics
@@ -148,6 +268,9 @@ In the watch time reports for individual videos, you will be able to see data on
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -172,6 +295,9 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -207,6 +333,9 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## How to View Your YouTube Statistics
@@ -261,89 +390,9 @@ If you want to check out the statistics of rival YouTube channels ([including th
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Learn how to view YouTube statistics and you can grow your channel faster. By paying attention to your statistics, which are available for free to every YouTuber in the **Analytics** section of the **Creator Studio**, you will be able to see how successful your individual videos are and replicate that success.
-
-The information available for each video includes how many new subscribers it attracted and how much watch time it has so far (which is important if you want to monetize someday). By looking at which videos are performing well in these areas you can determine what you are doing right and replicate that success in future videos.
-
-* **[How to View Your YouTube Statistics](#yourstats)**
-* **[Interpreting YouTube Watch Time Reports](#watchtime)**
-* **[Interpreting YouTube Interaction Reports](#interaction)**
-* **[How to View Other People's YouTube Statistics](#otherpeople)**
-
-### Making Better YouTube Videos with Filmora to Get More Views
-
-As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to View Your YouTube Statistics
-
-In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
-
-In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
-
-The two main types of analytics reports are Watch Time Reports and Interaction Reports.
-
-### 1. Interpreting YouTube Watch Time Reports
-
-To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
-
-A watch time report includes the total amount of time that your video, or a selection of videos, is actually being watched for. In order to make sure that you are publishing only quality videos you need to make sure that your viewers are consistently sticking to your videos and watching them all away through, or at least to the half-way mark. Watch time represents one of the most meaningful metrics in ensuring that you are engaging your audience.
-
-YouTube analytics can now display a watch time of every video that you have produced. Seeing the metrics on how long people are actually watching every video that you produce can show you what you’ve done right in the past and what you need to do more of to continue raising your watch time.
-
-Alongside watch time you can see the average duration individual viewers are watching your videos for. The average percentage of your video that gets viewed will showcase areas where you may be struggling with your video content. For example, if an abnormally high number of viewers are clicking away during your intro, there’s probably something about that clip that needs to be changed.
-
-In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
-
-Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
-
-### 2. Interpreting YouTube Interaction Reports
-
-Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
-
-Interaction reports can be broken down into several different reports that can help determine the overall performance of any YouTube videos. The main interaction reports that you should be interested in include:
-
-**1\. Subscribers:** You can find extensive data on your subscribers, like demographics including age groups and gender. Learning more about your subscribers can help you to tailor your content. For example, if you learn that your viewers are mostly young women under 24 in the USA, you can do research into what is currently popular with young women under 24 in the USA.
-
-[Want to see your subscriber count in real-time?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**2\. Likes and dislikes:** Likes and dislikes aren't a powerful metric when it comes to search engine rankings, but they provide useful information to creators. If you’re getting a lot of dislikes on a video, you should look into why. If you're getting a lot of likes on a video, it can indicate that you should focus on creating similar content.
-
-**3\. Playlists:** A viewer watching a video in a playlist is much more likely to keep watching more videos from that playlist, making playlists great for the growth of your channel. Reports in this section will help you figure out which of your playlists is performing best, which could give you an idea of which types of videos or video topics are going over best with your viewers.
-
-**4\. Comments:** Reading comments is a great way to figure out what your viewers think, but that's not all they're good for. If viewers return to a video to continue talking to you or other viewers then that will drive up your views and watch time. If a video is especially good at generating discussion, you should figure out why (i.e. your sign-off question) and keep doing it.
-
-**5\. Sharing:** Discovering where your video is being shared can be important for figuring out what platforms you should be on besides YouTube. If your video is shared and viewed a lot on Twitter, you should consider making a Twitter account for your channel.
-
-**6\. Cards:** Tracking the performance of your Cards will help you optimize them to direct traffic between your videos. By testing out different time stamps for cards you’ll find the perfect places to put them. By trying different messages in your cards you’ll learn how to write ‘calls to action’ that mobilize your viewers.
-
-**End screens:** End Screens are essential for keeping viewers on your channel. The report of the click-through rates of your end screens is important for helping you figure out which kinds of links work, and which style of ends screen is most effective for you. Are people more likely to click when you talk to them through the end screen, or when it’s a static card?
-
-**7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
-
-## How to View Other Peoples YouTube Statistics
-
-If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
-
-Now that you know how to view YouTube statistics, what will you do with them?
-
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -378,6 +427,9 @@ The 2018 FIFA World Cup Russia is over for another four years and the grand fina
 
 We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
 
 ## Football Content Has Never Been More Popular on YouTube
@@ -442,6 +494,9 @@ Furthermore, brand ads for corporate giants such as Nike, Gatorade or Addidas at
 
 Besides soccer that is currently dominating the largest video sharing platform in the world, basketball, extreme sports and winter sports also provide access to huge audiences and show promising signs that they can help brands and influencers generate more revenue. Popular YouTubers should try to include more sports-related videos on their channels because it might help them attract new followers and secure a foothold in a rapidly growing market.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -458,6 +513,9 @@ The 2018 FIFA World Cup Russia is over for another four years and the grand fina
 
 We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
 
 ## Football Content Has Never Been More Popular on YouTube
@@ -474,6 +532,9 @@ Music videos related to previous World Cups have attracted 12% of women more tha
 
 As a matter of fact, football audiences are also largely attracted to gaming content, entertainment, and music videos since as much as 18% of the football audience frequently watches entertainment videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Are Sports the Next Big Thing On YouTube?
 
 At the moment, sports videos are growing faster than any other genre of videos you can find on YouTube, including entertainment or music, while the branded partnerships in this niche are growing 111% faster than all of the sports videos combined. The window of opportunity is clear for all brands that support sports activities.
@@ -498,8 +559,14 @@ The 2018 FIFA World Cup Russia is over for another four years and the grand fina
 
 We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Football Content Has Never Been More Popular on YouTube
 
 The football gods, like Cristiano Ronaldo, Lionel Messi or Neymar Jr are making enormous amounts of money, in addition to having an iconic status in the mass media. Such state of affairs explains why YouTube videos with these superstars saw an 80% increase in watch time over the course of the last year.
@@ -522,6 +589,9 @@ Furthermore, brand ads for corporate giants such as Nike, Gatorade or Addidas at
 
 Besides soccer that is currently dominating the largest video sharing platform in the world, basketball, extreme sports and winter sports also provide access to huge audiences and show promising signs that they can help brands and influencers generate more revenue. Popular YouTubers should try to include more sports-related videos on their channels because it might help them attract new followers and secure a foothold in a rapidly growing market.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -545,3 +615,61 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-expanding-reach-crafting-winning-tiktok-marketing-plans/"><u>[New] 2024 Approved  Expanding Reach  Crafting Winning TikTok Marketing Plans</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-how-to-make-money-on-tiktok-in-8-ways-cannot-miss/"><u>[New] 2024 Approved  How to Make Money on TikTok in 8 Ways [Cannot Miss]</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-leading-10-customizable-tiktok-filters-for-personal-flair/"><u>[New] In 2024, Leading 10 Customizable TikTok Filters for Personal Flair</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-editing-made-easy-shortening-video-lengths/"><u>[Updated] 2024 Approved  YouTube Editing Made Easy  Shortening Video Lengths</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>[Updated] Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciding-on-a-personal-social-media-platform-tiktok-or-youtubes-shorts-in-2024/"><u>[Updated] Deciding on a Personal Social Media Platform  TikTok or YouTubes' Shorts, In 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-what-lies-beneath-the-true-meanings-in-emoji/"><u>[Updated] What Lies Beneath  The True Meanings in Emoji</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/20plus-vivid-photo-assemblages-to-brighten-moods/"><u>20+ Vivid Photo Assemblages to Brighten Moods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-viewership-responsibly-strategies-that-work/"><u>2024 Approved  Boosting Viewership Responsibly  Strategies That Work</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>2024 Approved  Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-views-essential-hashtags-for-trending-shorts/"><u>2024 Approved  Boosting Views  Essential Hashtags for Trending Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-views-top-14-gaming-video-ideas-that-work/"><u>2024 Approved  Boosting Views  Top 14 Gaming Video Ideas That Work</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-views-through-imaginative-video-thumbnails/"><u>2024 Approved  Boosting Views Through Imaginative Video Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-watch-time-and-reducing-churn-on-youtube-the-ultimate-list-of-methods/"><u>2024 Approved  Boosting Watch Time and Reducing Churn on YouTube  The Ultimate List of Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>2024 Approved  Boosting Your Channel  Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>2024 Approved  Boosting Your Content Quality  Essential Tips for YouTube Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>2024 Approved  Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-your-video-income-on-youtube-essentials/"><u>2024 Approved  Boosting Your Video Income on Youtube - Essentials</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-ad-revenue-keeping-cc-active/"><u>2024 Approved  Boosting YouTube Ad Revenue  Keeping CC Active</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-engagement-top-11-seo-strategies-revealed/"><u>2024 Approved  Boosting YouTube Engagement  Top 11 SEO Strategies Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-interaction-with-emojis/"><u>2024 Approved  Boosting YouTube Interaction with Emojis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-popularity-two-simple-strategies/"><u>2024 Approved  Boosting YouTube Popularity  Two Simple Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-productions-best-mac-mp4-editors-guide/"><u>2024 Approved  Boosting YouTube Productions  Best Mac MP4 Editors Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-success-mastery-with-tubebuddy/"><u>2024 Approved  Boosting YouTube Success  Mastery with TubeBuddy</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-traffic-outsmarting-automated-viewers/"><u>2024 Approved  Boosting YouTube Traffic  Outsmarting Automated Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boredoms-ender-the-ultimate-list-of-jovial-youtube-content/"><u>2024 Approved  Boredom's Ender  The Ultimate List of Jovial YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>2024 Approved  Born to Create Video Magic  Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>2024 Approved  Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-brand-visualization-inserting-watermarks-and-logos-into-youtube-media/"><u>2024 Approved  Brand Visualization  Inserting Watermarks and Logos Into YouTube Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-branding-with-visuals-inserting-watermarks-into-youtube-vids/"><u>2024 Approved  Branding with Visuals  Inserting Watermarks Into YouTube Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>2024 Approved  Break Down Long-Form Videos  The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level/"><u>2024 Approved  Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-free-from-youtube-with-these-best-27-video-streamers/"><u>2024 Approved  Break Free From YouTube with These Best 27 Video Streamers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-it-down-free-techniques-to-go-frame-by-frame-on-youtube/"><u>2024 Approved  Break It Down  Free Techniques to Go Frame by Frame on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube/"><u>2024 Approved  Break It Down  Streamlining Video Length with Efficient Chapter Breaks on YouTube</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-adobe-premiere-pro-cs6-mac-edition-free-to-use/"><u>2024 Approved Adobe Premiere Pro CS6 Mac Edition - Free to Use</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-vivo-g2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Vivo G2? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-your-aerial-artistry-best-drone-and-editor-match-ups-ranked/"><u>Elevate Your Aerial Artistry  Best Drone & Editor Match-Ups Ranked</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-11-pro-max-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone 11 Pro Max?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-honor-magic-6-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/identifying-programs-by-their-launch-shorthand-labels/"><u>Identifying Programs by Their Launch Shorthand Labels</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-demystifying-advanced-editing-techniques-for-professionals/"><u>In 2024, Demystifying Advanced Editing Techniques for Professionals</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-se-2020-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Samsung Galaxy F15 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/m1-pro-vs-m1-max-identifying-core-differences-for-2024/"><u>M1 Pro Vs. M1 Max  Identifying Core Differences for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/revolutionary-tiktok-profits-estimator-guide-for-2024/"><u>Revolutionary TikTok Profits Estimator Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/taking-control-of-your-tiktok-experience-pc-and-mac-style/"><u>Taking Control of Your TikTok Experience, PC & Mac Style</u></a></li>
+<li><a href="https://fox-access.techidaily.com/top-8-virtual-reality-vr-gaming-accessories/"><u>Top 8 Virtual Reality (VR) Gaming Accessories</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-best-hatsune-miku-ai-voice-generators-for-all-times/"><u>Updated 2024 Approved Best Hatsune Miku AI Voice Generators for All Times</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-expert-tips-on-selecting-and-merging-songs-with-your-imovie-content/"><u>Updated 2024 Approved Expert Tips on Selecting and Merging Songs with Your iMovie Content</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-engineers-choice-selecting-premium-websites-for-advanced-mp3-editing-techniques/"><u>Updated In 2024, The Engineers Choice Selecting Premium Websites for Advanced MP3 Editing Techniques</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-video-editing-made-easy-a-comprehensive-guide-to-windows-movie-maker/"><u>Updated Video Editing Made Easy A Comprehensive Guide to Windows Movie Maker</u></a></li>
+</ul></div>

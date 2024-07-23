@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ensuring Your Shorts Video's Thumbnail Shows Up\""
-date: 2024-05-25T18:40:22.657Z
-updated: 2024-05-26T18:40:22.657Z
+date: 2024-07-22T20:27:55.294Z
+updated: 2024-07-23T20:27:55.294Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Ensuring Your Shorts Video's Thumbnail Shows Up\""
 excerpt: "\"This Article Describes 2024 Approved: Ensuring Your Shorts Video's Thumbnail Shows Up\""
 keywords: "Video Thumbnail Importance,Optimizing Video Images,Engaging Video Titles,High Res Thumbnails,SEO for Videos,Video Discoverability,Promoting Shorts Content"
-thumbnail: https://www.lifewire.com/thmb/jPrdYdSLjslalhW7IaTG5T7eeCw=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1012916614-9c7175b024cf4ef2b9f4a523914c9304.jpg
+thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85a816656ff3b301d8b067e97.jpg
 ---
 
 ## Ensuring Your Shorts Video's Thumbnail Shows Up
@@ -20,6 +20,9 @@ Video thumbnails are important since they encourage people to click and watch th
 
 That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shorts thumbnails. They may help you with fixing this issue.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/youtube-shorts-thumbnail-not-showing.gif)
 
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
@@ -38,6 +41,9 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 * On the left navigation menu, click "Content."
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![content section on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-3.JPG)
 
 * Click the "pencil" icon next to the Shorts you just uploaded. This video should be at the top of the list.
@@ -45,6 +51,14 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
 It's not you who's the only one with Shorts thumbnails not showing. Many short-form content creators on the platform are also facing this issue. A YouTuber took to Reddit to complain about how he uploaded custom thumbnails for all his videos. The thumbnails are correct in the editor. However, YouTube still displays a random frame as the thumbnail on the Shorts shelf.
@@ -55,6 +69,9 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -93,10 +110,16 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -105,6 +128,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Pause the video.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
 * Click "Library" on the left panel.
@@ -119,6 +145,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -131,12 +160,25 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -151,6 +193,9 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -159,6 +204,9 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
@@ -175,6 +223,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Click "Library" on the left panel.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
@@ -185,6 +236,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -193,6 +247,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Tap "Library"
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
 * Scroll down to find "Liked Videos." Click on it.
@@ -225,6 +282,9 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 # How To Add Captions to YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -239,6 +299,9 @@ This article will first explain how you can turn on subtitles for the videos you
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
@@ -247,6 +310,68 @@ If the creator of the video has not added captions then you can enable automatic
 
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Adding YouTube Captions in 4 Steps
+
+1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
+
+2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
+
+3\. Select **Add New** **Subtitles or CC**.
+
+4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
+
+**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
+
+**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
+
+**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
+
+**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
+
+**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
+
+The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
+
+This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
+## How To Turn On Captions on YouTube
+
+In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
+
+![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
+
+To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
+
+If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
+
+If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -289,6 +414,9 @@ This article will first explain how you can turn on subtitles for the videos you
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
@@ -297,6 +425,9 @@ If the creator of the video has not added captions then you can enable automatic
 
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -319,6 +450,9 @@ If you want to change the language of the subtitles click on the settings icon (
 
 The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -335,6 +469,9 @@ By captioning your YouTube videos you help to make them accessible to more poten
 
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
@@ -347,56 +484,9 @@ If the creator of the video has not added captions then you can enable automatic
 
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
-## Adding YouTube Captions in 4 Steps
-
-1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
-
-2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
-
-3\. Select **Add New** **Subtitles or CC**.
-
-4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
-
-**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
-
-**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
-
-**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
-
-**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
-
-**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
-
-The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
-
-This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
-
-## How To Turn On Captions on YouTube
-
-In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
-
-![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
-
-To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
-
-If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
-
-If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -442,3 +532,56 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-streaming-iphone-7-display-like-a-pro/"><u>[New] In 2024, Streaming iPhone 7 Display Like a Pro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-review-vrs-winning-features-and-faults/"><u>[New] In-Depth Review  VR's Winning Features & Faults</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-next-level-of-immersion-top-10-vr-gear/"><u>[New] The Next Level of Immersion (Top 10 VR Gear)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-10-gaming-wonders-offline-ios-masterpieces-without-internet/"><u>[Updated] 2024 Approved  10 Gaming Wonders – Offline iOS Masterpieces Without Internet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-effortlessly-connect-camera-roll-to-snapchat-sharing-platforms-for-2024/"><u>[Updated] Effortlessly Connect Camera Roll to Snapchat Sharing Platforms for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elite-gamers-capturing-solutions-for-2024/"><u>[Updated] Elite Gamers' Capturing Solutions for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-finest-9-mic-recording-devices-compared/"><u>[Updated] The Finest 9 Mic Recording Devices Compared</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-ultimate-guide-to-mastering-igtv-content-creation/"><u>2024 Approved  The Ultimate Guide to Mastering IGTV Content Creation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-honor-magic-6-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Honor Magic 6 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>Become the Brand You Want With Our Exclusive Set of FREE Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-director-top-film-tips-and-tricks-on-youtube/"><u>Becoming a Director  Top Film Tips & Tricks on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-director-top-film-tips-and-tricks-on-youtube-for-2024/"><u>Becoming a Director  Top Film Tips & Tricks on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-filmora-fcc-the-pathway-explained-for-2024/"><u>Becoming a Filmora FCC  The Pathway Explained for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-leader-in-video-marketing-on-youtube/"><u>Becoming a Leader in Video Marketing on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-lyric-video-pro-a-lyric-video-makers-journey-for-2024/"><u>Becoming a Lyric Video Pro  A Lyric Video Maker's Journey for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-master-at-the-art-of-engaging-thumbnails-for-2024/"><u>Becoming a Master at the Art of Engaging Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-trendsetter-youtube-video-tactics-for-2024/"><u>Becoming a Trendsetter  YouTube Video Tactics for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-video-virtuoso-essential-tips-for-upside-down-youtube-livestreams/"><u>Becoming a Video Virtuoso  Essential Tips for Upside-Down Youtube Livestreams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-video-virtuoso-essential-tips-for-upside-down-youtube-livestreams-for-2024/"><u>Becoming a Video Virtuoso  Essential Tips for Upside-Down Youtube Livestreams for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-a-youtube-star-utilizing-the-power-of-featured-channels/"><u>Becoming a Youtube Star  Utilizing the Power of Featured Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/becoming-an-economic-force-a-guide-to-earning-on-youtube-for-2024/"><u>Becoming an Economic Force  A Guide to Earning on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-bible-to-your-youtube-audio-visual-arsenal-for-2024/"><u>Beginner's Bible to Your YouTube Audio-Visual Arsenal for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>Beginner's Blueprint for Online Content  Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-blueprint-for-youtube-income-growth-for-2024/"><u>Beginner's Blueprint for YouTube Income Growth for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-bonanza-affordable-profitable-channel-options/"><u>Beginner's Bonanza  Affordable, Profitable Channel Options</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-companion-to-choosing-youtube-cameras/"><u>Beginner’s Companion to Choosing YouTube Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-companion-to-choosing-youtube-cameras-for-2024/"><u>Beginner’s Companion to Choosing YouTube Cameras for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-capturing-youtube-videos-as-screencasts-without-payment-for-2024/"><u>Beginner's Guide  Capturing YouTube Videos as Screencasts Without Payment for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-top-10-youtube-editing-tricks-for-2024/"><u>Beginner's Guide  Top 10 YouTube Editing Tricks for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-to-choosing-lenses-and-cameras-for-youtube-vloggers/"><u>Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-obs-techniques-for-youtube-live-streaming/"><u>Beginner's OBS Techniques for YouTube Live Streaming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-obs-techniques-for-youtube-live-streaming-for-2024/"><u>Beginner's OBS Techniques for YouTube Live Streaming for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-pathway-start-your-sports-youtube-chain-on-macos/"><u>Beginner's Pathway  Start Your Sports YouTube Chain on macOS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-steps-to-broadcast-on-youtube-via-obs/"><u>Beginner's Steps to Broadcast on Youtube via OBS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-tutorial-composing-youtube-video-content/"><u>Beginner's Tutorial  Composing YouTube Video Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-how-to-create-a-youtube-channel-and-make-money/"><u>Beginners’ Guide  How To Create a YouTube Channel and Make Money</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elite-selections-8-excellent-tripods-for-high-quality-4k-video/"><u>Elite Selections  8 Excellent Tripods for High-Quality 4K Video</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-magic-6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-magic-6-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Honor Magic 6 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-y100t-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo Y100t</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-nokia-c210-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Nokia C210</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-best-humor-image-processor/"><u>In 2024, Best Humor Image Processor</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-casino-contestant-commentary/"><u>In 2024, CASINO CONTESTANT COMMENTARY</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-quick-correction-quest-how-to-skillfully-edit-images-on-win10/"><u>In 2024, Quick Correction Quest  How to Skillfully Edit Images on WIN10</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-unleash-your-creativity-download-videoleap-for-macbook/"><u>New In 2024, Unleash Your Creativity Download Videoleap for MacBook</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/rapid-rise-how-to-transform-your-tiktok-images-dramatically-for-2024/"><u>Rapid Rise  How to Transform Your TikTok Images Dramatically for 2024</u></a></li>
+<li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-xiaomi-redmi-k70-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of Xiaomi Redmi K70</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-reno-10-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo Reno 10 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-6s-plus-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone 6s Plus? How to Fix</u></a></li>
+</ul></div>

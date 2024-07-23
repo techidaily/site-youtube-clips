@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting an Inviting Subscribe Icon for YouTube Videographers\""
-date: 2024-05-25T18:31:42.678Z
-updated: 2024-05-26T18:31:42.678Z
+date: 2024-07-22T20:21:39.454Z
+updated: 2024-07-23T20:21:39.454Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://www.lifewire.com/thmb/QkvEImgS6EhmV_bP9sMedCR9x2w=/540x405/fi
 
 # How to Make a YouTube Subscribe Link - Easy
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -60,6 +64,63 @@ Getting subscribers is tough, but you’ll get more if you ask and this is just 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+If you want to increase the total number of subscribers that you have on your YouTube page it is important that your page is easy to subscribe to.
+
+A subscribe link is a link to your channel page which takes the person who clicks it to the same view of the page they would have if they had already clicked to subscribe. It triggers a pop-up asking them to confirm their subscription. If they were already interested enough to click the link and check out your channel they may confirm the subscription in the window, whereas they may forget to subscribe if they aren’t prompted.
+
+A YouTube subscribe link is one of the best ways to share a link on your website, in social media posts, or anywhere you mention your channel.
+
+## How to Get a YouTube Subscribe Link
+
+YouTube subscribe links aren’t some kind of exclusive perk – anyone can have one!
+
+**Step 1:** Go to your YouTube channel page and click into the address bar so you can edit the URL.
+
+**Step 2:** Add the following to the end of your channel URL:
+
+?sub\_confirmation=1
+
+**Step 3:** Copy the entire URL including the part you added and paste it into a word document to save. Any time you share a link to your channel, make sure it is this link.
+
+This will work both with channels that have custom URLs and channels which do not. Here’s an example:
+
+_<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w>_
+
+That's a link for Wondershare Filmora Video Editor's YouTube channel. With the modifier it looks like this:
+
+_<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w?sub\_confirmation=1>_
+
+Getting subscribers is tough, but you’ll get more if you ask and this is just another way of asking. The process for creating a YouTube subscribe link is easy and accessible to everyone.
+
+### Touch Up Your YouTube Videos with Filmora
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of video and audio editing tools that enables you to cut, trim and touch up the video clip easily. There are plentiful texts templates and elements, which can be used to create attractive call-outs.
+
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -128,6 +189,9 @@ A subscribe link is a link to your channel page which takes the person who click
 
 A YouTube subscribe link is one of the best ways to share a link on your website, in social media posts, or anywhere you mention your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## How to Get a YouTube Subscribe Link
 
 YouTube subscribe links aren’t some kind of exclusive perk – anyone can have one!
@@ -150,58 +214,22 @@ _<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w?sub\_confirmation=1>
 
 Getting subscribers is tough, but you’ll get more if you ask and this is just another way of asking. The process for creating a YouTube subscribe link is easy and accessible to everyone.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Touch Up Your YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of video and audio editing tools that enables you to cut, trim and touch up the video clip easily. There are plentiful texts templates and elements, which can be used to create attractive call-outs.
 
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
 
-Richard Bennett
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
 
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-If you want to increase the total number of subscribers that you have on your YouTube page it is important that your page is easy to subscribe to.
-
-A subscribe link is a link to your channel page which takes the person who clicks it to the same view of the page they would have if they had already clicked to subscribe. It triggers a pop-up asking them to confirm their subscription. If they were already interested enough to click the link and check out your channel they may confirm the subscription in the window, whereas they may forget to subscribe if they aren’t prompted.
-
-A YouTube subscribe link is one of the best ways to share a link on your website, in social media posts, or anywhere you mention your channel.
-
-## How to Get a YouTube Subscribe Link
-
-YouTube subscribe links aren’t some kind of exclusive perk – anyone can have one!
-
-**Step 1:** Go to your YouTube channel page and click into the address bar so you can edit the URL.
-
-**Step 2:** Add the following to the end of your channel URL:
-
-?sub\_confirmation=1
-
-**Step 3:** Copy the entire URL including the part you added and paste it into a word document to save. Any time you share a link to your channel, make sure it is this link.
-
-This will work both with channels that have custom URLs and channels which do not. Here’s an example:
-
-_<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w>_
-
-That's a link for Wondershare Filmora Video Editor's YouTube channel. With the modifier it looks like this:
-
-_<https://www.youtube.com/channel/UCY\_LMaDAoa6hwHKBE4Dx56w?sub\_confirmation=1>_
-
-Getting subscribers is tough, but you’ll get more if you ask and this is just another way of asking. The process for creating a YouTube subscribe link is easy and accessible to everyone.
-
-### Touch Up Your YouTube Videos with Filmora
-
-[Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of video and audio editing tools that enables you to cut, trim and touch up the video clip easily. There are plentiful texts templates and elements, which can be used to create attractive call-outs.
-
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -248,11 +276,17 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 * On the left navigation menu, click "Content."
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![content section on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-3.JPG)
 
 * Click the "pencil" icon next to the Shorts you just uploaded. This video should be at the top of the list.
 * Navigate to the Thumbnail section. Click "Create Thumbnail."
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
@@ -265,6 +299,9 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -273,12 +310,18 @@ Unfortunately, there is no reliable fix to this problem yet. YouTubers have trie
 
 Some YouTubers have tried using different images. Others have experimented with changing the aspect ratio of the thumbnail or using Adobe editor for ratios. Clearing histories and cache, using different browsers, resizing, and changing the images' resolution have also been done. Sadly, these are all failed attempts.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## Q4\. How To Boost Views When I Have no Control Over YouTube Shorts Thumbnails?
 
 Attracting viewers on Shorts is the same as attracting viewers on the main YouTube. You use interesting thumbnails and video titles. Since thumbnails are out of the options, selecting great video titles has become even more important.
 
 Here are some pointers. Your title should be at most 40 characters. Also, it should be concise and irresistible. And forget about SEO since no one is searching for YouTube Shorts anyway. People consume what they see in their feeds. So instead, the title should be "snappy." It should intrigue, entertain, or enlighten the viewers. That will net you some views for your Shorts content.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q5\. How To Get More Views on YouTube Shorts?
 
 Forgoing the intro is the way to go. An intro will just prolong the video when people are in Shorts to find bite-sized videos. So jump right into the video content. You can also start the video with a still frame instead. Using hashtags, captions, and text effects are also recommended. And interacting with your audience through comments and pinned comments will keep them coming back to your Shorts channel.
@@ -295,6 +338,9 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -303,10 +349,16 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -325,6 +377,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -333,6 +388,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Like the Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
 * Tap "Library"
@@ -341,10 +399,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
 ## Conclusion
@@ -355,12 +419,18 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -389,20 +459,35 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
 * Tap "Library"
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
 * Scroll down to find "Liked Videos." Click on it.
@@ -411,6 +496,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
 ## Conclusion
@@ -434,3 +522,51 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-top-ten-unforgettable-youtube-vr-videos/"><u>[New] Discover  Top Ten Unforgettable YouTube VR Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-joy-of-animated-journeys-youtubes-best-for-everyday/"><u>[New] Discover the Joy of Animated Journeys  YouTube's Best for Everyday</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-leading-free-naming-resources-11-must-have-makers/"><u>[New] Discover the Leading Free Naming Resources - 11 Must-Have Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-leading-online-video-cutter-for-youtube/"><u>[New] Discover the Leading Online Video Cutter for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-power-of-proportions-in-youtube-content-creation/"><u>[New] Discover the Power of Proportions in YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>[New] Discover the Power of YouTube Editing  A Compre Written in Code  The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[New] Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-top-free-tools-for-youtube-image-downloads/"><u>[New] Discover the Top Free Tools for YouTube Image Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-ultimate-blend-of-mind-body-and-spirit-in-yoga/"><u>[New] Discover the Ultimate Blend of Mind, Body, and Spirit in Yoga</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-ultimate-tune-troupes-on-these-20-premier-youtube-sounds/"><u>[New] Discover the Ultimate Tune Troupes on These 20 Premier YouTube Sounds</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-visionaries-behind-video-content-six-intriguing-youtube-categorization-challenges/"><u>[New] Discover the Visionaries Behind Video Content  Six Intriguing YouTube Categorization Challenges</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-top-15-youtube-sources-for-sci-education/"><u>[New] Discover Top 15 YouTube Sources for Sci-Education</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-why-av1-is-a-game-changer-for-youtube-viewers/"><u>[New] Discover Why AV1 Is a Game Changer for YouTube Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-your-favorite-6-premier-youtube-short-downloaders/"><u>[New] Discover Your Favorite  6 Premier YouTube Short Downloaders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-your-rhythm-assembling-tailored-youtube-playlists-for-the-digital-age-webmobile/"><u>[New] Discover Your Rhythm  Assembling Tailored YouTube Playlists for the Digital Age (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-your-top-10-choice-of-editors-for-youtube-short-videos/"><u>[New] Discover Your Top 10 Choice of Editors for YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-youtubes-free-text-translations-and-downloads/"><u>[New] Discover YouTube's Free Text Translations & Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-and-perfecting-your-individual-style/"><u>[New] Discovering & Perfecting Your Individual Style</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-2023s-cinematic-hidden-gems/"><u>[New] Discovering 2023'S Cinematic Hidden Gems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-8-honestly-endorsed-promotional-strategies/"><u>[New] Discovering 8 Honestly-Endorsed Promotional Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-8-prime-video-advancement-aids/"><u>[New] Discovering 8 Prime Video Advancement Aids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-all-in-youtube-shorts-guide/"><u>[New] Discovering All in YouTube Shorts Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-best-phone-based-asmr-experiences/"><u>[New] Discovering Best Phone-Based ASMR Experiences</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-great-videostreams-youtubes-best-27-alternatives/"><u>[New] Discovering Great Videostreams  YouTube's Best 27 Alternatives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-facebooks-features-for-sharing-youtube-content/"><u>[New] In 2024, Navigating Facebook's Features for Sharing YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-charting-new-pathways-in-art-an-exclusive-look-at-the-top-10-low-cost-creator-platforms-on-youtube/"><u>[Updated] In 2024, Charting New Pathways in Art  An Exclusive Look at the Top 10 Low-Cost Creator Platforms on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-techniques-for-emptying-youtubes-keep-queue/"><u>[Updated] Techniques for Emptying YouTube's Keep Queue</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-tips-for-adding-stunning-motion-blur-effects-to-photos/"><u>2024 Approved  Expert Tips for Adding Stunning Motion Blur Effects to Photos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-play-7t-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor Play 7T Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-google-pixel-fold-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Google Pixel Fold Location Settings | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-s17-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Vivo S17 Pro to New Android? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Tecno Spark 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-serpent-soundtrack-comprehensive-guide-to-tts-resources-online/"><u>In 2024, Serpent Soundtrack  Comprehensive Guide to TTS Resources Online</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-swiftly-secure-your-favorite-tiktoks/"><u>In 2024, Swiftly Secure Your Favorite TikToks</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-which-way-to-go-a-comparison-of-adobe-premiere-and-after-effects-for-video-creators/"><u>In 2024, Which Way to Go? A Comparison of Adobe Premiere and After Effects for Video Creators</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/installing-videoleap-on-macbook-a-step-by-step-guide/"><u>Installing Videoleap on MacBook A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-hashtags-todays-must-learn-tips/"><u>Mastering #Instagram Hashtags  Today's Must-Learn Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/realities-redefined-the-metaverse-vs-omniverse-showdown-explained-for-2024/"><u>Realities Redefined  The Metaverse Vs. Omniverse Showdown Explained for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-coherent-audio-segments/"><u>The Art of Coherent Audio Segments</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-virtual-world-why-it-calls-for-attention/"><u>The Facebook Virtual World - Why It Calls for Attention</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-4-ways-to-trace-apple-iphone-13-pro-location-drfone-by-drfone-virtual-ios/"><u>Top 4 Ways to Trace Apple iPhone 13 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-virtualdub-mpeg2-the-ultimate-video-compression-solution/"><u>Updated In 2024, VirtualDub MPEG2 The Ultimate Video Compression Solution</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y200 | Dr.fone</u></a></li>
+</ul></div>

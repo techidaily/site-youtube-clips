@@ -1,7 +1,7 @@
 ---
 title: "\"Calculating Earnings  The Essence of YouTube Short Revenue Split\""
-date: 2024-05-25T18:53:59.384Z
-updated: 2024-05-26T18:53:59.384Z
+date: 2024-07-22T20:37:02.910Z
+updated: 2024-07-23T20:37:02.910Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Calculating Earnings: The Essence of YouTube Short Revenue Split\""
 excerpt: "\"This Article Describes Calculating Earnings: The Essence of YouTube Short Revenue Split\""
 keywords: "YouTuber Revenue Split,Short Video Earning,YouTube Earnings Share,Streamer Income Ratio,Video Profit Calculation,Content Creator Revenue,Earnings Per View (EPV)"
-thumbnail: https://www.lifewire.com/thmb/nPjq8dKxfPk2blHP7ld-qvTcgbA=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/Android-Auto-vs-Apple-Carplay-392b0e27330d42f4be8ac186a3257459.jpg
+thumbnail: https://thmb.techidaily.com/f578a6dc00b86f004f0eebf050b3c39c1e5f0c46ca38580b5c0bd47ee47b9b9c.jpg
 ---
 
 ## Calculating Earnings: The Essence of YouTube Short Revenue Split
@@ -28,6 +28,9 @@ YouTube Shorts have become a craze in the recent past as creators try to get the
 
 YouTube launched the Shorts platform in 2021, which gained popularity within a short period. By the end of the first year, some videos had racked up more than half a billion views and counties. This begged the question: can you get paid from YouTube shorts?
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-1.JPG)
 
 Yes, YouTube updated its Partner Program, allowing the revenue-sharing model to benefit Shorts creators. The platform pools all the money it gets from advertisers every month from the Shorts feeds. It then shares that money with creators based on the number of views. Since the launch of this program in February 2023, the previous YouTube Shorts Fund became defunct.
@@ -45,10 +48,16 @@ So, is YouTube shorts monetized? Yes, the ads-sharing model defines the amount o
 
 YouTube Shorts provides creators with an exceptional way of making extra income. Let’s have a look at what it takes and what the numbers say:
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Eligibility** **Criteria**
 
 If you are wondering, can I monetize YouTube shorts? To start earning ad revenue from Shorts, you need to be part of the YouTube Partner Program (YPP) This is the gateway to YouTube monetization opportunities. With the latest YouTube shorts monetization 2023 policy, the platform lowered the eligibility criteria.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube shorts monetization](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-2.JPG)
 
 To be eligible to the YPP, you will need:
@@ -74,6 +83,9 @@ YouTube Shorts have the potential to make a huge amount of money for creators. I
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) – Earned $163.73 from 4.2 million Shorts views
 * [Hassan Khadair](https://www.youtube.com/@HassanKhadair) (2.1 million subscribers) – Earned $872.14 from 22 million Shorts views
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## **Part 3\. How to Start Earning from YouTube Shorts**
 
 Eligible creators start earning from YouTube Shorts when they opt-in to the program. You need to make sure you are eligible and agree to start receiving revenue from your creations.
@@ -82,6 +94,13 @@ Eligible creators start earning from YouTube Shorts when they opt-in to the prog
 
 Shorts creators growing their channel and are yet to meet the minimum requirements can track their eligibility status by selecting “Notify me when I’m eligible” in YouTube Studio’s Earn section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![youtube shorts monetization eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-3.JPG)
 
 When you become eligible, follow these steps to apply for the YPP program:
@@ -95,6 +114,9 @@ When you become eligible, follow these steps to apply for the YPP program:
 
 Once you have completed these steps, your YouTube Channel will be reviewed. You can expect to hear a decision within a month of enrolling you in the program.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How to opt in for YouTube Shorts Monetization**
 
 After being approved and enrolled in the YPP program, you need to opt in to monetize your channel. Remember that you will not be automatically signed up for the ad revenue-sharing model. Here are a few more steps you need to take:
@@ -106,6 +128,9 @@ After being approved and enrolled in the YPP program, you need to opt in to mone
 
 Once your Shorts are monetized, track the progress and amount of money earned through YouTube Analytics.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Other Ways to Monetize YouTube Shorts**
 
 The YPP program is the only ad-based monetization option for YouTube Shorts. However, there are other ways of earning:
@@ -116,6 +141,9 @@ The YPP program is the only ad-based monetization option for YouTube Shorts. How
 * **Secure Paid Brand Partnerships**: Interacting directly with brands and negotiating sponsorship deals.
 * **Join an Affiliate Program**: An affiliate program will pay you revenue associated with clicks to links hosted on your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 4\.** [**Edit Your YouTube Videos to Shorts with Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To earn more from your YouTube Shorts, you need quality content that keeps your viewers entertained. With Shorts having a limit of 60 seconds, you want to make sure that you cover the most essential footage. Wondershare Filmora is a versatile video editing software that helps creators edit their vertical videos quickly and easily. The mobile app is specifically great for editing shorts on the go:
@@ -126,6 +154,9 @@ To earn more from your YouTube Shorts, you need quality content that keeps your 
 
 Editing your videos with Filmora is quite straightforward. One of the features that work well for YouTube shorts is the Auto Reframe.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Auto Reframe feature allows creators to resize videos automatically with no editing skills needed. This is a great tool for converting your horizontal YouTube videos to Shorts format. It also boosts your potential audience while saving you precious time and effort you would have used editing. To use this feature, choose any of the following options:
@@ -146,6 +177,9 @@ Click File, followed by Import Media. Select the file that you gave imported in 
 
 You may also use the Auto Reframe feature by clicking on the Tools feature on the top menu bar. Then click on Auto Reframe.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-6.JPG)
 
 ### **Other Filmora Features for Editing Shorts**
@@ -154,18 +188,27 @@ You may also use the Auto Reframe feature by clicking on the Tools feature on th
 * [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Directly add texts to your videos, including subtitles and captions.
 * [**Text To Speech**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Instantly convert your text files to voice and introduce more elements that will enrich your Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Conclusion**
 
 YouTube Short’s revenue-sharing programs offer a great opportunity for creators specializing in short-form content to earn money on the platform. Once eligible for the YPP program, you can start earning a nice cash bonus monthly. However, you will need to create quality content that keeps your audience entertained and engaged. We recommend using Wondershare Filmora to edit your Shorts and make them more relatable to the audience,
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## **Part 1\. Unveiling the Mystery of YouTube Shorts Revenue Sharing**
 
 YouTube launched the Shorts platform in 2021, which gained popularity within a short period. By the end of the first year, some videos had racked up more than half a billion views and counties. This begged the question: can you get paid from YouTube shorts?
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-1.JPG)
 
 Yes, YouTube updated its Partner Program, allowing the revenue-sharing model to benefit Shorts creators. The platform pools all the money it gets from advertisers every month from the Shorts feeds. It then shares that money with creators based on the number of views. Since the launch of this program in February 2023, the previous YouTube Shorts Fund became defunct.
@@ -183,10 +226,16 @@ So, is YouTube shorts monetized? Yes, the ads-sharing model defines the amount o
 
 YouTube Shorts provides creators with an exceptional way of making extra income. Let’s have a look at what it takes and what the numbers say:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### **Eligibility** **Criteria**
 
 If you are wondering, can I monetize YouTube shorts? To start earning ad revenue from Shorts, you need to be part of the YouTube Partner Program (YPP) This is the gateway to YouTube monetization opportunities. With the latest YouTube shorts monetization 2023 policy, the platform lowered the eligibility criteria.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube shorts monetization](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-2.JPG)
 
 To be eligible to the YPP, you will need:
@@ -212,6 +261,18 @@ YouTube Shorts have the potential to make a huge amount of money for creators. I
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) – Earned $163.73 from 4.2 million Shorts views
 * [Hassan Khadair](https://www.youtube.com/@HassanKhadair) (2.1 million subscribers) – Earned $872.14 from 22 million Shorts views
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 3\. How to Start Earning from YouTube Shorts**
 
 Eligible creators start earning from YouTube Shorts when they opt-in to the program. You need to make sure you are eligible and agree to start receiving revenue from your creations.
@@ -233,6 +294,9 @@ When you become eligible, follow these steps to apply for the YPP program:
 
 Once you have completed these steps, your YouTube Channel will be reviewed. You can expect to hear a decision within a month of enrolling you in the program.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **How to opt in for YouTube Shorts Monetization**
 
 After being approved and enrolled in the YPP program, you need to opt in to monetize your channel. Remember that you will not be automatically signed up for the ad revenue-sharing model. Here are a few more steps you need to take:
@@ -254,6 +318,9 @@ The YPP program is the only ad-based monetization option for YouTube Shorts. How
 * **Secure Paid Brand Partnerships**: Interacting directly with brands and negotiating sponsorship deals.
 * **Join an Affiliate Program**: An affiliate program will pay you revenue associated with clicks to links hosted on your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 4\.** [**Edit Your YouTube Videos to Shorts with Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To earn more from your YouTube Shorts, you need quality content that keeps your viewers entertained. With Shorts having a limit of 60 seconds, you want to make sure that you cover the most essential footage. Wondershare Filmora is a versatile video editing software that helps creators edit their vertical videos quickly and easily. The mobile app is specifically great for editing shorts on the go:
@@ -264,6 +331,9 @@ To earn more from your YouTube Shorts, you need quality content that keeps your 
 
 Editing your videos with Filmora is quite straightforward. One of the features that work well for YouTube shorts is the Auto Reframe.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Auto Reframe feature allows creators to resize videos automatically with no editing skills needed. This is a great tool for converting your horizontal YouTube videos to Shorts format. It also boosts your potential audience while saving you precious time and effort you would have used editing. To use this feature, choose any of the following options:
@@ -284,6 +354,9 @@ Click File, followed by Import Media. Select the file that you gave imported in 
 
 You may also use the Auto Reframe feature by clicking on the Tools feature on the top menu bar. Then click on Auto Reframe.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-6.JPG)
 
 ### **Other Filmora Features for Editing Shorts**
@@ -345,6 +418,9 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -353,6 +429,106 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+## 2\. Post Cards
+
+One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
+## 3\. S’well bottle
+
+S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+_thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Pins, pins, pins
+
+There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+## 6\. Denim jacket
+
+A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
+
+Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
+
+Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
+
+Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
+
+* [**A map of Dumbo**](#dumbo)
+* [**Post Cards**](#postcards)
+* [**S’well bottle**](#bottle)
+* [**Branded slippers**](#slippers)
+* [**Pins, pins, pins**](#pins)
+* [**Denim jacket**](#jacket)
+
+_Lilly’s Creator Summit adventures._
+
+The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
+
+![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+
+Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
+
+_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
+
+There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
+
+## 1\. A map of Dumbo
+
+The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
+
+_Tess takes you to some of her favorite places in Dumbo._
+
+Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -377,6 +553,117 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
+
+Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
+
+Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
+
+Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
+
+* [**A map of Dumbo**](#dumbo)
+* [**Post Cards**](#postcards)
+* [**S’well bottle**](#bottle)
+* [**Branded slippers**](#slippers)
+* [**Pins, pins, pins**](#pins)
+* [**Denim jacket**](#jacket)
+
+_Lilly’s Creator Summit adventures._
+
+The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
+
+![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+
+Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
+
+_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
+
+There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
+
+## 1\. A map of Dumbo
+
+The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
+
+_Tess takes you to some of her favorite places in Dumbo._
+
+Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+## 2\. Post Cards
+
+One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## 3\. S’well bottle
+
+S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+_thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Pins, pins, pins
+
+There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 6\. Denim jacket
+
+A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -442,6 +729,9 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
@@ -450,10 +740,18 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
@@ -466,168 +764,9 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
-
-Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
-
-* [**A map of Dumbo**](#dumbo)
-* [**Post Cards**](#postcards)
-* [**S’well bottle**](#bottle)
-* [**Branded slippers**](#slippers)
-* [**Pins, pins, pins**](#pins)
-* [**Denim jacket**](#jacket)
-
-_Lilly’s Creator Summit adventures._
-
-The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
-
-![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
-
-Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
-
-_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
-
-There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
-
-## 1\. A map of Dumbo
-
-The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
-
-_Tess takes you to some of her favorite places in Dumbo._
-
-Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-## 2\. Post Cards
-
-One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-## 3\. S’well bottle
-
-S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-_thinknoodles wearing his YouTube slippers._
-
-## 5\. Pins, pins, pins
-
-There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-## 6\. Denim jacket
-
-A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
-
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
-
-Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
-
-Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
-
-Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
-
-* [**A map of Dumbo**](#dumbo)
-* [**Post Cards**](#postcards)
-* [**S’well bottle**](#bottle)
-* [**Branded slippers**](#slippers)
-* [**Pins, pins, pins**](#pins)
-* [**Denim jacket**](#jacket)
-
-_Lilly’s Creator Summit adventures._
-
-The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
-
-![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
-
-Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
-
-_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
-
-There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
-
-## 1\. A map of Dumbo
-
-The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
-
-_Tess takes you to some of her favorite places in Dumbo._
-
-Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-## 2\. Post Cards
-
-One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-## 3\. S’well bottle
-
-S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-_thinknoodles wearing his YouTube slippers._
-
-## 5\. Pins, pins, pins
-
-There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-## 6\. Denim jacket
-
-A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
-
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
-
-Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
-
-Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
-
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -653,3 +792,43 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-instant-recording-sight-and-sound-fused-for-2024/"><u>[New] Instant Recording  Sight & Sound Fused for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-introduce-dynamic-blurring-to-pics-in-ps/"><u>[New] Introduce Dynamic Blurring to Pics in PS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leaping-from-low-quality-to-hdri-mastery-your-ultimate-guide/"><u>[New] Leaping From Low Quality to HDRI Mastery - Your Ultimate Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-estimation-of-digital-gains/"><u>[Updated] Effortless Estimation of Digital Gains</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-free-extraction-of-youtube-desktops/"><u>[Updated] Effortless Free Extraction of YouTube Desktops</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-guide-to-adding-banners-on-gaming-channels/"><u>[Updated] Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-guide-to-secure-and-free-youtube-music-downloads/"><u>[Updated] Effortless Guide to Secure and Free YouTube Music Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>[Updated] Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-harmony-creating-engaging-and-organized-youtube-playlists/"><u>[Updated] Effortless Harmony  Creating Engaging and Organized YouTube Playlists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[Updated] Effortless Keyword Harvesting  Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-media-transition-from-mp3-to-youtube-video-posting/"><u>[Updated] Effortless Media Transition  From MP3 to YouTube Video Posting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-methods-amp-up-your-yt-video-quality/"><u>[Updated] Effortless Methods  Amp Up Your YT Video Quality</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-music-extraction-choose-the-right-apps-for-youtube-and-mp3/"><u>[Updated] Effortless Music Extraction  Choose the Right Apps for YouTube & MP3</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-online-guide-youtube-video-to-gif-magic-no-download/"><u>[Updated] Effortless Online Guide  YouTube Video to GIF Magic (No Download)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-playlist-pivot-the-top-5-spotify-to-youtube-tools/"><u>[Updated] Effortless Playlist Pivot  The Top 5 Spotify-to-YouTube Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-sound-transformation-from-youtube-to-wav-format/"><u>[Updated] Effortless Sound Transformation From YouTube to WAV Format</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-spotify-to-youtube-playlist-conversion-5-must-have-apps/"><u>[Updated] Effortless Spotify-to-YouTube Playlist Conversion  5 Must-Have Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-subscriber-acquisition-for-enhanced-viewership/"><u>[Updated] Effortless Subscriber Acquisition for Enhanced Viewership</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-video-integration-into-blog-posts-and-essays/"><u>[Updated] Effortless Video Integration Into Blog Posts & Essays</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-video-streams-youtube-loops-for-television-viewers/"><u>[Updated] Effortless Video Streams  YouTube Loops for Television Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-video-uploads-with-ios-the-complete-youtube-guide/"><u>[Updated] Effortless Video Uploads with iOS  The Complete YouTube Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-way-to-personalize-your-youtube-channel-url/"><u>[Updated] Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[Updated] Effortless YouTube Content  Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-youtube-file-extraction/"><u>[Updated] Effortless YouTube File Extraction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-youtube-live-with-step-by-step-obs-guide-for-beginners/"><u>[Updated] Effortless YouTube Live with Step-by-Step OBS Guide for Beginners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-youtube-playback-downloading-content-to-idevices/"><u>[Updated] Effortless Youtube Playback  Downloading Content to iDevices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-maximize-your-youtube-shorts-earnings/"><u>[Updated] In 2024, How to Maximize Your YouTube Shorts Earnings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-guide-to-instagram-video-campaigns-strategy-and-execution/"><u>[Updated] The Ultimate Guide to Instagram Video Campaigns  Strategy and Execution</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/20-best-youtube-thumbnail-fonts-to-make-your-video-stunning-for-2024/"><u>20 Best YouTube Thumbnail Fonts to Make Your Video Stunning for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-vivo-v27-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-honor-x7b-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Honor X7b Phone When You Forget the Password</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/hand-drawing-whiteboard-animation-made-easy-top-tools-for-2024/"><u>Hand Drawing Whiteboard Animation Made Easy Top Tools for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Motorola Moto E13? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-highlighting-the-finest-video-grabbers-in-windows-10/"><u>In 2024, Highlighting the Finest Video Grabbers in Windows 10</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tiktok-hits-twitters-viral-top-10-list/"><u>TikTok Hits  Twitter's Viral Top 10 List</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/visionary-artists-top-5-innovative-photographers-plus-videographers-w-music/"><u>Visionary Artists  Top 5 Innovative Photographers + Videographers W/ Music</u></a></li>
+</ul></div>
