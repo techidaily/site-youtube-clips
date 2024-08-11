@@ -1,0 +1,178 @@
+---
+title: "\"[Updated] Chasing Likes and Loads  Jake Paul's YouTube Ambition\""
+date: 2024-08-10T05:15:38.284Z
+updated: 2024-08-11T05:15:38.284Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Chasing Likes and Loads: Jake Paul's YouTube Ambition\""
+excerpt: "\"This Article Describes [Updated] Chasing Likes and Loads: Jake Paul's YouTube Ambition\""
+keywords: "Youtube Growth Strategies,Influencer Popularity Boost,Content Creator Engagement,Social Media Success Tips,Viral Video Marketing,YouTube Viewership Goals,Likes & Views Balance"
+thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/filters:no_upscale():max_bytes(150000):strip_icc()/googleaskphotosai-dc323a4a137549d59c5ac6ff0f98eb7b.png
+---
+
+## Chasing Likes and Loads: Jake Paul's YouTube Ambition
+
+# Jake Paul's YouTube Success Story - All You Need to Know
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+There is a lot to learn about YouTube success from Jake Paul. With more than 300 hours of video uploaded onto YouTube every minute by more than ten million content creators, standing out from the competition and becoming a YouTube star can seem impossible. But, Jake Paul managed to achieve that in a short amount of time.
+
+### How Old Is Jake Paul?
+
+Twenty-three-year-old Jake Joseph Paul was born in Cleveland, Ohio, the U.S. on January 17, 1997, to realtor father Greg Paul and nurse mother, Pam Stepnick.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
+### Logan Paul and Jake Paul
+
+He and his older brother, Logan, grew up in Westlake, Ohio, and played a lot of football together growing up. Jake's childhood dream was to play for the NFL. Thinking they might enjoy filming themselves playing football, their father got them a camera. With this camera, Jake and his brother began filming themselves doing skits, pranks, and scripted videos.
+
+Jake's favorite YouTube channel at the time was "Smosh," featuring the comedic duo Ian Hecox and Anthony Padilla. Smosh was such an inspiration to them that the two Paul brothers started their own channel, "Zoosh" (notice the similar-sounding channel name?) - their old Zoosh channel and videos are still publicly available on YouTube.
+
+For the majority of his years in school, Jake was the class clown. As he got older, though, he focused on football and wrestling and made it into his school's varsity wrestling team. Around this time, Jake also began to contemplate what he would do after high school. Figuring he wanted to join the U.S. Navy SEALs, Jake started training for recruitment.
+
+But before Jake fully invested his energy into training for the U.S. Navy SEALS, his brother, Logan, convinced him to make videos with him again (by this time, Logan had already built up a large following on Vine, the short-form video hosting service).
+
+![jake-paul-and-his-brother-logan-paul](https://images.wondershare.com/filmora/article-images/jake-paul-and-his-brother-logan-paul.jpg)
+
+Image resource: [BBC NEWS](https://www.bbc.com/news/av/world-us-canada-42548207/logan-and-jake-paul-the-brothers-dominating-social-media)
+
+Together with his older brother Logan, Jake also amassed a large following and eventually began receiving paid sponsorships, at which point Jake realized that he could make a career out of video content creation.
+
+Curious, young, and adventurous, at the age of seventeen, after discussing with his mother, Jake dropped out of high school, put aside his pursuit to join the Navy SEALs, and moved to Los Angeles without much of a plan.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+### Jake Paul and Disney
+
+Not wasting a single day in L.A., Jake went straight to taking acting and improv classes, growing his social media, and networking with everyone he could meet in the entertainment industry. In 2015, Jake auditioned for Disney Channel's comedy series "Bizaardvark" and successfully landed the role of "Dirk." However, the Disney Channel grew more and more uncomfortable with Jake's growing image as an outrageous teenager. After Jake made it onto the KTLA 5 news for the noise complaints around his mansion, the Disney Channel fired him from Bizaardvark.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
+![Jake Paul and Disney](<https://images.wondershare.com/filmora/article-images/Jake> Paul disney-tubefilter.com.jpg)
+
+Image resource:tubefilter.com
+
+### Team 10
+
+In 2016, with all of his many exciting experiences, Jake put together a humorous and motivational memoir titled "You Gotta Want It." As his own social media channels kept on growing rapidly, Jake launched "**Team 10**," his own influencer management agency comprised of other teen social media influencers. In order to collaborate with one another more easily, they all moved in together to a Beverly Grove mansion that rents for $17,000 USD a month. After Jake publicized his address, the mansion attracted so many fans that neighbors filed multiple noise complaints and even contemplated filing a class-action public nuisance lawsuit against Jake.
+
+More than a home, the mansion became a film set. The teenage tenants filmed themselves pranking one another and being as outrageous as teenagers can possibly be.
+
+![Jake Paul and Team 10](https://images.wondershare.com/filmora/article-images/jake-paul-and-team-10.jpg.jpg)
+
+Image resource:venturebeat.com
+
+On May 30, 2017, Jake uploaded a rap music video with Team 10 titled "It's **Everyday Bro**." While Jake is no stranger to making popular videos, the number of views this music video garnered was on another level. The stark difference between the high production quality of the video and the unimpressive lyrical content may have been the perfect combination that catapulted the video's success.
+
+As it always happens with all videos that go viral, many YouTubers jumped on the bandwagon and made their own reaction videos to "It's Everyday Bro," mostly making fun of Jake. Some big-name YouTubers, including his own brother, even went as far as producing their own "diss track" music video. This drama created even more heavy traffic around Jake, which he cleverly responded with more video content.
+
+Despite all of these oppositions in his life, Jake continues to work hard to build his social media empire. Looking at all the many strategies he has already successfully executed from such a young age, and I have no doubts that Jake will continue to push the boundaries of social media and content creation in the years to come.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+## **What About Social Media Success Can We Learn From Jake Paul?**
+
+**[Quick Follower Growth](https://tools.techidaily.com/wondershare/filmora/download/) Through First-Mover Advantage**
+
+When a new social media service pops up, there's so much opportunity to quickly rack up a huge number of followers simply by being one of the early content creators on that platform. This was the case for the Paul brothers on Vine. After the fall of Vine, the Paul brothers were able to migrate their Vine fans over to YouTube.
+
+**[Know Your Audience](https://tools.techidaily.com/wondershare/filmora/download/)**
+
+Jake has a very good understanding of who his audience is. He knows that his audience is young. By knowing the age group that the majority of his audience falls under, Jake is then able to tailor his content in a way that captures his audience's attention most effectively. Through high-energy prank videos and daring stunts, Jake is able to supply his audience with the content that they want. As a YouTuber, you can get an idea of who your main audience is by accessing your channel's analytics.
+
+**Commitment To Consistent Delivery of Audience-Centered Content**
+
+Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
+### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-perfected-methods-for-capturing-live-hulu-on-different-devices/"><u>[New] 2024 Approved  Perfected Methods for Capturing Live Hulu on Different Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-banishing-black-edges-on-your-youtube-video/"><u>[New] Banishing Black Edges on Your YouTube Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-youtube-video-to-text-converters-on-line/"><u>[Updated] Best YouTube Video to Text Converters On-Line</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfectly-blended-hdr-your-guide-to-merging-in-adobe-lightroom/"><u>[Updated] Perfectly Blended HDR  Your Guide to Merging in Adobe Lightroom</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1-5-best-editors-apart-from-youtube-platform-for-2024/"><u>1-#5 Best Editors Apart From YouTube Platform for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-budget-friendly-methods-for-youtube-card-creation/"><u>2024 Approved  Budget-Friendly Methods for YouTube Card Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-a-personalized-youtube-pathway-to-viewers/"><u>2024 Approved  Crafting a Personalized YouTube Pathway to Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cutting-edge-screen-time-youtubes-top-movies-list/"><u>2024 Approved  Cutting Edge Screen Time  YouTube's Top Movies List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-economical-growth-methodology-subscribe-now/"><u>2024 Approved  Economical Growth Methodology - Subscribe Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-videos-seamlessly-using-youtube-studio-editor/"><u>2024 Approved  Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-unlocking-the-code-a-guide-to-your-own-special-tiktok-hash/"><u>2024 Approved  Unlocking the Code  A Guide to Your Own Special TikTok Hash</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-xiaomi-13t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/amplify-your-youtubes-interaction-with-emojis-for-2024/"><u>Amplify Your Youtubes' Interaction with Emojis for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-the-basics-advanced-techniques-for-improved-recordings-for-2024/"><u>Beyond the Basics  Advanced Techniques for Improved Recordings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-subscribers-on-a-shoestring-budget-for-2024/"><u>Boost Your Channel's Subscribers on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-11-pro-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 11 Pro Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-comedy-the-art-of-parody-videos-for-2024/"><u>Crafting Comedy  The Art of Parody Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decoding-the-art-of-engaging-in-youtube-short-forms-for-2024/"><u>Decoding the Art of Engaging in YouTube Short Forms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/editors-assistant-top-5-portable-devices-for-vfx-artists/"><u>Editor's Assistant  Top 5 Portable Devices for VFX Artists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-and-economical-the-best-free-youtube-name-generators-for-2024/"><u>Effortless & Economical  The Best Free YouTube Name Generators for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-brand-with-ai-enhanced-naming-solutions-for-2024/"><u>Elevate Your Brand with AI-Enhanced Naming Solutions for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engaging-audienranz-with-solo-visual-content-for-2024/"><u>Engaging Audienranz with Solo Visual Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465725108-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost/"><u>Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-free-to-fortune-the-500-sub-club/"><u>From Free to Fortune  The 500-Sub Club</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-building-direct-subscribe-urls-for-your-channel-market/"><u>In 2024, Building Direct Subscribe URLs for Your Channel' Market</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-chromatic-spectrums-captured-a-deep-dive-into-4k-blade-tech/"><u>In 2024, Chromatic Spectrums Captured  A Deep Dive Into 4K Blade Tech</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-youtube-masterpieces-with-powerful-hashtag-strategies/"><u>In 2024, Crafting YouTube Masterpieces with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-your-pathway-to-youtubes-maker-land/"><u>In 2024, Deciphering Your Pathway to YouTube's Maker Land</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>In 2024, Elevate Engagement  Enhancing Videos with Pro Editing Skills</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-pace-youtube-via-desktops-and-phones/"><u>In 2024, Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-webcam-tech-unveiled-best-recording-practices/"><u>In 2024, WebCam Tech Unveiled  Best Recording Practices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leading-8-linux-tools-for-seamless-editing/"><u>Leading 8 Linux Tools for Seamless Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716464755933-navigating-youtube-skip-the-top-8-novice-missteps/"><u>Navigating YouTube  Skip the Top 8 Novice Missteps!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/perfecting-posts-how-to-border-videos-on-instagram/"><u>Perfecting Posts  How to Border Videos on Instagram</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/playlist-embedding-on-sites-using-youtube-for-2024/"><u>Playlist Embedding on Sites Using YouTube for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/pro-audio-recordings-the-11-best-tools-for-live-events-for-2024/"><u>Pro Audio Recordings  The 11 Best Tools for Live Events for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/steps-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>Steps to Prevent Youtube Channels  Mobile and Desktop Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-youtube-edits-with-premiere-pro/"><u>The Essential Guide to YouTube Edits with Premiere Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/understanding-the-impact-of-youtube-money-changes/"><u>Understanding the Impact of YouTube Money Changes</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-essential-guide-incorporating-music-and-effects-into-your-videos-for-2024/"><u>Updated Essential Guide Incorporating Music and Effects Into Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubes-profit-distribution-to-content-makers/"><u>YouTube's Profit Distribution to Content Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/zippy-zenith-the-quickest-youtube-playlist-share/"><u>Zippy Zenith  The Quickest Youtube Playlist Share</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>

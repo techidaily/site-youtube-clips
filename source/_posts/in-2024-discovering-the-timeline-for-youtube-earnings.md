@@ -1,0 +1,507 @@
+---
+title: "In 2024, Discovering the Timeline for YouTube Earnings"
+date: 2024-08-10T05:14:19.741Z
+updated: 2024-08-11T05:14:19.741Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes In 2024, Discovering the Timeline for YouTube Earnings"
+excerpt: "This Article Describes In 2024, Discovering the Timeline for YouTube Earnings"
+keywords: "YouTube Earnings Timeline,Video Monetization Growth,Ad Revenue Tracking,Content Creator Profits,Earning Strategies Video,Earnings Forecast YouTube,Monetizing Videos Success"
+thumbnail: https://thmb.techidaily.com/8902585d66f327811523945d1407154d052552e159a549922c8c259267eab9e9.png
+---
+
+## Discovering the Timeline for YouTube Earnings
+
+Any YouTuber can earn passive income monthly if they’ve reached the YouTube Partner Programme (YPP) requirement? Yes, the YouTube Partner Program gives creators access to start generating revenue with their channel once they reach a minimum of 1,000 YouTube subscribers and 4,000 watch ours in the last twelve months.
+
+For anyone looking to start earning passive income via YouTube, but have the question, **“Does YouTube pay monthly?” The answer is YES YouTube pays monthly**. However, there are other things you must know if you want to start making money from YouTube. So, in this article, we will discuss all you need to know about how often YouTube pays and other YouTube monetization tips.
+
+1. [Affiliate Marketing](#part3-1)
+2. [Brand Sponsorship](#part3-2)
+3. [Selling Own Products or Services](#part3-3)
+
+* [More FAQs About How Much YouTubers Make](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+## Part 1: How Often Does YouTube Pay
+
+As mentioned earlier, YouTube pays monthly. It’s usually within the first 10-14 days of a new month (10th day or 14th day of a new month). However, to be able to receive your funds, you must reach the minimum threshold of your local currency as required by YouTube. For example, $100 for content creators within the United States.
+
+Also, you must comply with the YouTube monetization policies and not be suspended by YouTube in the past month.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How Does YouTube Pay – Typical Methods Used
+
+Research shows that YouTube’s average pay rate is within the range of $0.01 to $0.03 per ad view. This means for every 1,000 ad views, a YouTuber could earn $18, while for every 1,000 video views, you could earn $3 to $5\. You might ask “Does YouTube pay creators per view?’ Well, the answer is NO, YouTube doesn’t pay creators per view. They pay per monetized view.
+
+However, to get started making money per monetized views, you need to join the YouTube Partnership Program. As mentioned earlier, YouTube Partner Program (YPP) gives creators access to start generating revenue with their channel once they reach a minimum of 1,000 YouTube subscribers and 4,000 watch ours in the last twelve months. It gives creators access to different monetization features like advertising, merchandise sales, fan funding, and lots more.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### ● Earn Money Through Ad Views
+
+Advertisers pay for YouTube ads based on clicks and impressions, and YouTube monetizes creators' videos by displaying these ads in different advertising formats like pre-roll, display, etc. So, once these ads display in your video and your subscribers click on them, you get paid.
+
+As mentioned earlier, YouTube’s average pay rate is within the range of $0.01 to $0.03 per ad view, while for every 1,000 video views, you could earn $3 to $5\. But, out of the money earned, YouTube pays creators 55% and keeps the remaining 45%.
+
+With Ads, you can earn money based on every 1,000 views get from your video and the number of clicks you get on ads placed on your video. However, for ads to be displayed on your videos, you must adhere to YouTube’s creator guidelines, as videos that contain foul language, violence, adult content, and other unwanted subjects won’t have ads displayed on them.
+
+The image below displays the requirement to start displaying ads on your YouTube videos;
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube partnership program](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-1.jpg)
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: More Opportunities To Earn More Money From YouTube
+
+Besides ads, there are other ways to monetize your YouTube channel. You could also earn through a corporate sponsorship from brands, selling your products, etc. Keep reading to find out more ways to earn money from YouTube.
+
+### 1\. Affiliate Marketing
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+![youtube affilate marketing](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-2.jpg)
+
+You might have come across YouTube videos where the creators talk about their favorite brands and add links to the platform for the brand. Well, that’s a form of affiliate marketing.
+
+YouTube Affiliate marketing involves a creator reviewing a product like makeup, digital cameras, mobile phone, and lots more including services in their video. Plus, the links to the recommended product or services are usually added to the description of the video. So, once a viewer clicks on the link and purchases the product or service, the YouTuber gets a certain percentage of the money.
+
+If you get an affiliate link to a product on a platform, you can create a video relating to that product, then in your video description, you’ll add the affiliate link there. So, when anyone purchases the product using your affiliate link, you’ll get your percentage off the price they paid. On average, companies will be willing to pay within 5% to 50% of the purchase price.
+
+### 2\. Brand Sponsorship
+
+![youtube brand spinsorship](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-3.jpg)
+
+The fact YouTube is the most used video-playing platform makes it a great spot for businesses and organizations to promote their product or services. So, once you grow your YouTube subscribers to a certain level, you’ll receive emails from companies and brands to partner with you to sponsor their products or service. Honestly, there are lots of brands who will be happy to pay you to promote their products/services,
+
+Research shows that sponsorship deals are usually within the range of $200 to over $10k. It all depends on how the brand/organization is willing to cooperate. It could be pre-roll, post-roll, etc.
+
+Also, your YouTube channel data statistics such as total subscribers, average video impressions in the past months, likes, comments, and more are other factors that will determine how much brands will offer you to seal a sponsorship deal.
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
+### 3\. Selling Own Products or Services
+
+![sell products on youtube](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-4.jpg)
+
+Selling your products or services is another great way to monetize your YouTube channel. You could sell your merch, gaming tools, and other things related to the theme of the content you create for your loyal fans to purchase.
+
+If you don’t have a product, you could charge your viewers for exclusive content, sell online courses for dropshipping, sell cryptocurrency trading e-books, etc. The only thing is you need to have a large following to earn well from this YouTube monetization option.
+
+## Part 4: More FAQs About How Much YouTubers Make
+
+At this point, you should already have a brief idea of how YouTube monetization works. However, if you still want to discover more information, keep reading to check out more FAQs on how much YouTubers make.
+
+### 1\. Who is The Richest YouTuber?
+
+The richest YouTuber as of 2021 is Mr. Beast. He has made up to $54 million in revenue from his YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
+### 2\. Do YouTubers Get Paid Well?
+
+The rate at which YouTubers get paid depends on certain factors like the audience they aim for, how frequently they publish the nature of their material, and lots more. As we mentioned in the article, the average pay rate on YouTube is within the range of $0.01 to $0.03 per ad view, while for every 1,000 video views, you could earn $3 to $5\. Also, research shows that the highest-paying YouTube category is the “Make Money Online” category with an average CPM of $13.52.
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
+### 3\. How much does a YouTuber make a year?
+
+Honestly, there's no specific answer to how much a YouTuber makes a year. However, research shows that an average YouTuber makes up to $60,000 annually.
+
+## Final Words
+
+As you can see, there are different ways you could monetize your YouTube channel. Be it via affiliate marketing, ads, selling products, or more. Regardless of how you want to monetize your YouTube channel, the article has covered the basics you must know to make the process easier.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Part 1: How Often Does YouTube Pay
+
+As mentioned earlier, YouTube pays monthly. It’s usually within the first 10-14 days of a new month (10th day or 14th day of a new month). However, to be able to receive your funds, you must reach the minimum threshold of your local currency as required by YouTube. For example, $100 for content creators within the United States.
+
+Also, you must comply with the YouTube monetization policies and not be suspended by YouTube in the past month.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How Does YouTube Pay – Typical Methods Used
+
+Research shows that YouTube’s average pay rate is within the range of $0.01 to $0.03 per ad view. This means for every 1,000 ad views, a YouTuber could earn $18, while for every 1,000 video views, you could earn $3 to $5\. You might ask “Does YouTube pay creators per view?’ Well, the answer is NO, YouTube doesn’t pay creators per view. They pay per monetized view.
+
+However, to get started making money per monetized views, you need to join the YouTube Partnership Program. As mentioned earlier, YouTube Partner Program (YPP) gives creators access to start generating revenue with their channel once they reach a minimum of 1,000 YouTube subscribers and 4,000 watch ours in the last twelve months. It gives creators access to different monetization features like advertising, merchandise sales, fan funding, and lots more.
+
+### ● Earn Money Through Ad Views
+
+Advertisers pay for YouTube ads based on clicks and impressions, and YouTube monetizes creators' videos by displaying these ads in different advertising formats like pre-roll, display, etc. So, once these ads display in your video and your subscribers click on them, you get paid.
+
+As mentioned earlier, YouTube’s average pay rate is within the range of $0.01 to $0.03 per ad view, while for every 1,000 video views, you could earn $3 to $5\. But, out of the money earned, YouTube pays creators 55% and keeps the remaining 45%.
+
+With Ads, you can earn money based on every 1,000 views get from your video and the number of clicks you get on ads placed on your video. However, for ads to be displayed on your videos, you must adhere to YouTube’s creator guidelines, as videos that contain foul language, violence, adult content, and other unwanted subjects won’t have ads displayed on them.
+
+The image below displays the requirement to start displaying ads on your YouTube videos;
+
+![youtube partnership program](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
+## Part 3: More Opportunities To Earn More Money From YouTube
+
+Besides ads, there are other ways to monetize your YouTube channel. You could also earn through a corporate sponsorship from brands, selling your products, etc. Keep reading to find out more ways to earn money from YouTube.
+
+### 1\. Affiliate Marketing
+
+![youtube affilate marketing](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-2.jpg)
+
+You might have come across YouTube videos where the creators talk about their favorite brands and add links to the platform for the brand. Well, that’s a form of affiliate marketing.
+
+YouTube Affiliate marketing involves a creator reviewing a product like makeup, digital cameras, mobile phone, and lots more including services in their video. Plus, the links to the recommended product or services are usually added to the description of the video. So, once a viewer clicks on the link and purchases the product or service, the YouTuber gets a certain percentage of the money.
+
+If you get an affiliate link to a product on a platform, you can create a video relating to that product, then in your video description, you’ll add the affiliate link there. So, when anyone purchases the product using your affiliate link, you’ll get your percentage off the price they paid. On average, companies will be willing to pay within 5% to 50% of the purchase price.
+
+### 2\. Brand Sponsorship
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube brand spinsorship](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-3.jpg)
+
+The fact YouTube is the most used video-playing platform makes it a great spot for businesses and organizations to promote their product or services. So, once you grow your YouTube subscribers to a certain level, you’ll receive emails from companies and brands to partner with you to sponsor their products or service. Honestly, there are lots of brands who will be happy to pay you to promote their products/services,
+
+Research shows that sponsorship deals are usually within the range of $200 to over $10k. It all depends on how the brand/organization is willing to cooperate. It could be pre-roll, post-roll, etc.
+
+Also, your YouTube channel data statistics such as total subscribers, average video impressions in the past months, likes, comments, and more are other factors that will determine how much brands will offer you to seal a sponsorship deal.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Selling Own Products or Services
+
+![sell products on youtube](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-4.jpg)
+
+Selling your products or services is another great way to monetize your YouTube channel. You could sell your merch, gaming tools, and other things related to the theme of the content you create for your loyal fans to purchase.
+
+If you don’t have a product, you could charge your viewers for exclusive content, sell online courses for dropshipping, sell cryptocurrency trading e-books, etc. The only thing is you need to have a large following to earn well from this YouTube monetization option.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+## Part 4: More FAQs About How Much YouTubers Make
+
+At this point, you should already have a brief idea of how YouTube monetization works. However, if you still want to discover more information, keep reading to check out more FAQs on how much YouTubers make.
+
+### 1\. Who is The Richest YouTuber?
+
+The richest YouTuber as of 2021 is Mr. Beast. He has made up to $54 million in revenue from his YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+### 2\. Do YouTubers Get Paid Well?
+
+The rate at which YouTubers get paid depends on certain factors like the audience they aim for, how frequently they publish the nature of their material, and lots more. As we mentioned in the article, the average pay rate on YouTube is within the range of $0.01 to $0.03 per ad view, while for every 1,000 video views, you could earn $3 to $5\. Also, research shows that the highest-paying YouTube category is the “Make Money Online” category with an average CPM of $13.52.
+
+### 3\. How much does a YouTuber make a year?
+
+Honestly, there's no specific answer to how much a YouTuber makes a year. However, research shows that an average YouTuber makes up to $60,000 annually.
+
+## Final Words
+
+As you can see, there are different ways you could monetize your YouTube channel. Be it via affiliate marketing, ads, selling products, or more. Regardless of how you want to monetize your YouTube channel, the article has covered the basics you must know to make the process easier.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Elevate Your Online Presence: Making Videos on Mobile
+
+# How To Make YouTube Videos on Your Smartphone
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>[New] Enhance Your Videos  Effective Titles and Keywords on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-cutting-the-clutter-stopping-instagram-followers/"><u>[New] In 2024, Cutting the Clutter  Stopping Instagram Followers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earnings-explosion-how-to-maximize-income-on-youtube-shorts/"><u>[New] In 2024, Earnings Explosion  How to Maximize Income on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-professional-level-youtube-content-via-adobe-premiere/"><u>[New] In 2024, Professional-Level YouTube Content via Adobe Premiere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-youtube-universe-uproar/"><u>[New] In 2024, YouTube Universe Uproar</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>[Updated] Channel Cross-Promotion  The Art of Collaborative Co-Stars</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-comparative-study-youtube-app-on-smartphone-platforms/"><u>[Updated] Comparative Study  YouTube App on Smartphone Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-create-professional-minecraft-graphics/"><u>[Updated] Create Professional Minecraft Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-download-custom-mcb-banner-packs/"><u>[Updated] Download Custom MCB Banner Packs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-knowledge-the-dos-and-donts-on-youtube/"><u>[Updated] Essential Knowledge  The Do's and Don'ts on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-secrets-to-superior-sprouts-in-the-world-of-valheim/"><u>[Updated] In 2024, Secrets to Superior Sprouts in the World of Valheim</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-maximizing-your-ae-leading-text-plugins-reviewed/"><u>[Updated] Maximizing Your AE  Leading Text Plugins Reviewed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-a-celebrity-online-presence-nine-strategies-for-social-media-success/"><u>2024 Approved  Crafting a Celebrity Online Presence  Nine Strategies for Social Media Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-youtube-viewing-with-faster-or-slower-video-pace/"><u>2024 Approved  Enhancing YouTube Viewing with Faster or Slower Video Pace</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-film-techniques-on-youtube-by-future-visionaries/"><u>2024 Approved  Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-add-music-to-facebook-videos-find-the-guide-here/"><u>2024 Approved  How to Add Music to Facebook Videos? Find The Guide Here</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-innovate-how-you-connect-with-tech-best-text-interpretation-tools-on-mac/"><u>2024 Approved  Innovate How You Connect with Tech  Best Text Interpretation Tools on Mac</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-disrupted-copy-and-paste-on-windows-11/"><u>Addressing Disrupted Copy & Paste on Windows 11</u></a></li>
+<li><a href="https://win-dash.techidaily.com/asus-mousepad-driver-downloads-optimize-your-tracking-pad-performance-in-windows/"><u>ASUS Mousepad Driver Downloads: Optimize Your Tracking Pad Performance in Windows</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/az-screenscape-full-application-review-alternatives/"><u>AZ Screenscape  Full Application Review, Alternatives</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-practices-in-youtube-keyword-selection-for-2024/"><u>Best Practices in YouTube Keyword Selection for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/brevity-in-action-shortening-youtube-video-content-for-2024/"><u>Brevity in Action  Shortening YouTube Video Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-the-differences-in-youtubes-ownership-and-cc-models-for-2024/"><u>Charting the Differences in YouTube's Ownership and CC Models for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/choosing-a-champion-dslr-or-mirrorless-camera-in-2024/"><u>Choosing a Champion  DSLR or Mirrorless Camera, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/customizable-mcb-visuals-for-youtube-banners/"><u>Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://article-files.techidaily.com/cut-costs-gain-space-the-best-compiled-list-of-20-free-cloud-storages-1tbplus/"><u>Cut Costs, Gain Space  The Best Compiled List of 20 Free Cloud Storages (1TB+)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>Dividing Opinions  Is Mirrorless Better than DSLR for Vids?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diving-into-video-quality-dslr-vs-mirrorless-cameras-for-2024/"><u>Diving Into Video Quality  DSLR vs Mirrorless Cameras for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/do-youtubers-get-paid-monthly/"><u>Do YouTubers Get Paid Monthly?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>Earnings Escalation  Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flavorful-follows-top-food-vloggers-to-track/"><u>Flavorful Follows  Top Food Vloggers to Track</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-many-viewers-to-target-for-a-youtube-earning-journey/"><u>How Many Viewers to Target for a YouTube Earning Journey?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-advanced-techniques-for-high-quality-youtube-content/"><u>In 2024, Advanced Techniques for High-Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-asmr-viewers-essentials-explained/"><u>In 2024, ASMR Viewers' Essentials Explained</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>In 2024, Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-direct-from-google-meet-securely-live-stream-on-youtube/"><u>In 2024, Direct From Google Meet  Securely Live Stream on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-do-youtubers-get-paid-monthly/"><u>In 2024, Do YouTubers Get Paid Monthly?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>In 2024, Earnings Demystified  YouTube Shorts Revenue Split Explained</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-emoji-mastery-for-engaging-youtube-discussions/"><u>In 2024, Emoji Mastery for Engaging YouTube Discussions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-visibility-using-creator-studio-wisdom/"><u>In 2024, Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-pause-autoplay-on-youtube-suggested-videos/"><u>In 2024, Pause Autoplay on YouTube Suggested Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/kitchen-chronicles-filming-every-bite/"><u>Kitchen Chronicles  Filming Every Bite</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/master-fast-sharing-youtube-playlists-made-simple/"><u>Master Fast Sharing  YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/navigating-netflix-and-youtubers-how-jake-paul-succeeded-for-2024/"><u>Navigating Netflix & YouTubers  How Jake Paul Succeeded for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-youtubes-maker-central-interface/"><u>Navigating YouTube's Maker Central Interface</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-strategies-to-make-your-video-stand-out-with-effective-end-screens/"><u>Step-by-Step Strategies to Make Your Video Stand Out with Effective End Screens</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/steps-to-prevent-thumbnail-absence-on-shorts-videos/"><u>Steps to Prevent Thumbnail Absence on Shorts Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamlining-image-purity-via-photopea-methods-for-2024/"><u>Streamlining Image Purity via Photopea Methods for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-filmmakers-roadmap-creating-youtube-trailers-using-filmora/"><u>The Filmmaker's Roadmap  Creating YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleashing-your-channels-potential-increase-youtube-views/"><u>Unleashing Your Channel's Potential  Increase YouTube Views</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Honor Magic 5 Pro? | Dr.fone</u></a></li>
+</ul></div>

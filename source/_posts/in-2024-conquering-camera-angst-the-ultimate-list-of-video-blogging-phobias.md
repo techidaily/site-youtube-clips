@@ -1,0 +1,169 @@
+---
+title: "\"In 2024, Conquering Camera Angst  The Ultimate List of Video Blogging Phobias\""
+date: 2024-08-10T05:19:04.150Z
+updated: 2024-08-11T05:19:04.150Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes In 2024, Conquering Camera Angst: The Ultimate List of Video Blogging Phobias\""
+excerpt: "\"This Article Describes In 2024, Conquering Camera Angst: The Ultimate List of Video Blogging Phobias\""
+keywords: "Vlogging Anxiety,Filming Fears,Cam Angle Woes,Video Blogging Panic,Shoot Stress,Angst in Filming,Phobia of Cameras"
+thumbnail: https://thmb.techidaily.com/37c258031093435d71dd94d5151455426579049284afd82c0786b6e3dd815a4b.jpg
+---
+
+## Conquering Camera Angst: The Ultimate List of Video Blogging Phobias
+
+# 10 Common Vlogging Fears and How To Beat Them
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+All forms of creative expression that require you to put yourself out there for the world to see can be scary. But even though other forms of creative expression, like art and writing, may reflect something about the personhood of their creator, very few forms of creative expression seem to shine as much of a spotlight on who you are as a person as vlogging.
+
+When it comes to vlogging, it is your face, [voice](https://tools.techidaily.com/wondershare/filmora/download/), thoughts, and feelings that your audience sees and hears close-up. That is why vlogging can seem even more terrifying.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+![Vlogging Fears](https://images.wondershare.com/filmora/article-images/vlogging-fear.jpg)
+
+Below is a list of 10 of the most common fears people have with vlogging and ways to overcome them.
+
+### 1. Fear of Looking Stupid Talking To Your Camera
+
+It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
+
+My advice is to start with shorter conversations with your camera in public and gradually build your way up to longer ones or save all your longer talks for when you’re in a more private setting. Short conversations may include one simple sentence about where you are going. Then, in another separate recording, in a different setting with different people, you can explain why you’re going there. If you’ve never broken up your speech like this for your vlogs, you might wonder if this will make your vlogs look disjointed. But this is actually a technique (below) that can enhance your vlogs.
+
+As you continue to vlog in public more, you’ll become increasingly comfortable with it.
+
+### 2. Fear of Being Judged by Others
+
+After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
+
+You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3. Fear of Not Being Interesting Enough
+
+A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
+### 4. Fear of Your Lifestyle Not Being Exciting Enough
+
+When you look at the vlogs of many of the top YouTubers, their lives appear so action-packed. It’s hard not to think that all vlogs are meant to be very stimulating. But if you believe that that is the standard for vlogs, you might either be discouraged and drop vlogging altogether or you might try too hard to schedule your life around getting stimulating vlog content. Neither is a good option. Face your fear of your audience getting bored and just go ahead and vlog your lifestyle just as it is.
+
+### 5. Fear of Losing Your Authenticity
+
+When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 6. Fear of Your Production Not Being Good Enough
+
+Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+### 7. Fear of Failing To Get Big
+
+Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
+
+How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
+
+### 8. Fear of Being Distracted From the Moment
+
+Whether you’re vlogging or not, living in the present moment can already be a challenge with a smartphone. When something exhilarating happens, many of us feel compelled to pull out our phone to capture it, only to experience that fleeting moment through a small preview screen.
+
+Vlogging appears to take that to another level, especially if you’re using complicated equipment that takes more time to set up and if you’re trying to capture enough footage to produce an entire vlog out of one day. How could all that time devoted to capturing your footage not get in the way of your present moment?
+
+Well, like all hobbies, activities, and passions, vlogging does take time and you’re going to have to accept that it does. You may not know it now, but after giving vlogging a try, you may discover that you really enjoy it. And if you do, you won’t worry about missing out on life just as a painter who happens to be in the middle of his painting during a sunset wouldn’t worry about the sunset he’s missing out on.
+
+If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 9. Fear of Making Others Uncomfortable
+
+Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
+
+Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
+### 10. Fear of Permanently Leaving a Bad Mark
+
+Anything you make public over the internet, including vlogging, comes with the risk of making a permanent mark that won’t go away, even if you try to delete your original content later. That can definitely be a scary thing.
+
+Luckily, with vlogging, you still have a lot of control. In both filming and editing, you can choose to share whatever you’re comfortable with sharing with the rest of the world.
+
+In post-production, you can use some video editing software to [delete unwanted parts from the video](https://tools.techidaily.com/wondershare/filmora/download/) clip, [blur the video background](https://tools.techidaily.com/wondershare/filmora/download/), or adjust the video color. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is such a video editing software that has been widely used by many YouTubers; you can download it now and have a try.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-navigating-win10s-video-call-ecosystem-a-guide-to-using-zoom/"><u>[New] Navigating Win10's Video Call Ecosystem  A Guide to Using Zoom</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-unleash-the-power-of-messaging-mastering-pinning-on-discord/"><u>[Updated] Unleash the Power of Messaging  Mastering Pinning on Discord</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-unlocking-the-potential-of-your-ppt-with-professional-recording/"><u>[Updated] Unlocking the Potential of Your PPT with Professional Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-palette-of-pleasantness-five-winter-backgrounds-ideas/"><u>2024 Approved  A Palette of Pleasantness  Five Winter Backgrounds Ideas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-visual-excellence-aspect-ratio-mastery-on-youtube/"><u>2024 Approved  Achieving Visual Excellence  ASPECT RATIO Mastery on YOUTUBE</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>2024 Approved  Bring Playlists Down to YouTube  The 5 Best Conversion Resources</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-content-creators-preferences-vimeo-or-youtube/"><u>2024 Approved  Content Creators' Preferences  Vimeo or YouTube?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-your-rhythm-assembling-tailored-youtube-playlists-for-the-digital-age-webmobile/"><u>2024 Approved  Discover Your Rhythm  Assembling Tailored YouTube Playlists for the Digital Age (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dominate-the-digital-space-youtube-leadership/"><u>2024 Approved  Dominate the Digital Space  YouTube Leadership</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-efficient-tricks-to-scramble-youtube-playlists-pcphonetv/"><u>2024 Approved  Efficient Tricks to Scramble YouTube Playlists (PC/Phone/TV)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-narrative-flow-expert-tips-on-using-jump-cuts/"><u>2024 Approved  Elevate Narrative Flow  Expert Tips on Using Jump Cuts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-channel-a-gamers-blueprint-for-success/"><u>2024 Approved  Elevating Your Channel  A Gamers' Blueprint for Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-empowerment-in-entertainment-top-10-inspirational-women/"><u>2024 Approved  Empowerment in Entertainment  Top 10 Inspirational Women</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-esports-news-and-analysis-from-top-vloggers/"><u>2024 Approved  Esports News and Analysis From Top Vloggers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tricks-to-improve-mobile-streaming-quality-on-chrome-browser/"><u>2024 Approved  Tricks to Improve Mobile Streaming Quality on Chrome Browser</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary-for-2024/"><u>A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/android-and-ios-prime-asmr-software-options/"><u>Android & iOS  Prime ASMR Software Options</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-oppo-a79-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Oppo A79 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9-for-2024/"><u>Boost Your Projects' Quality  Rankings of the Best Free Editing Apps (Top 9) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-your-content-quality-essential-tips-for-youtube-users/"><u>Boosting Your Content Quality  Essential Tips for YouTube Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-down-the-barriers-to-knowing-your-fans-for-2024/"><u>Breaking Down the Barriers to Knowing Your Fans for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/can-youtube-sub4sub-really-enhance-viewing-experience/"><u>Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/chart-your-course-to-youtube-success-with-these-techniques-for-2024/"><u>Chart Your Course to YouTube Success with These Techniques for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-creation-in-todays-revenue-landscape-for-2024/"><u>Content Creation in Today’s Revenue Landscape for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/craft-channels-with-flair-unveiling-10-innovative-design-platforms-for-2024/"><u>Craft Channels with Flair  Unveiling 10 Innovative Design Platforms for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-title-effects-unlocking-creative-possibilities-for-2024/"><u>FCPX Title Effects Unlocking Creative Possibilities for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/from-passive-to-active-earnings-with-instagram-expertise-for-2024/"><u>From Passive to Active Earnings with Instagram Expertise for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-20-opening-melodies-in-animation/"><u>In 2024, Prime 20 Opening Melodies in Animation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-infinix-zero-5g-2023-turbo-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Infinix Zero 5G 2023 Turbo Phone Network-Ready</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagrams-essential-edits-the-definitive-list-of-apps-for-2024/"><u>Instagram's Essential Edits  The Definitive List of Apps for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465432385-investing-5-yields-hundreds-of-new-viewers-now/"><u>Investing $5 Yields Hundreds of New Viewers Now!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/sims-chronicles-uncut-expert-techniques-to-preserve-the-heart-of-your-gaming-life-in-sims-4/"><u>Sims Chronicles Uncut  Expert Techniques to Preserve the Heart of Your Gaming Life in Sims 4</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
