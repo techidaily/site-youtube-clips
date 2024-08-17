@@ -1,0 +1,196 @@
+---
+title: "In 2024, Collaboration Techniques in Video Making, Viewership Up"
+date: 2024-08-16T08:08:57.944Z
+updated: 2024-08-17T08:08:57.944Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes In 2024, Collaboration Techniques in Video Making, Viewership Up"
+excerpt: "This Article Describes In 2024, Collaboration Techniques in Video Making, Viewership Up"
+keywords: "\"Video Collabs Grow Views,Teamwork Boosting Viewer Count,Co-Creation Increases Watchers,Collaborative Filmmaking Hits Ratings,Joint Media Projects Skyrockets Audiences,Team Video Strategies Elevate Viewership,Shared Content Production, High Traffic\""
+thumbnail: https://thmb.techidaily.com/410b1a4d385c6e4b30f8c2bafd9b2a73f332bf6953f02a101819f0b8ffe4d954.jpg
+---
+
+## Collaboration Techniques in Video Making, Viewership Up
+
+# How to Make Collab Videos and Grow Your Channel?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
+
+* [**Choosing A Potential Partner**](#choose)
+* [**How to Contact A Partner**](#contact)
+* [**Types of collab videos**](#types)  
+  * [**Shout outs**](#shout)  
+  * [**Guest spots**](#guest)  
+  * [**Long-distance collabs**](#distance)
+* [**Getting the Most Out of Your Collaborations**](#getmore)
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Choosing A Potential Partner
+
+Before you think about how you’re going to approach someone you need to decide who you want to approach.
+
+A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
+
+![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+
+_Will Kitty get to collab with the big dog?_
+
+Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
+
+Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
+
+There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
+
+_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
+
+Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
+
+A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 2\. How to contact a partner
+
+Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
+
+Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
+## 3\. Popular Types of Collab Videos
+
+_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
+
+In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
+
+#### #1\. Shout outs
+
+In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
+
+I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
+
+#### 2\. Guest spots
+
+This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
+
+For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
+
+_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
+
+Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
+
+Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
+
+#### 3\. Long distance collabs
+
+_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
+
+Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Getting the Most Out of Your Collaborations
+
+Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
+
+Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
+
+![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
+
+_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
+
+ What have your experiences with YouTube collaborations been like?
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
+## Use Split-Screen Presets to Create Collab Videos in Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-day-jobs-and-digital-passion-striking-a-balance/"><u>[New] Day Jobs & Digital Passion  Striking a Balance</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-essential-steps-for-filming-using-logitech-webcam/"><u>[New] Essential Steps for Filming Using Logitech Webcam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-examining-youtubes-workflow-after-content-submission-for-2024/"><u>[New] Examining YouTube's Workflow After Content Submission for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-syncing-platforms-for-video-upload/"><u>[New] In 2024, Syncing Platforms for Video Upload</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-seamless-background-extraction-in-picsart-editing-for-2024/"><u>[New] Seamless Background Extraction in Picsart Editing for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-warzone-wonders-your-a-list-of-top-7-fps-adventures-for-2024/"><u>[New] Warzone Wonders - Your A-List of Top 7 FPS Adventures for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-bloodthirsty-horror-your-go-to-8-zombie-titles/"><u>[Updated] 2024 Approved  Bloodthirsty Horror  Your Go-To 8 Zombie Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-comprehending-the-language-of-youtube-seo/"><u>[Updated] Comprehending the Language of YouTube SEO</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-decoding-earnings-for-content-producers-on-short-form-platform/"><u>[Updated] Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-deleting-facebook-stories-laptop-and-mobile-guide-for-2024/"><u>[Updated] Deleting Facebook Stories  Laptop & Mobile Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>[Updated] Digital Makeup  Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-direct-conversion-convert-and-upload-mp3-songs-on-youtube/"><u>[Updated] Direct Conversion  Convert & Upload MP3 Songs on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-sites-for-fetching-video-intro-files/"><u>[Updated] Essential Sites for Fetching Video Intro Files</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-the-excitement-of-high-speed-photography-with-iphone/"><u>[Updated] Explore the Excitement of High-Speed Photography with iPhone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-fluid-fusion-combining-videos-for-a-unified-youtube-presence-for-2024/"><u>[Updated] Fluid Fusion  Combining Videos for a Unified Youtube Presence for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-voiceover-vitality-energizing-your-powerpoint-presentations-for-2024/"><u>[Updated] Voiceover Vitality  Energizing Your PowerPoint Presentations for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-guide-to-homemade-film-crafting-youtube-and-beyond/"><u>2024 Approved  A Guide to Homemade Film Crafting, YouTube & Beyond</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-constructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>2024 Approved  Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-convenient-method-to-design-original-shorts-thumbnails/"><u>2024 Approved  Convenient Method to Design Original Shorts Thumbnails</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-symphony-of-silence-breakers-crafting-your-own-custom-alerts-and-sounds-on-android/"><u>2024 Approved  The Symphony of Silence Breakers  Crafting Your Own Custom Alerts & Sounds on Android</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-13-mini-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 13 mini Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-quick-cut-channel-sequences/"><u>Crafting Quick-Cut Channel Sequences</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-samsung-galaxy-a54-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-online-privacy-youtubes-access-controls/"><u>Enhancing Online Privacy  YouTube's Access Controls</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-offline-android-games-for-uninterrupted-fun-for-2024/"><u>Essential Offline Android Games for Uninterrupted Fun for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-earnings-in-the-quick-flicks-of-youtube-shorts/"><u>In 2024, Boosting Earnings in the Quick Flicks of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-creative-components-free-youtube-visual-resources/"><u>In 2024, Creative Components  FREE YouTube Visual Resources</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-the-best-top-10-no-cost-cinema-treasures-online/"><u>In 2024, Discover the Best  Top 10 No-Cost Cinema Treasures Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-enhance-workflow-the-essential-list-of-8-scheduling-apps/"><u>In 2024, Enhance Workflow  The Essential List of 8 Scheduling Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/is-there-any-danger-in-employing-subforsub-for-youtube-popularity/"><u>Is There Any Danger in Employing Subforsub for YouTube Popularity?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mac-users-launch-your-own-sports-videography-hub/"><u>Mac Users  Launch Your Own Sports Videography Hub</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-privacy-in-media-cutting-out-unwanted-visibility/"><u>Mastering Privacy in Media  Cutting Out Unwanted Visibility</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfect-your-video-subtitles-on-youtube/"><u>Perfect Your Video Subtitles on YouTube</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solutions-fixing-persistent-latency-problems-in-forza-horizon-5/"><u>Solutions: Fixing Persistent Latency Problems in Forza Horizon 5</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-artful-swap-from-cold-scenes-to-cozy-vlogs/"><u>The Artful Swap From Cold Scenes to Cozy Vlogs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-10-vr-videos-on-youtube-to-have-immersive-experience-for-2024/"><u>Top 10 VR Videos on YouTube to Have Immersive Experience for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-rank-watcher-decode-youtube-trending-patterns/"><u>Top-Rank Watcher  Decode YouTube Trending Patterns</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-bsod-resolving-dxgkrnlsys-crash/"><u>Windows BSOD: Resolving dxgkrnl.sys Crash</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
