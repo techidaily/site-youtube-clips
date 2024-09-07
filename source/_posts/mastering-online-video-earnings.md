@@ -1,7 +1,7 @@
 ---
 title: "Mastering Online Video Earnings"
-date: 2024-08-16T08:10:53.505Z
-updated: 2024-08-17T08:10:53.505Z
+date: 2024-09-06T12:24:07.311Z
+updated: 2024-09-07T12:24:07.311Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/5cb2e70fe5fc4984663e55071f50818b86ad28c60
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Nov 01, 2022• Proven solutions
@@ -36,6 +42,18 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -48,16 +66,15 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -66,10 +83,6 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -81,7 +94,10 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Tips for Increasing YouTube Watch Time
 
@@ -90,7 +106,16 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Helpful Blog Posts
 
@@ -100,9 +125,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -111,6 +133,12 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

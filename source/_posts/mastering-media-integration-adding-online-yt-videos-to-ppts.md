@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Media Integration  Adding Online YT Videos to PPTs\""
-date: 2024-08-16T08:10:07.704Z
-updated: 2024-08-17T08:10:07.704Z
+date: 2024-09-06T12:24:08.184Z
+updated: 2024-09-07T12:24:08.184Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "\"YT PPT Integration,Online Video PPT,PPT Embedding Videos,Slideshows
 thumbnail: https://thmb.techidaily.com/778dacc021ae6d569afd3e62fa61bf15ba6fe429d937373bba78e772659986e3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mastering Media Integration: Adding Online YT Videos to PPTs
 
 # How to Embed a YouTube Video in PowerPoint
@@ -36,6 +42,12 @@ After understanding the benefits of have a video embedded to your presentation, 
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 1: Using YouTube Video’s URL
 
 Because every YouTube video has a URL (Uniform Resource Locator) that is unique for that particular clip, PowerPoint allows you to use it to embed the footage to any of its slides. The process is simple, and you can follow the steps given below to get this done:
@@ -51,16 +63,16 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -72,6 +84,18 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
 Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from the **Media** section in the right of the Ribbon, click **Video**, and then click **Online Video** to open the **Insert Video** box.
@@ -80,9 +104,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
 Microsoft Office 2016 has another lucrative feature that allows users to **embed YouTube video in PowerPoint** by searching its name. You can follow the steps given below to find the videos published on YouTube, and insert them to your presentation:
@@ -96,7 +117,10 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 4: Insert Video from PC
 
@@ -118,6 +142,12 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -133,9 +163,6 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
 #### 1\. Why Can’t I Embed a YouTube Video in PowerPoint 2010?
@@ -159,9 +186,6 @@ YouTube videos that you embed to your PowerPoint presentations can’t be played
 Although the above sections explain **how to embed a YouTube video in PowerPoint**, the process to do so may vary in different versions of Microsoft Office. Also, depending on what edition of the program you are using, embedding YouTube videos may or may not be supported according to the availability of the add-ins or updates that Microsoft has rolled out for that particular built of the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 

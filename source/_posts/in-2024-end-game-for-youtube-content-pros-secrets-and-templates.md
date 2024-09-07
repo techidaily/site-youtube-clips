@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, End Game for YouTube Content  Pros' Secrets & Templates\""
-date: 2024-09-06T06:25:06.439Z
-updated: 2024-09-07T06:25:06.439Z
+date: 2024-09-06T12:24:01.322Z
+updated: 2024-09-07T12:24:01.322Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,6 @@ keywords: "YouTubE SEO Guide,Keywords Optimization,Video Marketing Strat,Content
 thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c242c2210395cb978ced6a8dea.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## End Game for YouTube Content: Pros' Secrets & Templates
 
 # YouTube Outro Complete Guide \[+Best Makers & Templates\]
@@ -27,10 +21,10 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Richard Bennett
 
@@ -50,12 +44,6 @@ To get a sneak preview of what is entailed here; this guide has been subdivided 
 * [Part 4: How To Add An Outro To A Youtube Video](#part4)
 * [Part 5: Frequently Asked Questions about YouTube Outro](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: YouTube Outro Prerequisites
 
 In this part, we will learn what outros for YouTube are, the importance of land that distinguishes them from the intro. Also included are expert tips on how to make YouTube outro that attracts a hundred thousand subscribers in seven days included.
@@ -64,6 +52,12 @@ To understand what YouTube outro is and why you should add it to your videos, he
 
 ![youtube outro making guide](https://images.wondershare.com/filmora/article-images/youtube-outro-guide.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Section 1: What is a Youtube Outro?
 
 YouTube outro aka end screen is the last part of a video with a call to action statement, button or video suggestion to view other YouTube videos. In other words, it’s the last part of a video with calls to action links.
@@ -72,12 +66,6 @@ One of the most effective technical methods of optimizing YouTube videos is by a
 
 Why spend your time adding outro? You can add Outro to YouTube videos to direct viewers to your website, other selected videos, engage viewers for longer and to persuade them to subscribe to the channel. In short, most end screens have four elements incorporated into an outro: Channel, subscribe, Video playlist and a website link.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Section 2: Difference Between Outro and Intro
 
 Most YouTube videos have an intro and an outro. In this case, an intro is a short clip at the beginning of a YouTube video that introduces you to the viewers and your brand.
@@ -93,6 +81,12 @@ Even though video creators attach more emphasis on intros, both are both very cr
 | Attract viewers to the video                                    | Contains a call-action button         |
 | Showcases a brand, logo, business slogan or a statement mission |                                       |
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Section 3: YouTube Outro Requirements
 
 Just as their requirements for any video uploaded on YouTube, outros are no exception. For your outro to be interactive, observe the following requirements:
@@ -112,18 +106,6 @@ End screen templates comprise elements that are in different shapes and sizes. W
 
 ![youtube outro screen format](https://images.wondershare.com/filmora/article-images/youtube-outro-dimensions.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **3\. Outro Length**
 
 If you want to make your outro boring, make it long. So, how long should YouTube outro be? For your outros to have a high conversation rate, they should be approximately 10-20 seconds long. However, the length of your video should be the determining factor. A one-hour YouTube video can have a longer outro.
@@ -138,6 +120,12 @@ At this point, you should be already be having the best outro maker in mind - [*
 
 ![tips to make outro for YouTube](https://images.wondershare.com/filmora/article-images/youtube-outro-tips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. **Be relevant**
 
 The featured elements should be related to the video. Adding irrelevant elements your outro will most likely make the viewer click away.
@@ -158,6 +146,12 @@ Apart from being a good method of branding your channel, using similar outro on 
 
 It’s absolutely important to understand all the prerequisites related to YouTube outros. Make use of the tips and requirements explained above when making and adding YouTube end screens to achieve the best results.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Best 8 Intro And Outro Makers For YouTube
 
 If you are wondering how to make the best magnetic intro and converting outro for your YouTube videos, this is your best article for you. Whether it’s the free online intro maker or the YouTube outro maker free no watermark, just select one that suits you most from the below list.
@@ -170,6 +164,12 @@ Do you want to make HD YouTube intros and outros that will grow your channel? I 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This software has the simplest friendly interface that any new and expert video editor would understand easily. This is very important for you; to use the best intro or outro for your YouTube videos, download Filmora video editor to get access to Filmstock. There are plenty of free and editable YouTube intro and outro templates ready for download.
 
 Filmora is an all in one YouTube outro maker: you can download intro and outro templates, edit, add to your YouTube video and publish to your channel. There are innumerable backgrounds, transitions and effects to make an outro that matches the video colors, speed, and theme.
@@ -181,10 +181,10 @@ Quick fact – _Outromaker is highly preferred for adding YouTube end screens wi
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/outro-maker-interface.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 In spite of its pricey plans, Outro Maker continues to be more and more users due to its high genre of outro templates. Among the features included in this app are outro templates, YouTube mobile cards, and YouTube graphics.
 
@@ -196,6 +196,12 @@ _Quick fact – MotionDen is an online into and outro maker. To create YouTube i
 
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/motionden-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There are plenty of YouTube intro and outro templates for your marketing videos, showdown movies or hard sports videos. Only two pricing plans are available, namely $9.0/Video and $39/ month. Both plans produce HD intros and outros for YouTube and give access to directly publish to YouTube.
 
 To start creating end screens, creating an account is a requirement. MotionDen has rich text editing features and direct typography to edit your logo.
@@ -216,18 +222,6 @@ _Quick fact- Biteable is a free online YouTube outro creator. It’s compatible 
 
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/biteable-interface.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The clarity of the interface is enough to prove its simplicity and user-friendliness. The only requirement to use this app is registration. However, the free plan is limited to 10 projects per month, the basic content and 24/7 customer support. Its main limitation is any project under the free plan bears the Biteable watermark.
 
 Biteable Youtube outro template download feature contains 85,000 Shutterstock clips. There are four optional pricing plans. The free plan with limited features, Starter Plan for $29/mo, Pro Plan for $29/mo and Unlimited Plan for $49/mo. You can also subscribe annually.
@@ -248,12 +242,6 @@ _Quick fact – Animaker takes cognizance of human creative ability. You can, th
 
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/animaker-interface.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Animaker is among the world’s most used YouTube intro maker. It’s trusted by over 1000 big brands like Adidas, Google, UNICEF, and Uber. You can start with the free plan if it’s your first time then upgrade to the complex paid plans. The paid plans are Personal for $19/mo, Startup for $35/mo and Business for $59/mo.
 
 There are many features to look out for in Animaker. Some include 50+ backgrounds YouTube intro music, over 175 sound effects, custom font support and pre-designed templates.
@@ -264,12 +252,6 @@ _Quick fact – Video Jaguar is a cloud-based software used creating YouTube int
 
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/video-jaguar-interface.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This app's outro maker interface comes equipped with easy to use features like full HD intro and outro templates, licensed music and text editor. There are also plenty of royalty-free photos.
 
 Video Jaguar is majorly designed for marketers who specialize in video ads to grow their brand awareness.
@@ -298,6 +280,24 @@ Check this video tutorial. It's very easy and simple to make a YouTube outro. Fr
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How To Add An Outro To A Youtube Video
 
 To understand the whole end screen process we will continue with the Filmora video editing procedure.
@@ -309,18 +309,18 @@ To understand the whole end screen process we will continue with the Filmora vid
 ![how to make a youtube outro](https://images.wondershare.com/filmora/article-images/add-ontro-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3:** Click “Export” to save or upload the video on YouTube. You now have your video with an end screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 5: Frequently Asked Questions about YouTube Outro
 
@@ -335,12 +335,6 @@ YouTube Outro templates are helping websites grow their revenue by setting prici
 * [**Tube Arsenal**](https://tubearsenal.com/free-outro-maker/)
 * **[FilmoraTemplate](https://filmoratemplates.com/category/outro-templates/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Best Websites to Find YouTube Outro Songs
 
 Finding outro songs for YouTube is a bit challenging partly because not many YouTube [outro makers](https://tools.techidaily.com/wondershare/filmora/download/) have also songs on the website. Video creators also tend to use video audio in their end screens thereby reducing the demand for outro songs.
@@ -355,10 +349,10 @@ Despite their low demand, few websites continue to create YouTube outro songs li
 **You may also like:** [10 Best Sources to Download Free Outro Music \[No Copyright\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -371,10 +365,10 @@ Was this guide helpful to you? Kindly share your comments or thoughts on the soc
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 

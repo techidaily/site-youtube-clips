@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to Video Dimensions on the YT Platform"
-date: 2024-08-16T08:13:54.063Z
-updated: 2024-08-17T08:13:54.063Z
+date: 2024-09-06T12:24:03.985Z
+updated: 2024-09-07T12:24:03.985Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "Video YT Sizing Tips,YouTube Video Dimensions Guide,Optimize Video fo
 thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f440f8e4bb186694932a1b6e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Ultimate Guide to Video Dimensions on the YT Platform
 
 Yes, you are right. Social media is the platform that no one can refrain from in the current world of technology, news, events, and friends. One such platform gained so much popularity in the last few years. That is YouTube, a platform that is used worldwide for a multitude of purposes. Such as watching videos, uploading or sharing videos, tutorials, trends, series, coaching, serials, shorts videos, news, events, displaying ads, and lots more. No doubt, the list is endless.
@@ -22,6 +28,18 @@ Well, while dealing with YouTube videos, there is one most crucial point to keep
 
 ![youtube platform](https://images.wondershare.com/filmora/article-images/2021/youtube-platform.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Aspect ratio is simply the width to the height ratio for the screen. But it holds great value to create a difference while displaying YouTube Shorts Videos with proper ratio and size as it is only then that it will get proper attention and get trends.
 
 #### In this article
@@ -65,11 +83,13 @@ Also, by selecting the Expand option, the video will adjust itself to fill the e
 The world is moving swiftly, and with day passing, people want to complete their tasks as quickly as possible. The impact is seen in the field of the YouTube Video making process also with the introduction of YouTube Shorts. After following the short video trends of TikTok, this time YouTube appeared with its new feature YouTube Shorts, which allows a user to create a short video that ranges from 15 to 60 seconds. The only need is for a Smartphone and YouTube Application Shorts camera. And then you are good to go. Note that YouTube Shorts videos get searched and watched by people mainly through their phones.
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
 **Aspect Ratio:** Vertical format standard ratio is 9:16 (That fill up the entire screen vertically)
@@ -80,12 +100,30 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3 Aspect Ratios for YouTube Ads
 
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
 
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
 
 YouTube Video Aspect ratio and Proportions: 19:9 (640X360), 4:3 (480X360)
@@ -96,9 +134,6 @@ Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4 Think More about YouTube Aspect Ratio
 
 You have been listening about YouTube Screen size or YouTube Aspect Ratio so far many times. Now the biggest question is, how to adjust the Aspect Ratio of YouTube Video or Shorts?
@@ -106,9 +141,6 @@ You have been listening about YouTube Screen size or YouTube Aspect Ratio so far
 Are you puzzled?
 
 ![how to set aspect ratio](https://images.wondershare.com/filmora/article-images/2021/how-to-set-aspect-ratio.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yeah! Wait, there is the solution. Edit the aspect ratio of your video before uploading it under the YouTube Platform. For that purpose, there is one option named [Wondershae Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) That is used to provide you with the Aspect ratio editing and modification option.
 
@@ -123,20 +155,15 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
@@ -144,7 +171,16 @@ There is another option also, after launching the software, upload your project 
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 

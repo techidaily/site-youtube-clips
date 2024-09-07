@@ -1,7 +1,7 @@
 ---
 title: "The Changing Tide of YouTube Earnings"
-date: 2024-08-16T08:13:23.472Z
-updated: 2024-08-17T08:13:23.472Z
+date: 2024-09-06T12:24:04.528Z
+updated: 2024-09-07T12:24:04.528Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,12 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -48,15 +54,20 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
@@ -67,7 +78,10 @@ However, even if the immediate financial impact won’t be that financially sign
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Join The Conversation
 
@@ -79,15 +93,18 @@ Cough. Logan Paul. Cough.
 
 ####  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
 2. Link your videos together using cards and interactive end screens/outros.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -96,9 +113,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -106,10 +120,13 @@ I risk sounding cheesy here, but I hope nobody gives up on their dreams as creat
 How do you get subscribers, or increase your watch time? If you have any tips, share them with everyone! Also, make sure to let us know if there are any blog topics that might help you out with YouTube's new monetization rules.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

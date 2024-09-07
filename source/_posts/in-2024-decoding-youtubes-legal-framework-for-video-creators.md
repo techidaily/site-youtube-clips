@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding YouTube's Legal Framework for Video Creators"
-date: 2024-08-16T08:10:34.566Z
-updated: 2024-08-17T08:10:34.566Z
+date: 2024-09-06T12:24:07.665Z
+updated: 2024-09-07T12:24:07.665Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,12 @@ Remember that everything discussed in this article is only best practices and sh
 
 Now that we are set, let’s dive in:
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -46,9 +52,6 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -57,9 +60,6 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Types of Content That Meet Fair Use
 
 Some acceptable styles of videos that allow you to exercise fair use are:
@@ -76,6 +76,12 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
 If you are reading this, you may have already gotten a YouTube copyright strike.
@@ -94,6 +100,18 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -102,6 +120,12 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: 5 Ways to Avoid Copyright Strike
 
 It’s not always clear what YouTube deems fair use, but there are a few things you can do to improve your chances of meeting the qualification.
@@ -122,10 +146,6 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -138,10 +158,13 @@ If you ever notice that your content is being copied without your approval — i
 2. Click on “Report”
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
@@ -150,7 +173,10 @@ If you ever notice that your content is being copied without your approval — i
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 7: YouTube Copyright Match
 
@@ -181,10 +207,13 @@ I hope this article has clarified what you can and cannot do with copyrighted co
 Got any questions on YouTube copyright? Leave a comment below and we’ll help you answer it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

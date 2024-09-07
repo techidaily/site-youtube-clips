@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Elevating Your Video Content  YouTube to IGTV Transition\""
-date: 2024-09-06T06:25:06.239Z
-updated: 2024-09-07T06:25:06.239Z
+date: 2024-09-06T12:24:01.109Z
+updated: 2024-09-07T12:24:01.109Z
 tags:
   - ai video
   - ai youtube
@@ -21,10 +21,10 @@ thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Shanoon Cox
 
@@ -40,18 +40,6 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -63,10 +51,10 @@ Once you have the file, you can **create a new project** in Filmora and then aft
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
@@ -74,16 +62,16 @@ Go to the **Effects tab** and click on the **Background Blur** submenu if you wa
 
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
 
 Latest News: In Filmora V10.5 and later versions, there is a new feature called Auto-Reframe. This feature allows users to convert one video for different social media platforms based on the aspect ratio changing, and its features of detecting the moving object. Click the Analyze button, and Filmora will convert this 16:9 YouTube video to vertical 9:16 IGTV video automatically. And I can adjust frames to follow Yasmine’s movement to fine-tune the result.
@@ -91,27 +79,15 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
 YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
@@ -120,20 +96,32 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
 Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
@@ -148,6 +136,18 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.

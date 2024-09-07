@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Aspect Ratios Unveiled  A Complete YOUTUBE Manual\""
-date: 2024-08-16T08:11:56.012Z
-updated: 2024-08-17T08:11:56.012Z
+date: 2024-09-06T12:24:06.125Z
+updated: 2024-09-07T12:24:06.125Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,18 @@ YouTube is the platform that demands perfection, not in terms of the content of 
 
 ![youtube aspect ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Note:** YouTube Video Player can adjust the video size automatically to make it fit into the screen. Sometimes, doing so results in a bar's white or grey/black area along the edges.
 
 **●** YouTube Aspect Ratio for Desktop/PC Version:
@@ -58,19 +70,31 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2 YouTube Shorts Aspect Ratio
 
 The world is moving swiftly, and with day passing, people want to complete their tasks as quickly as possible. The impact is seen in the field of the YouTube Video making process also with the introduction of YouTube Shorts. After following the short video trends of TikTok, this time YouTube appeared with its new feature YouTube Shorts, which allows a user to create a short video that ranges from 15 to 60 seconds. The only need is for a Smartphone and YouTube Application Shorts camera. And then you are good to go. Note that YouTube Shorts videos get searched and watched by people mainly through their phones.
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
@@ -83,17 +107,29 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 3 Aspect Ratios for YouTube Ads
 
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
 
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
 
 YouTube Video Aspect ratio and Proportions: 19:9 (640X360), 4:3 (480X360)
@@ -104,9 +140,6 @@ Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Part 4 Think More about YouTube Aspect Ratio
 
 You have been listening about YouTube Screen size or YouTube Aspect Ratio so far many times. Now the biggest question is, how to adjust the Aspect Ratio of YouTube Video or Shorts?
@@ -129,17 +162,26 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 **●** So guys, finally, I hope now you are pretty sure about what is YouTube video ratio, its importance while dealing with videos, shorts, or posting any ads to promote your business. YouTube file size is something that is changing its dimensions as per the user experience and needs. In the last few years, the user base shifted from TV, desktop to phone, laptops, and smart devices. As a result, the aspect ratio also gets changed with time. Thus, having a proper understanding of adjusting the width and height of YouTube Videos to bring the dynamic vision to the video will create a real difference. Also, using Wondershare Filmora will open the door of options to modify your YouTube file size and many editing options along with.

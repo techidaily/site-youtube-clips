@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Videographer’s Accessory List - The Top 9 Essentials\""
-date: 2024-09-06T06:25:06.581Z
-updated: 2024-09-07T06:25:06.581Z
+date: 2024-09-06T12:24:01.475Z
+updated: 2024-09-07T12:24:01.475Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "\"Videography Basics,Pro Video Gear,Essential Camera Accessories,Film
 thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb1025ad045c8786c79687920a30.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Ultimate Videographer’s Accessory List - The Top 9 Essentials
 
 # Smartphone Camera Accessories Vloggers Should Try to Improve Recording
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -59,37 +41,31 @@ Vlogging uses a lot more power. If you’re planning to vlog all throughout your
 
 ![Arkon Tripod Mount](https://images.wondershare.com/filmora/article-images/best-smartphone-camera-accessories-tripod-mount.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The Arkon tripod mount is a great portable tripod option that you can get at the fair price of around $20 USD. Not only does it have bendable legs, like the more expensive Joby GorillaPod tripod, that you can wrap around all kinds of structures, but it also comes with the smartphone mount, which Joby sells separately. Another great thing about the Arkon tripod is that its smartphone mount can be rotated so that you can position your phone to film in either widescreen or portrait mode.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Mega Tiny Anti-Gravity Case
 
 ![Mega Tiny Anti-Gravity Case](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-anti-gravity-case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 For all the flat surfaces that the bendable legs of the Arkon tripod mount can’t wrap around, Mega Tiny’s anti-gravity cases will do the job of holding your iPhone or Android phone in one fixed position. These cases can stick to glass, mirrors, metal, and more. They range from $20 to $30 USD.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. FLII Selfie Ring Light
 
@@ -97,6 +73,12 @@ For all the flat surfaces that the bendable legs of the Arkon tripod mount can�
 
 As much as smartphone camera technology has advanced, phone cameras still underperform when it comes to filming video in low-light. In low-light, your footage is very grainy because your phone is equipped with a small camera sensor, an engineering choice by the manufacturers to keep the size of the phone small. A handy accessory that you can use to get more light is the FLII selfie ring light. This ring light clamps onto your phone and emits a neutral white light. You can clamp this light to either side of your phone, depending on whether you want to use your rear-facing camera or your front-facing camera. This selfie ring light sells for around $16 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. RODE VideoMic Me
 
 ![RODE VideoMic Me](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-microphone.jpg)
@@ -104,10 +86,10 @@ As much as smartphone camera technology has advanced, phone cameras still underp
 The mic that is already built into your phone is equally sensitive to the sounds that come from behind the phone as it is to the sounds that are in front of the phone. This can be problematic when you’re trying to vlog in selfie mode while there’s a loud concert on the other side. One smartphone accessory that can improve the sound that you record from your phone in these situations is the RODE VideoMic Me. This mini directional shotgun mic plugs right into your phone’s headphone jack and sells for around $60 USD. In windy conditions, the dead cat windshield that it comes with does a great job of minimizing noise from the wind. In quiet, indoor conditions where you are the only person speaking, this device performs no better than your phone’s internal microphone. Your phone will also have to be in airplane mode to prevent the Rode VideoMic Me from recording unwanted clicking noise caused by background processes performed by your phone. So you wouldn’t want to use this for livestreaming.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 6\. Aukey Optic 3-in-1 Smartphone Lens Set
 
@@ -115,23 +97,41 @@ The mic that is already built into your phone is equally sensitive to the sounds
 
 Aukey makes a 3-in-1 lens set that you can clamp onto your smartphone so that you can vlog at different focal lengths. The 3-in-1 set comes with a wide-angle lens, a fisheye lens, and a macro lens. The clamp it comes with is long enough for these lenses to reach any camera on a smartphone, not just those of iPhones which are positioned close to the phone’s outer edge. To get the most out of these lenses, you’ll have to use them without your phone’s protective case on. Although you are free to use this lens set on either your phone’s rear-facing camera or front-facing camera, the metal housing of these lenses is likely to show up in your footage when you use them with your front-facing camera. So, instead of having your recorded image stretch to the ends of a 16:9 ratio rectangular frame, your recorded image will look as if it is contained inside a circle. This lens set sells for around $30 USD.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7\. iOgrapher Go for Android and iPhone
 
 ![iOgrapher Go](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-iographer-go.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 There’s many more accessories that you can take advantage of if you don’t limit yourself to just smartphone camera accessories. Sound and lighting equipment made for stand-alone cameras perform much better too. Many of these accessories are meant to connect to the camera “shoe” (a bracket on top of the camera that accessories can be attached to). Smartphones don’t come with these kinds of shoes. So, to take advantage of these higher quality accessories, you’ll need some kind of camera rig for your smartphone that also comes with shoes. The iOgrapher Go offers this at around $60 USD. This accessory comes with three shoes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 8\. Manfrotto TwistGrip System
 
@@ -140,21 +140,21 @@ There’s many more accessories that you can take advantage of if you don’t li
 Manfrotto’s TwistGrip System does a similar job to the above iOgrapher Go. This system also comes with three shoes. An advantage the TwistGrip System has over the iOgrapher Go is that it is much more portable. Its three connected parts can be detached to take up less space in your bag. This system sells for around $50 USD.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 9\. Zhiyun Smooth-Q 3-Axis Handheld Gimbal Stabilizer for Smartphones
 
 ![Zhiyun Smooth-Q](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-gimbal-stabilizer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal stabilizer. This gimbal is very effective in helping you record smooth video. Using the app that it comes with, you can even preset this gimbal to smoothly pan and rotate from a starting position to an ending position, giving you the opportunity to film beautiful time lapses. You can get this device at around $100 USD.
 
 ### Polish Your YouTube Videos with Filmora
@@ -163,8 +163,26 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

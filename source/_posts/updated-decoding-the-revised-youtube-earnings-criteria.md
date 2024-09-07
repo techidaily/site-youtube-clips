@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Decoding the Revised YouTube Earnings Criteria"
-date: 2024-08-16T08:09:56.374Z
-updated: 2024-08-17T08:09:56.374Z
+date: 2024-09-06T12:24:08.384Z
+updated: 2024-09-07T12:24:08.384Z
 tags:
   - ai video
   - ai youtube
@@ -24,12 +24,24 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1\. Introduction to YouTube Monetization: What You Need to Know**
 
 YouTube monetization refers to earning money from the content uploaded on the platform. It is the ability to derive income from the videos you have uploaded on your YouTube channels. The YouTube policies for monetization clearly stipulate what you need to start making money on the platform.
 
 ![what is youtube monetization](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After passing the YouTube requirement for monetization, your channel can generate revenue in several ways:
 
 * **YouTube Ads:** The most common way of earning money from YouTube. After passing the eligibility criteria, YouTube displays ads on your videos. You then earn income every time a viewer watches it for a certain amount of time or clicks on it.
@@ -39,9 +51,10 @@ After passing the YouTube requirement for monetization, your channel can generat
 * **Brand Deals**: YouTubers partner with brands to promote products or services. Brand deals can also include sponsorships and product placement.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Part 2\. YouTube New Monetization Policies 2023: Key Updates**
 
@@ -51,6 +64,12 @@ The YouTube monetization policies update on June 13th, 2023 provided a new oppor
 
 ![updated eligibility criteria](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-2.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The new eligibility criteria are more inclusive and require your channel to have:
 
 * At least 500 subscribers
@@ -63,21 +82,26 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 * Fan funding through channel memberships, super chats, super thanks, and super stickers
 * Access to Creator Support
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### **Applicability of the Old Standards**
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
 
 ![updated old standards](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-3.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 That said, the 2023 new YouTube monetization requirements are a great addition to creators’ journey. Creators who have applied for early access to fun funding are not required to reapply after qualifying for full monetization.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **Additional Policies and Guidelines**
 
 Apart from the new monetization rules for YouTube 2023, other policies and guidelines remain the same. Youtubers are required to adhere to the following YouTube channel monetization policies:
@@ -96,17 +120,20 @@ Ad revenue is the most sustainable form of monetization. Creators don’t have t
 
 ![shorts revenue sample](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-4.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Streamers usually have a higher watch time than the number of subscribers they have. So, the new policy will allow YouTubers will a low following to earn from streaming their content. Short creators will benefit from the high number of views shorts tend to generate.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ### **New Policies Make YouTube More Competitive**
 
 The new YouTube channel monetization rules will not only benefit creators. By making it easier for creators to earn on the platform, YouTube is becoming more competitive amongst other platforms. These policies will make YouTube dominate the traditional long-form videos, as well as the emerging shirt-form content. More creators find the new policies more friendly and are more willing to put their content on the platform.
@@ -115,9 +142,6 @@ The new YouTube channel monetization rules will not only benefit creators. By ma
 
 The new YouTube channel monetization rules will be great for advertisers. They will no longer have to worry about their ads showing up on videos that are inappropriate or fly-by-night. The quality of channels where the ads show will be much better. This means that advertiser will have their ads placed on channels of nano- and micro-influencers. These are more likely to have a loyal following and are more likely to act on the adverts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **Creators Ability to Monetize their Channels**
 
 The new policies make it easier for more creators to monetize their channels. Since this is the goal of every creator, it will be an opportunity for more people to start committing to their YouTube career. With the new ways of making money being introduced, more YouTubers will be able to generate revenues from their channels.
@@ -135,32 +159,44 @@ Wondershare Filmora is a versatile video editing software that helps creators re
 Filmora has all the features in one place, which makes it easy and quick to edit videos. From improving the quality of your audio to enhancing your visuals, here are 5 features you need to explore:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **1\.** [**Preset Templates**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Filmora gives you a quick and easy start to your creative video editing journey. Select from the readily available templates or save your own video templates for future use.
 
 ![preset templates](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-5.JPG)
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2\.** [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Quickly add relevant texts to your videos. You can include captions or subtitles, choosing the font style and other formatting as desired.
 
 ![add text to video](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-6.JPG)
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **3\.** [**AI Smart Cutout**](https://images.wondershare.com/filmora/guide/filmora-ai-smart-cutout-images-on-windows-04.png)
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **4\.** [**Adjustment Layer**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -169,12 +205,21 @@ The adjustment layer is a great feature on Filmora that allows you to add effect
 ![adjustment layer](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-7.JPG)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **5\.** [**Text to Speech**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voiceovers. A great feature to bring more elements that enrich your video experience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Conclusion**
 
 The new YouTube monetization policy 2023 has created more opportunities for creators to make money on the platform. Creators of Shorts or those who love to stream on the platform now have an easier way to monetize their channels. To get the best out of this opportunity, we recommend using Wondershare Filmora for your video editing projects. Explore the available features, and create long- or short-form videos that will stand out on YouTube.
@@ -182,11 +227,13 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-4-ways-to-record-sims-4-gameplay/"><u>[New] 2024 Approved  4 Ways to Record Sims 4 Gameplay</u></a></li>
