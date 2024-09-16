@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-09-10T22:35:04.329Z
-updated: 2024-09-11T22:35:04.329Z
+date: 2024-09-11T18:28:56.489Z
+updated: 2024-09-16T16:46:13.546Z
 tags:
   - ai video
   - ai youtube
@@ -32,20 +32,6 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -58,19 +44,18 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -86,20 +71,6 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -114,45 +85,18 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 8\. Spamming comments
 
@@ -164,19 +108,12 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -184,44 +121,21 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-expedition-to-youtubes-unseen-layers/"><u>[New] A Step-by-Step Expedition to YouTube's Unseen Layers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-building-connections-through-collaborative-playlists/"><u>[New] Building Connections Through Collaborative Playlists</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-building-mental-armor-against-online-critics/"><u>[New] Building Mental Armor Against Online Critics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-clear-audio-crystal-clear-view-premium-webcams-for-podcasts-for-2024/"><u>[New] Clear Audio, Crystal-Clear View  Premium Webcams for Podcasts for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-a-profitable-youtube-content-strategy/"><u>[New] Crafting a Profitable YouTube Content Strategy</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-deciphers-for-digital-content-creators-youtubes-keyword-techniques/"><u>[New] Deciphers for Digital Content Creators  YouTube's Keyword Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-steps-for-starting-a-youtube-channel/"><u>[New] Essential Steps for Starting a YouTube Channel</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-latest-tricks-for-ios-screenshots-and-recording/"><u>[New] In 2024, Latest Tricks for iOS Screenshots & Recording</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-amplify-audience-connection-best-creative-reacting-techniques/"><u>[Updated] Amplify Audience Connection  Best Creative Reacting Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-charting-the-future-essential-online-stock-yts/"><u>[Updated] Charting the Future  Essential Online Stock YTs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-does-quick-subscribe-strategy-boost-audience-growth/"><u>[Updated] Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-effortlessly-journey-to-your-custom-designed-music-library-on-youtube/"><u>[Updated] Effortlessly Journey to Your Custom-Designed Music Library on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-beginners-pathway-building-a-simple-youtube-signup/"><u>2024 Approved  A Beginner’s Pathway  Building a Simple YouTube Signup</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/80plus-catchy-cooking-channel-names-to-attract-more-audience/"><u>80+ Catchy Cooking Channel Names to Attract More Audience</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-filmmakers-guide-to-mastering-green-screen-technology-for-2024/"><u>A Filmmaker's Guide to Mastering Green Screen Technology for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-step-by-step-strategy-to-design-engaging-youtube-teasers-for-2024/"><u>A Step-by-Step Strategy to Design Engaging YouTube Teasers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-breakthrough-unveiling-gpt-4s-potential-to-transform-diy-endeavors/"><u>AI Breakthrough: Unveiling GPT-4's Potential to Transform DIY Endeavors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
-<li><a href="https://driver-install.techidaily.com/direct-route-to-flawless-nvidia-drivers-revision/"><u>Direct Route to Flawless Nvidia Drivers Revision</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-matchmake-for-maximum-viewership-on-youtube/"><u>How to Matchmake for Maximum Viewership on YouTube</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>In 2024, Audio Clarity  10 Pro Tips for High-Quality Recordings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audiovisual-rhythm-optimal-dj-content-for-gatherings/"><u>In 2024, Audiovisual Rhythm  Optimal DJ Content for Gatherings</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/iphone-text-replacements-made-easy-introducing-voice-messaging-techniques/"><u>IPhone Text Replacements Made Easy: Introducing Voice Messaging Techniques</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/premium-download-assist-ff-friendly-fb-addons-for-2024/"><u>Premium Download Assist - FF-Friendly FB Addons for 2024</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-camon-20-premier-5g-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Camon 20 Premier 5G on Mac</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/self-animated-wonders-cutting-edge-techniques-for-you/"><u>Self-Animated Wonders  Cutting Edge Techniques for You</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/smooth-integration-of-youtube-playlists-via-web-tech/"><u>Smooth Integration of YouTube Playlists via Web Tech</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-eradicating-stubborn-folders-on-your-desktop-using-revo-uninstaller-for-windows-users-10-and-11/"><u>Step-by-Step Tutorial: Eradicating Stubborn Folders on Your Desktop Using Revo Uninstaller for Windows Users (10 & 11)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlock-youtube-insights-via-social-blade-mastering-your-video-metrics/"><u>Unlock YouTube Insights via Social Blade  Mastering Your Video Metrics</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/apewav/"><u>APEファイルからWAVへの容易で成功率高い変換手法トップ２</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beware-the-risk-in-fake-followers-on-youtube/"><u>In 2024, Beware The Risk in Fake Followers on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-edit-like-a-championtop-strategies-for-beginner-youtubers/"><u>In 2024, Edit Like a Champion—Top Strategies for Beginner YouTubers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-issues-with-your-laptops-keyboard-tips-and-solutions/"><u>Resolving Issues with Your Laptop's Keyboard - Tips & Solutions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-iphone-volume-buttons-7-essential-repair-tips-you-must-try/"><u>Reviving iPhone Volume Buttons: 7 Essential Repair Tips You Must Try</u></a></li>
+</ul></div>
+

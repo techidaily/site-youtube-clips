@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-09-10T22:35:06.223Z
-updated: 2024-09-11T22:35:06.223Z
+date: 2024-09-11T19:04:57.209Z
+updated: 2024-09-16T18:10:46.803Z
 tags:
   - ai video
   - ai youtube
@@ -46,20 +46,6 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -117,34 +103,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -158,37 +116,23 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -198,19 +142,12 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -218,50 +155,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-converter-mp4-to-facebook-social-media-pro/"><u>[New] 2024 Approved  Top Converter  MP4 to Facebook (Social Media Pro)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-a-peek-into-the-heart-of-youtubes-video-operations/"><u>[New] A Peek Into the Heart of YouTube's Video Operations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-best-freefire-youtube-hashtags-and-tips-for-youtube-gaming-videos/"><u>[New] Best FreeFire YouTube Hashtags and Tips For YouTube Gaming Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-collect-free-image-resources-via-top-4-online-stock-hubs/"><u>[New] Collect Free Image Resources Via Top 4 Online Stock Hubs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-grab-your-favorite-facebook-videos-today/"><u>[New] In 2024, Grab Your Favorite Facebook Videos Today</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-10-ultimate-immersive-vr-video-hits/"><u>[Updated] 10 Ultimate Immersive VR Video Hits</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-ascend-video-rankings-top-seo-gadgets-revealed/"><u>[Updated] Ascend Video Rankings – Top SEO Gadgets Revealed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comedic-choreography-producing-funny-mock-films/"><u>[Updated] Comedic Choreography  Producing Funny Mock Films</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creating-channel-names-that-capture-attention/"><u>[Updated] Creating Channel Names That Capture Attention</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless/"><u>[Updated] Deciding on the Best Videography Camera Type  DSLR or Mirrorless?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-delightful-digests-a-list-of-top-food-channels/"><u>[Updated] Delightful Digests  A List of Top Food Channels</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-capture-youtube-video-in-screenshot-forms-for-free/"><u>2024 Approved  Capture YouTube Video in Screenshot Forms for Free</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-secrets-unveiled-the-ultimate-strategies-for-saving-disco-livestreams/"><u>2024 Approved  Secrets Unveiled  The Ultimate Strategies for Saving Disco Livestreams</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/5-inspirational-winter-bgs-to-heat-your-videos/"><u>5 Inspirational Winter Bgs to Heat Your Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-meizu-21-pro-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Meizu 21 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-youtube-thumbnails-a-step-by-step-guide-for-2024/"><u>Crafting Engaging YouTube Thumbnails  A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/disabling-sticky-keys-feature-in-windows-a-step-by-step-guide/"><u>Disabling Sticky Keys Feature in Windows: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/educational-synergy-enhancing-learning-with-youtube-videos/"><u>Educational Synergy  Enhancing Learning with YouTube Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortlessly-journey-to-your-custom-designed-music-library-on-youtube/"><u>Effortlessly Journey to Your Custom-Designed Music Library on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elite-screening-pacts-how-to-choose-a-cms-for-2024/"><u>Elite Screening Pacts  How to Choose a CMS for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-vids-summary-uncovered/"><u>Essential Vids Summary Uncovered</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-xcover-6-pro-tactical-edition-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy XCover 6 Pro Tactical Edition? Try These Fixes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-compelling-proposals-a-famebit-guide-to-channel-ads/"><u>In 2024, Crafting Compelling Proposals  A FameBit Guide to Channel Ads</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-video-quality-editing-tips-for-published-content/"><u>In 2024, Enhancing Video Quality  Editing Tips for Published Content</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Infinix GT 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-xiaomi-redmi-note-12-proplus-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Xiaomi Redmi Note 12 Pro+ 5G Phone? Unlock It Now</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-pixels-lighting-setup-secrets-unveiled/"><u>In 2024, Perfecting Pixels  Lighting Setup Secrets Unveiled</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-full-capabilities-of-windows-11/"><u>In 2024, Unlocking the Full Capabilities of Windows 11</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-youtube-comment-finder-you-should-try/"><u>In 2024, YouTube Comment Finder You Should Try</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/masterclass-in-free-videochats-and-collaborative-screensharing/"><u>Masterclass in FREE Videochats & Collaborative Screensharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mini-youtube-content-explained/"><u>Mini YouTube Content Explained</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/swaying-scripts-an-introduction-to-bouncy-text-animations/"><u>Swaying Scripts  An Introduction to Bouncy Text Animations</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/tasteful-tabloids-best-websites-to-get-aesthetic-wallpaper-for-laptops/"><u>Tasteful Tabloids  Best Websites to Get Aesthetic Wallpaper for Laptops</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-the-secrets-to-successful-rapid-subscribing-on-youtube/"><u>Unlocking the Secrets to Successful Rapid Subscribing on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-youtubes-central-hub-for-video-crafting/"><u>Unlocking YouTube's Central Hub for Video Crafting</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/why-stellar-repair-for-video-doesnt-work-properly-on-some-of-my-files/"><u>Why Stellar Repair for Video Doesn’t Work Properly on Some of My Files?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-thumbnails-revamped-creative-bg-ideas-unveiled/"><u>YouTube Thumbnails Revamped  Creative BG Ideas Unveiled</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-epic-recordings-the-best-timelapse-software/"><u>[New] 2024 Approved Epic Recordings The Best Timelapse Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-designing-short-trailers-that-tell-a-story/"><u>[New] Designing Short Trailers That Tell a Story</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-10-igtv-channels-you-should-start-following-now/"><u>[New] Top 10 IGTV Channels You Should Start Following Now</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-swiftly-address-iphone-photography-blur/"><u>[Updated] 2024 Approved Swiftly Address iPhone Photography Blur</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/brush-up-your-youtube-videos-with-color-correction/"><u>Brush Up Your Youtube Videos with Color Correction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clear-distraction-free-viewing-of-old-youtube-content/"><u>Clear, Distraction-Free Viewing of Old YouTube Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-continuous-freezing-in-tormented-souls-for-pc-users/"><u>How to Fix Continuous Freezing in Tormented Souls for PC Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-6s-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 6s Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/privacy-first-sending-your-personal-youtube-link-via-google/"><u>Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-musical-journey-with-youtubes-60-second-clips/"><u>Streamline Your Musical Journey with YouTube's 60-Second Clips</u></a></li>
+</ul></div>
+
