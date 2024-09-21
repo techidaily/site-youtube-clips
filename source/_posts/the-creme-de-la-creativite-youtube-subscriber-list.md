@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2024-09-12T18:41:18.151Z
-updated: 2024-09-16T17:39:57.681Z
+date: 2024-09-19T16:47:55.624Z
+updated: 2024-09-21T16:18:06.828Z
 tags:
   - ai video
   - ai youtube
@@ -74,15 +74,22 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -90,6 +97,13 @@ Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and An
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -107,21 +121,7 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,13 +138,13 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[New] Into the Unknown How To Start & Flourish As a Travel Videographer</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-lava-yuva-3-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Lava Yuva 3 Phone Screen?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>In 2024, 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-multitasking-sync-many-yt-videos-simultaneously/"><u>Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/personalizing-public-vs-private-settings-on-youtube/"><u>Personalizing Public vs Private Settings on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/real-world-vr-device-showcase-for-2024/"><u>Real-World VR Device Showcase for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-definitive-walkthrough-on-achieving-consistent-sound-balance-in-vlc-player/"><u>The Definitive Walkthrough on Achieving Consistent Sound Balance in VLC Player</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-get-your-plugins-back-on-track-fcpx-troubleshooting-tips-for-2024/"><u>Updated Get Your Plugins Back on Track FCPX Troubleshooting Tips for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-revolutionary-recording-methods-for-windows-10-games-for-2024/"><u>[New] Revolutionary Recording Methods for Windows 10 Games for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-list-makeup-tutorials-who-to-watch/"><u>[Updated] A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-instagram-promotions-five-key-strategies-for-influencers/"><u>[Updated] In 2024, Mastering Instagram Promotions Five Key Strategies for Influencers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-15-drfone-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/hacks-to-control-your-time-zone-in-windows-manually/"><u>Hacks to Control Your Time Zone in Windows Manually</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-7-apps-for-high-quality-youtube-live-streaming-on-iphones-and-android/"><u>In 2024, Essential 7 Apps for High-Quality YouTube Live Streaming on iPhones & Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimize-video-quality-with-expertise-in-studio-editor-use/"><u>Optimize Video Quality with Expertise in Studio Editor Use</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/reviving-old-youtube-videos-steps-for-online-reclamation/"><u>Reviving Old YouTube Videos Steps for Online Reclamation</u></a></li>
 </ul></div>
 

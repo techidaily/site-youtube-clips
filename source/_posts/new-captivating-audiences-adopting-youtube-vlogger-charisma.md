@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivating Audiences  Adopting YouTube Vlogger Charisma\""
-date: 2024-09-11T16:36:28.065Z
-updated: 2024-09-16T18:33:35.545Z
+date: 2024-09-18T16:31:23.388Z
+updated: 2024-09-21T16:03:15.206Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -65,6 +72,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -78,13 +92,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -96,10 +103,10 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
@@ -136,13 +143,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -160,20 +160,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-discover-easy-fb-ad-videos-free-creation-kit-available-for-2024/"><u>[New] Discover Easy FB Ad Videos – FREE Creation Kit Available for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-streamlining-movie-color-correction-through-luts-application/"><u>[New] Streamlining Movie Color Correction Through Luts Application</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-boost-your-channels-top-5-youtube-tricks-for-increased-visibility-for-2024/"><u>[Updated] Boost Your Channels Top 5 YouTube Tricks for Increased Visibility for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-irreversible-steps-for-a-fixed-tiktok-exit/"><u>[Updated] Irreversible Steps for a Fixed TikTok Exit</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>2024 Approved Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discovering-featured-social-media-exchange/"><u>Discovering Featured Social Media Exchange</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/editing-engine-room/"><u>Editing Engine Room</u></a></li>
-<li><a href="https://win11.techidaily.com/effortless-transfer-of-music-from-soundcloud-pc-and-smartphone-solutions/"><u>Effortless Transfer of Music From SoundCloud: PC & Smartphone Solutions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ensuring-visual-presentation-youtube-shorts-thumbnails-fix-for-2024/"><u>Ensuring Visual Presentation YouTube Shorts Thumbnails Fix for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-verify-your-youtube-account/"><u>How to Verify Your YouTube Account?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels/"><u>In 2024, Cut Cost, Unlock Creativity Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-zte-blade-a73-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on ZTE Blade A73 5G Device</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-top-voice-modification-tools-essential-choices-for-vtuber-creators/"><u>In 2024, Top Voice Modification Tools Essential Choices for VTuber Creators</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-content-on-tiktok-boosting-popularity-and-engagement-for-2024/"><u>Mastering the Art of Content on TikTok Boosting Popularity & Engagement for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unpacking-the-impact-of-youtubes-shorts-programme/"><u>Unpacking the Impact of YouTube's Shorts Programme</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphone-filmmaking-masterclass-8-steps-to-pro-video-excellence/"><u>[New] IPhone Filmmaking Masterclass 8 Steps to Pro Video Excellence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-choosing-the-right-lights-and-cameras-for-youtube-videos/"><u>[Updated] Choosing the Right Lights & Cameras for YouTube Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-coloredge-clarity-redefined-examining-eizos-4kcg318-display/"><u>2024 Approved ColorEdge Clarity Redefined – Examining EIZO’s 4KCG318 Display</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/achieving-personal-excellence-the-role-of-chatgpt-in-daily-self-improvement/"><u>Achieving Personal Excellence: The Role of ChatGPT in Daily Self-Improvement</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-apple-iphone-11-pro-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-novel-vlog-talk-points-everyday/"><u>In 2024, Novel Vlog Talk Points Everyday</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-text-that-talks-back-adding-life-to-vids-on-a-budget/"><u>In 2024, Text that Talks Back Adding Life to Vids on a Budget</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/opening-doors-to-collective-listening-on-youtube/"><u>Opening Doors to Collective Listening on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/synchronized-aesthetics-audio-meets-picture-for-2024/"><u>Synchronized Aesthetics Audio Meets Picture for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-youtube-creator-summit-a-getaway-for-top-talent/"><u>The YouTube Creator Summit - A Getaway for Top Talent</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transition-tactics-your-youtube-videos-on-instagram/"><u>Transition Tactics Your YouTube Videos on Instagram</u></a></li>
 </ul></div>
 

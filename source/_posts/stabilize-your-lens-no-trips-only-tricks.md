@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-09-09T17:43:29.260Z
-updated: 2024-09-16T16:23:38.610Z
+date: 2024-09-19T16:56:07.526Z
+updated: 2024-09-21T16:14:06.106Z
 tags:
   - ai video
   - ai youtube
@@ -75,13 +75,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -91,10 +84,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -119,6 +112,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -134,18 +134,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-efficient-ways-to-delete-previewed-content-from-youtubes-queue/"><u>[New] Efficient Ways to Delete Previewed Content From YouTube's Queue</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-jokegenius-easy-login-creative-video-making/"><u>[New] In 2024, JokeGenius Easy Login, Creative Video Making</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweettube-ios-devices-go-to-twitter-video-grabber/"><u>[New] In 2024, TweetTube IOS Device's Go-To Twitter Video Grabber</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transforming-your-tiktok-profile-altering-account-numbers/"><u>[New] Transforming Your TikTok Profile Altering Account Numbers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/amplify-your-videos-impact-with-strategically-placed-time-markers/"><u>Amplify Your Video's Impact with Strategically Placed Time Markers</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721267123324-best-top-8-iphone-text-retrieval-apps-using-stellar-and-more/"><u>Best Top 8 iPhone Text Retrieval Apps: Using Stellar and More</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/connect-and-converse-advanced-techniques-for-facebook-live-screens/"><u>Connect and Converse Advanced Techniques for Facebook Live Screens</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/continuous-streams-perfect-loops-of-youtube-videos-for-tvs-for-2024/"><u>Continuous Streams Perfect Loops of YouTube Videos for TVs for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-iphone-14-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From iPhone 14? Find the Best Solution Here</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-designing-dynamic-denouements/"><u>In 2024, Designing Dynamic Denouements</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-transform-your-fb-videos-into-1080p720p-mp4-seamlessly-for-free/"><u>In 2024, Transform Your FB Videos Into 1080P/720p MP4 Seamlessly, For Free</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-nokia-c210-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Nokia C210 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/zeroing-in-on-audio-quality-achievable-sans-mic/"><u>Zeroing in on Audio Quality Achievable Sans Mic</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-essentials-2023s-highest-ranked-twitter-content/"><u>[New] 2024 Approved The Essentials 2023'S Highest-Ranked Twitter Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-discreet-youtube-playback-on-mobile-devices/"><u>[New] In 2024, Discreet YouTube Playback on Mobile Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-recording-tips-to-record-audio-in-high-quality/"><u>[Updated] 10 Recording Tips to Record Audio in High Quality</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-methods-for-crediting-openais-chatgpt-in-your-writing/"><u>Effective Methods for Crediting OpenAI's ChatGPT in Your Writing</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/expeditiously-address-printer-job-stall/"><u>Expeditiously Address Printer Job Stall</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/identifying-top-economical-iosandroid-live-streaming-tools-for-2024/"><u>Identifying Top Economical iOS/Android Live Streaming Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-audio-blending-into-youtube-clips-using-editors/"><u>In 2024, Effortless Audio Blending Into YouTube Clips Using Editors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/relish-in-9-festive-full-length-films-exclusive-youtube-offering/"><u>Relish in 9 Festive, Full-Length Films Exclusive YouTube Offering</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleashing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
 </ul></div>
 

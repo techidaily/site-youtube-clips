@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-09-11T19:04:57.209Z
-updated: 2024-09-16T18:10:46.803Z
+date: 2024-09-18T17:58:47.446Z
+updated: 2024-09-21T17:37:25.217Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -117,10 +124,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -128,10 +135,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -141,13 +148,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -164,17 +164,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-epic-recordings-the-best-timelapse-software/"><u>[New] 2024 Approved Epic Recordings The Best Timelapse Software</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-designing-short-trailers-that-tell-a-story/"><u>[New] Designing Short Trailers That Tell a Story</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-top-10-igtv-channels-you-should-start-following-now/"><u>[New] Top 10 IGTV Channels You Should Start Following Now</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-swiftly-address-iphone-photography-blur/"><u>[Updated] 2024 Approved Swiftly Address iPhone Photography Blur</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/brush-up-your-youtube-videos-with-color-correction/"><u>Brush Up Your Youtube Videos with Color Correction</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/clear-distraction-free-viewing-of-old-youtube-content/"><u>Clear, Distraction-Free Viewing of Old YouTube Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-continuous-freezing-in-tormented-souls-for-pc-users/"><u>How to Fix Continuous Freezing in Tormented Souls for PC Users</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone SE (2022)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-6s-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 6s Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/privacy-first-sending-your-personal-youtube-link-via-google/"><u>Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-your-musical-journey-with-youtubes-60-second-clips/"><u>Streamline Your Musical Journey with YouTube's 60-Second Clips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uggling-jargons-an-experts-guide-to-multiple-youtube-views/"><u>[New] Juggling Jargons An Expert's Guide to Multiple YouTube Views</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-dynamic-youtube-content-as-animated-gifs-without-downloads/"><u>[Updated] Crafting Dynamic YouTube Content as Animated GIFs Without Downloads</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-world-of-instagram-puzzles-for-peak-performance/"><u>[Updated] Navigating the World of Instagram Puzzles for Peak Performance</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>2024 Approved Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-oppo-find-n3-flip-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Oppo Find N3 Flip Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-100-profrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor 100 ProFRP Lock</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/partner-vids-for-rapid-channelnode-growth/"><u>Partner Vids for Rapid Channelnode Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/sparking-interest-customized-anime-style-subscribers-on-your-youtube-channel-filmora/"><u>Sparking Interest Customized, Anime-Style Subscribers on Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unfreezing-photo-booth-recordings-a-guide-to-smoother-playback-for-2024/"><u>Unfreezing Photo Booth Recordings A Guide to Smoother Playback for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleash-your-channels-first-ever-gear-guide/"><u>Unleash Your Channels First-Ever Gear Guide</u></a></li>
 </ul></div>
 

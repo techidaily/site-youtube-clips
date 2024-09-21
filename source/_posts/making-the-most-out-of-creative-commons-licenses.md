@@ -1,7 +1,7 @@
 ---
 title: "Making the Most Out of Creative Commons Licenses"
-date: 2024-07-22T21:20:35.259Z
-updated: 2024-07-23T21:20:35.259Z
+date: 2024-09-17T16:32:52.471Z
+updated: 2024-09-21T16:27:14.942Z
 tags:
   - ai video
   - ai youtube
@@ -52,9 +52,6 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -67,9 +64,6 @@ If you use music, photos, or any other media licensed this way, then you must bo
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Attribution-NoDerivs – CC BY-ND
 
 This one can get tricky.
@@ -84,9 +78,6 @@ Whether or not you can play the song in the background of your vlog while you ar
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial – CC BY-NC
 
 If you’re using stock footage, music, or stock photos licensed this way then you should still be able to monetize your video. YouTube monetization and commercial use are different things. However, there is a lot of confusion about this issue, and chances are the rights holder intends for this license to mean 'no monetization'.
@@ -97,9 +88,6 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
@@ -112,14 +100,8 @@ There aren’t many situations where you would be using media licensed this way 
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Edit Video with the Most Excellent Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -162,9 +144,6 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -177,9 +156,6 @@ If you use music, photos, or any other media licensed this way, then you must bo
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Attribution-NoDerivs – CC BY-ND
 
 This one can get tricky.
@@ -204,18 +180,12 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
@@ -224,10 +194,14 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 
 ## Edit Video with the Most Excellent Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -243,9 +217,6 @@ Follow @Richard Bennett
 
 [0](#commentsBoxSeoTemplate)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Creative Commons Copyright ](https://images.wondershare.com/filmora/article-images/creative-commons-copyright-licenses.jpg)
 
 You might have noticed that, when you post a video, you get to choose how you want to copyright it: standard license, or creative commons. You’ve also probably noticed that when you looking for royalty-free music or stock footage a lot of it is licensed through creative commons.
@@ -272,9 +243,6 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -301,9 +269,6 @@ Whether or not you can play the song in the background of your vlog while you ar
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial – CC BY-NC
 
 If you’re using stock footage, music, or stock photos licensed this way then you should still be able to monetize your video. YouTube monetization and commercial use are different things. However, there is a lot of confusion about this issue, and chances are the rights holder intends for this license to mean 'no monetization'.
@@ -320,23 +285,14 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Edit Video with the Most Excellent Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -379,9 +335,6 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
@@ -394,11 +347,6 @@ If you use music, photos, or any other media licensed this way, then you must bo
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Attribution-NoDerivs – CC BY-ND
 
 This one can get tricky.
@@ -413,9 +361,6 @@ Whether or not you can play the song in the background of your vlog while you ar
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Attribution-NonCommercial – CC BY-NC
 
 If you’re using stock footage, music, or stock photos licensed this way then you should still be able to monetize your video. YouTube monetization and commercial use are different things. However, there is a lot of confusion about this issue, and chances are the rights holder intends for this license to mean 'no monetization'.
@@ -438,14 +383,8 @@ There aren’t many situations where you would be using media licensed this way 
 
 You also probably shouldn’t use this license for your videos. ‘NoDerivs’ means there are not many ways people could use your content, except to repost full videos and steal your views.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Edit Video with the Most Excellent Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -504,179 +443,261 @@ To do this, go back to playback speed. Select **custom** in the top-right side o
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
 
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
+
+## Part 3: How to Change YouTube's Video Playback Speed on Mobile
+
+If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
+
+First, you must open your YouTube App on your device and play the video you want to watch.
+
+Then tap the video once, and it will bring up the toolbar.
+
+At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
+
+![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
+Then you will see a list containing the preset speed provided by YouTube.
+
+![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
+
+Once done, close the menu, and the video will resume from where it stopped.
+
+## Part 4: How YouTube's Playback Speed Controls Work?
+
+YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
+
+However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
+
+Music would still maintain the same musical key and pitch while playing faster or slower.
+
+If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
+
+Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
+
+**Conclusion**
+
+**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
+
+02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
+
+03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
+
+04 [How YouTube's Playback Speed Controls Work?](#part4)
+
+05 [How to Change a YouTube Video's Speed Online](#part5)
+
+## Part 1: How to Change YouTube's Playback Speed on Computer
+
+To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
+
+On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
+
+To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
+
+Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
+
+![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
+
+These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
+
+To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
+
+**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
+
+## Part 3: How to Change YouTube's Video Playback Speed on Mobile
+
+If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
+
+First, you must open your YouTube App on your device and play the video you want to watch.
+
+Then tap the video once, and it will bring up the toolbar.
+
+At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
+
+![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
+Then you will see a list containing the preset speed provided by YouTube.
+
+![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
+
+Once done, close the menu, and the video will resume from where it stopped.
+
+## Part 4: How YouTube's Playback Speed Controls Work?
+
+YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
+
+However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
+
+Music would still maintain the same musical key and pitch while playing faster or slower.
+
+If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
+
+Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
+
+**Conclusion**
+
+**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
+
+02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
+
+03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
+
+04 [How YouTube's Playback Speed Controls Work?](#part4)
+
+05 [How to Change a YouTube Video's Speed Online](#part5)
+
+## Part 1: How to Change YouTube's Playback Speed on Computer
+
+To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
+
+On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
+
+To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
+
+Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
+
+![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
+
+To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
+
+**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
+
+## Part 3: How to Change YouTube's Video Playback Speed on Mobile
+
+If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
+
+First, you must open your YouTube App on your device and play the video you want to watch.
+
+Then tap the video once, and it will bring up the toolbar.
+
+At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
+
+![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
+Then you will see a list containing the preset speed provided by YouTube.
+
+![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
+
+Once done, close the menu, and the video will resume from where it stopped.
+
+## Part 4: How YouTube's Playback Speed Controls Work?
+
+YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
+
+However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
+
+Music would still maintain the same musical key and pitch while playing faster or slower.
+
+If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
+
+Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
+
+**Conclusion**
+
+**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
+
+02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
+
+03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
+
+04 [How YouTube's Playback Speed Controls Work?](#part4)
+
+05 [How to Change a YouTube Video's Speed Online](#part5)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 1: How to Change YouTube's Playback Speed on Computer
+
+To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
+
+On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
+
+To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
+
+Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
+
+![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-## Part 3: How to Change YouTube's Video Playback Speed on Mobile
-
-If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
-
-First, you must open your YouTube App on your device and play the video you want to watch.
-
-Then tap the video once, and it will bring up the toolbar.
-
-At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
-
-![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
-
-Then you will see a list containing the preset speed provided by YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
-
-1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
-
-Once done, close the menu, and the video will resume from where it stopped.
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 4: How YouTube's Playback Speed Controls Work?
-
-YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
-
-However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
-
-Music would still maintain the same musical key and pitch while playing faster or slower.
-
-If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
-
-Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
-
-**Conclusion**
-
-**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
-
-02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
-
-03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
-
-04 [How YouTube's Playback Speed Controls Work?](#part4)
-
-05 [How to Change a YouTube Video's Speed Online](#part5)
-
-## Part 1: How to Change YouTube's Playback Speed on Computer
-
-To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
-
-On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
-
-To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
-
-Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
-
-![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
-
-To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
-
-**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-## Part 3: How to Change YouTube's Video Playback Speed on Mobile
-
-If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
-
-First, you must open your YouTube App on your device and play the video you want to watch.
-
-Then tap the video once, and it will bring up the toolbar.
-
-At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
-
-![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
-
-Then you will see a list containing the preset speed provided by YouTube.
-
-![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
-
-1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
-
-Once done, close the menu, and the video will resume from where it stopped.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## Part 4: How YouTube's Playback Speed Controls Work?
-
-YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
-
-However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
-
-Music would still maintain the same musical key and pitch while playing faster or slower.
-
-If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
-
-Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
-
-**Conclusion**
-
-**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
-
-02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
-
-03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
-
-04 [How YouTube's Playback Speed Controls Work?](#part4)
-
-05 [How to Change a YouTube Video's Speed Online](#part5)
-
-## Part 1: How to Change YouTube's Playback Speed on Computer
-
-To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
-
-On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
-
-To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
-
-Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
 
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
 
@@ -708,94 +729,6 @@ Then tap the video once, and it will bring up the toolbar.
 
 At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
 
-![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
-
-Then you will see a list containing the preset speed provided by YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
-
-1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
-
-Once done, close the menu, and the video will resume from where it stopped.
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
-## Part 4: How YouTube's Playback Speed Controls Work?
-
-YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
-
-However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
-
-Music would still maintain the same musical key and pitch while playing faster or slower.
-
-If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
-
-Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
-
-**Conclusion**
-
-**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
-
-02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
-
-03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
-
-04 [How YouTube's Playback Speed Controls Work?](#part4)
-
-05 [How to Change a YouTube Video's Speed Online](#part5)
-
-## Part 1: How to Change YouTube's Playback Speed on Computer
-
-To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
-
-On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
-
-To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
-
-Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
-
-![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
-
-To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
-
-**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## Part 3: How to Change YouTube's Video Playback Speed on Mobile
-
-If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
-
-First, you must open your YouTube App on your device and play the video you want to watch.
-
-Then tap the video once, and it will bring up the toolbar.
-
-At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
 
 Then you will see a list containing the preset speed provided by YouTube.
@@ -835,7 +768,22 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ffortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones-for-2024/"><u>[New] Effortless Guide to Share Your Videos as Shorts on Computers & Phones for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-prime-strategies-in-zoom-video-to-zoom-outcomes/"><u>[New] The Prime Strategies in Zoom Video to Zoom Outcomes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-guide-top-15-innovative-snapchat-ideas/"><u>[New] The Ultimate Guide Top 15 Innovative Snapchat Ideas</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-avoid-facebooks-invasion-keeping-feeds-free-of-ads/"><u>[Updated] 2024 Approved Avoid Facebook's Invasion Keeping Feeds Free of Ads</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-your-journey-to-becoming-a-pro-at-gifs-for-2024/"><u>[Updated] Your Journey to Becoming a Pro at GIFs for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-lava-yuva-3-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Lava Yuva 3 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-visual-excellence-aspect-ratio-mastery-on-youtube/"><u>2024 Approved Achieving Visual Excellence ASPECT RATIO Mastery on YOUTUBE</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dominate-the-digital-space-youtube-leadership/"><u>2024 Approved Dominate the Digital Space YouTube Leadership</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-channel-a-gamers-blueprint-for-success/"><u>2024 Approved Elevating Your Channel A Gamers' Blueprint for Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-empowerment-in-entertainment-top-10-inspirational-women/"><u>2024 Approved Empowerment in Entertainment Top 10 Inspirational Women</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-prime-recommendations-downloading-video-intros-and-templates/"><u>2024 Approved Prime Recommendations Downloading Video Intros & Templates</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlocking-audience-connection-top-video-formats-for-youtube-success/"><u>2024 Approved Unlocking Audience Connection Top Video Formats for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary-for-2024/"><u>A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/chart-your-course-to-youtube-success-with-these-techniques-for-2024/"><u>Chart Your Course to YouTube Success with These Techniques for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortlessly-launch-file-explorer-on-your-windows-tenth-pc-a-step-by-step-guide-with-12-tips/"><u>Effortlessly Launch File Explorer on Your Windows Tenth PC: A Step-by-Step Guide with 12 Tips</u></a></li>
+</ul></div>
 

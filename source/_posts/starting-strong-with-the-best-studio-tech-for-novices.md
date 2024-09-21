@@ -1,7 +1,7 @@
 ---
 title: "Starting Strong with the Best Studio Tech for Novices"
-date: 2024-09-13T17:39:16.755Z
-updated: 2024-09-16T19:07:37.292Z
+date: 2024-09-14T16:16:14.064Z
+updated: 2024-09-21T18:49:08.275Z
 tags:
   - ai video
   - ai youtube
@@ -108,10 +108,10 @@ A lot of compact cameras already come with the lens as a part of the camera body
 When you start looking into bigger cameras, though, you’ll have to think about which lens you want to shoot with.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The Wide-Angle Lens
@@ -124,12 +124,33 @@ You should also look for a lens with **optical image stabilization** if you’re
 
 For more information on camera lenses, check out my [Vlogger’s Guide To Camera Lenses](https://www.filmora.io/community-blog/a-vloggers-guide-to-camera-lenses-408.html).
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: YOUTUBE EQUIPMENT: TRIPOD
 
 | ![Tripod](https://images.wondershare.com/filmora/article-images/tripod-youtube-starter-must-have-equipment.jpg) | **Tripod** If you plan to film yourself talking in front of the same, unchanging background for an extended period of time, it doesn’t make sense to film yourself handheld the entire time. You’ll just end up tiring your arm out and adding distracting shakiness to your footage. A tripod is a great solution to this problem. You can set up your framing once, press record, and leave your camera in its fixed position while you talk with both hands free.        |
 | --------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
 
@@ -170,26 +191,13 @@ The solution to this problem is getting additional video lighting equipment with
 | ![Softbox Video Light](https://images.wondershare.com/filmora/article-images/softbox-video-light.jpg)   | **Softbox Video Light** If you need more light and have more space, another piece of lighting equipment good for beginners is a softbox video light.                                                                                                                                                                                                                                                  |
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you're looking for recommendations on which piece of lighting equipment to buy, check out my list of the [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
@@ -213,31 +221,11 @@ Read more about these laptop computers for 4K video editing in [The Best Laptops
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | **FREE VIDEO EDITING SOFTWARES**                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  | **PAID VIDEO EDITING SOFTWARES**                                                                                                                                                                                                                                                                                                |
 | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | [OpenShot Video Editor](https://www.openshot.org/) (Windows, Mac, Linux) [ShotCut](https://shotcut.org/) (Windows, Mac, Linux) [Hitfilm Express](https://hitfilm.com/express) (Windows, Mac) [VideoPad Video Editor](http://www.nchsoftware.com/videopad/index.html) (Windows) [Lightworks](https://www.lwks.com/) (Windows, Mac, Linux) [VSDC Video Editor](http://www.videosoftdev.com/) (Windows) [Machete Video Editor Lite](http://www.machetesoft.com/home/about-machete-video-editor-lite.html) (Windows) [Avidemux](http://avidemux.sourceforge.net/) (Windows, Mac, Linux, BSD) Read more about each of these softwares in our post about [The Best Free Video Editing Software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/). | [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) (Windows, Mac) - $40 one year license, $79.99 perpetual license. Free trial [Final Cut Pro](https://www.apple.com/ca/final-cut-pro/) (Mac) - $299.99, Free trial [Vegas Movie Studio](https://www.vegascreativesoftware.com/ca/vegas-movie-studio/) (Windows) - $49.99 |
 
 ## YOUTUBE EQUIPMENT: AUDIO
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Music Libraries**
 
@@ -276,17 +264,20 @@ Follow @Sumia Rafique
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-simple-strategies-for-smooth-underwater-moviemaking/"><u>[New] Simple Strategies for Smooth Underwater Moviemaking</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-discover-the-leading-free-naming-resources-11-must-have-makers/"><u>[Updated] Discover the Leading Free Naming Resources - 11 Must-Have Makers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exploring-leading-3d-modeling-platforms-for-animation-artists/"><u>[Updated] Exploring Leading 3D Modeling Platforms for Animation Artists</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-vivo-y100-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-maximize-attendee-visibility-with-google-meet-grids/"><u>2024 Approved Maximize Attendee Visibility with Google Meet Grids</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/e-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match-for-2024/"><u>Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-s17-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo S17 to Roku | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-accelerate-youtube-visibility-select-top-8-rank-watchers/"><u>In 2024, Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-the-market-with-them-best-video-for-stocks/"><u>In the Market with Them Best Video for Stocks</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/kinemaster-android-an-in-depth-gaming-guide-review/"><u>KineMaster Android An In-Depth Gaming Guide Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-gadgets-for-relaxing-on-sands-and-waves/"><u>Top Gadgets for Relaxing on Sands & Waves</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-channel-mastery-with-studio-power-ups/"><u>Unlocking Channel Mastery with Studio Power-Ups</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-12-best-sites-for-downloading-yt-template-videos/"><u>[New] 12 Best Sites for Downloading YT Template Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>[New] Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/evel-in-the-rush-free-zone-unveiling-three-ways-to-slowdown-youtube-streams-62-chars-slightly-over-but-justified-with-context/"><u>[New] Revel in the Rush-Free Zone Unveiling Three Ways to Slowdown YouTube Streams (62 Chars, Slightly over but Justified with Context)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-aspect-ratios-decoded-youtube-edition-a-quick-reference-guide/"><u>[Updated] Aspect Ratios Decoded YouTube Edition – A Quick Reference Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[Updated] Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-decoding-youtube-shorts-all-you-need-to-understand/"><u>[Updated] Decoding YouTube Shorts All You Need to Understand</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-designing-short-trailers-that-tell-a-story/"><u>[Updated] Designing Short Trailers That Tell a Story</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-tutorial-for-immersive-iphone-vr-viewing/"><u>2024 Approved The Ultimate Tutorial for Immersive iPhone VR Viewing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-the-perfect-tone-accessible-software-for-effortless-vocal-transformation-for-2024/"><u>Crafting the Perfect Tone Accessible Software for Effortless Vocal Transformation for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/essential-webcams-for-peak-twitch-performance-for-2024/"><u>Essential Webcams for Peak Twitch Performance for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-self-assured-vlogging-channeling-youtube-stars/"><u>Mastering Self-Assured Vlogging Channeling YouTube Stars</u></a></li>
+<li><a href="https://fox-http.techidaily.com/quick-path-to-virtual-self-building-metaverse-profiles-for-2024/"><u>Quick Path to Virtual Self Building Metaverse Profiles for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/vbrcbr/"><u>VBRからCBRへの高品質な動画・音楽ストリーム変換方法</u></a></li>
+<li><a href="https://extra-information.techidaily.com/vector-editing-revolution-post-acid-pro-era/"><u>Vector Editing Revolution Post-ACID Pro Era</u></a></li>
 </ul></div>
 

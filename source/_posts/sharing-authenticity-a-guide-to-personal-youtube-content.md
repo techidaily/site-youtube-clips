@@ -1,7 +1,7 @@
 ---
 title: "\"Sharing Authenticity  A Guide to Personal YouTube Content\""
-date: 2024-09-15T17:54:34.703Z
-updated: 2024-09-16T18:25:20.790Z
+date: 2024-09-15T19:06:23.565Z
+updated: 2024-09-21T17:47:09.644Z
 tags:
   - ai video
   - ai youtube
@@ -53,19 +53,6 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
@@ -82,27 +69,27 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\.  YouTube Live/Webinar
 
@@ -112,13 +99,20 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -136,14 +130,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-proven-pc-strategies-elevating-video-quality-and-engagement-on-youtube/"><u>[New] 2024 Approved Proven PC Strategies Elevating Video Quality and Engagement on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-ride-the-viral-wave-mixing-tiktok-flair-into-instagram-reels/"><u>[Updated] In 2024, Ride the Viral Wave Mixing TikTok Flair Into Instagram Reels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/choosing-prime-audio-editors-for-youtube-creators/"><u>Choosing Prime Audio Editors for YouTube Creators</u></a></li>
-<li><a href="https://solve-news.techidaily.com/dvdstyler-dvd/"><u>DVDStyler 始める方法：簡単な手順でダウンロードからDVD書き込み</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-tips-for-a-working-winshift/"><u>Essential Tips for a Working WinShift</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-content-discovery-the-tubebuddy-way/"><u>In 2024, Elevate Content Discovery The TubeBuddy Way</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-15-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 15 Pro Max You Should Try Out</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/proven-pathways-to-profit-with-youtube-short-videos/"><u>Proven Pathways to Profit with YouTube Short Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-vagueblogging-a-peek-at-its-intricacies/"><u>Understanding Vagueblogging: A Peek at Its Intricacies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-break-through-bot-barriers-rising-from-the-crowd/"><u>[New] Break Through Bot Barriers Rising From the Crowd</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-capture-chuckles-through-adobe-media/"><u>[New] Capture Chuckles Through Adobe Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[New] Conquering Camera Angst The Ultimate List of Video Blogging Phobias</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-vlog-with-proper-tripod-angles/"><u>[New] Elevating Your Vlog with Proper Tripod Angles</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-pixeled-play-log-audit/"><u>[New] In 2024, Pixeled Play Log Audit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amplify-youtube-performance-rapid-video-rendering-guide/"><u>[Updated] Amplify YouTube Performance - Rapid Video Rendering Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boost-engagement-with-effortless-youtube-thumbnail-tips/"><u>[Updated] Boost Engagement with Effortless Youtube Thumbnail Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-effortless-strategies-to-detect-duplicate-and-phony-likes/"><u>[Updated] Effortless Strategies to Detect Duplicate and Phony Likes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/2023s-must-play-no-cost-racing-game-collection-for-pc-gamers/"><u>2023'S Must-Play, No Cost Racing Game Collection for PC Gamers!</u></a></li>
+<li><a href="https://app-tips.techidaily.com/achieving-a-competitive-edge-in-business-with-effective-devops-strategies-and-mitigating-risks-through-best-practices-zdnet-insights/"><u>Achieving a Competitive Edge in Business with Effective DevOps Strategies & Mitigating Risks Through Best Practices | ZDNet Insights</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/buy-and-upgrade-your-iphone-with-our-superior-eraser/"><u>Buy and Upgrade Your iPhone with Our Superior Eraser</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-fix-print-spooler-keeps-stopping-on-windows-11-and-7/"><u>How to Fix Print Spooler Keeps Stopping on Windows 11 & 7</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x50i-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Honor X50i Phone with Broken Screen</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-the-newly-launched-google-tv-enabled-chromecast-rethinking-home-entertainment/"><u>Review of the Newly Launched Google TV-Enabled Chromecast: Rethinking Home Entertainment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/simplified-approach-to-removing-youtube-comments-with-ease/"><u>Simplified Approach to Removing YouTube Comments with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-animator-marketplace-of-custom-creative-stunts/"><u>The Animator' Marketplace of Custom Creative Stunts</u></a></li>
 </ul></div>
 

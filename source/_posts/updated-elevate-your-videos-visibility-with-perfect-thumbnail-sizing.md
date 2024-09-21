@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Video's Visibility with Perfect Thumbnail Sizing"
-date: 2024-09-11T16:54:01.124Z
-updated: 2024-09-16T16:40:50.942Z
+date: 2024-09-20T19:13:07.049Z
+updated: 2024-09-21T19:17:12.626Z
 tags:
   - ai video
   - ai youtube
@@ -98,6 +98,13 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -106,19 +113,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -145,10 +139,10 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **To sum up**
@@ -172,15 +166,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-captivating-content-at-your-fingertips-download-youtube-for-ios/"><u>[New] Captivating Content at Your Fingertips Download YouTube for iOS</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-going-back-with-android-video-editing/"><u>[Updated] Going Back with Android Video Editing</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-leveraging-unwanted-scenes-for-creative-outcomes/"><u>[Updated] Leveraging Unwanted Scenes for Creative Outcomes</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/building-your-first-auto-gpt-model/"><u>Building Your First Auto-GPT Model</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-the-perfect-end-screen-youtube-template-guidebook-for-2024/"><u>Crafting the Perfect End Screen - YouTube Template Guidebook for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/double-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>Double Delight Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/galaxy-f15-5g-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Galaxy F15 5G support - Turn Off Screen Lock.</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-narzo-n55-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Realme Narzo N55 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-motorola-moto-g-stylus-5g-2023-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Motorola Moto G Stylus 5G (2023) Lock Screen Password?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-playbook-for-cutting-edge-youtube-studio-video-editing/"><u>The Ultimate Playbook for Cutting-Edge YouTube Studio Video Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[New] Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-notebooks-excellent-in-media-post-production/"><u>[New] Essential Notebooks Excellent in Media Post-Production</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-blending-photography-and-sonic-artistry/"><u>[Updated] Blending Photography & Sonic Artistry</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>[Updated] Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-steps-for-mp3-streams-on-youtube/"><u>[Updated] In 2024, Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-superior-methods-transforming-pinterest-visuals-into-audios/"><u>[Updated] Superior Methods Transforming Pinterest Visuals Into Audios</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-testimonials-techniques-for-persuasive-video-credibility/"><u>[Updated] The Art of Testimonials Techniques for Persuasive Video Credibility</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-comprehensive-guide-to-recording-hulu-across-platforms/"><u>2024 Approved Comprehensive Guide to Recording Hulu Across Platforms</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-cutting-edge-imaging-a-shoppers-selection-process/"><u>2024 Approved Navigating Cutting-Edge Imaging A Shopper's Selection Process</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pinnacle-studio-25-review/"><u>2024 Approved Pinnacle Studio 25 Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>In 2024, Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-earn-on-youtube-beginners-path-to-profitability/"><u>In 2024, Earn on YouTube Beginner's Path to Profitability</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/itunesiphone/"><u>ITunesで動かない時のトラブルシューティング：iPhone連携フリーズ回避と対処法</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-urban-ecosystem-fostering-resilience-through-green-policies/"><u>The Urban Ecosystem Fostering Resilience Through Green Policies</u></a></li>
 </ul></div>
 

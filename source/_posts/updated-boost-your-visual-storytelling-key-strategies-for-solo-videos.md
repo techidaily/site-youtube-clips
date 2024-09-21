@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos\""
-date: 2024-09-09T16:13:54.139Z
-updated: 2024-09-16T17:49:24.164Z
+date: 2024-09-15T18:27:37.319Z
+updated: 2024-09-21T18:23:28.915Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -91,19 +98,6 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -111,16 +105,10 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -140,17 +128,12 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-best-practices-for-secure-transfer-of-phones-camera-roll-content-to-snapchat/"><u>[New] Best Practices for Secure Transfer of Phone's Camera Roll Content to Snapchat</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-earn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits/"><u>[New] Earn Wisely The Simple Triad Method for Scrutinizing YouTube Profits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-melodic-lenswork-capturing-soundscapes-on-ios-for-2024/"><u>[New] Melodic Lenswork Capturing Soundscapes on iOS for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-craft-your-online-identity-with-customized-youtube-urls/"><u>[Updated] Craft Your Online Identity with Customized YouTube URLs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-pace-your-panorama-learning-time-lapses-on-samsung-phones/"><u>2024 Approved Pace Your Panorama Learning Time-Lapses on Samsung Phones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/analyzing-youtubes-creator-rewards-regularity/"><u>Analyzing YouTube's Creator Rewards Regularity</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/captivating-creativity-top-30-unique-tiktok-profile-photos/"><u>Captivating Creativity Top 30 Unique TikTok Profile Photos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-through-new-wins-setbacks-to-standard-users/"><u>Navigating Through New Wins: Setbacks to Standard Users</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-list-of-sony-vegas-alternatives-for-windows-video-editors/"><u>New In 2024, The Ultimate List of Sony Vegas Alternatives for Windows Video Editors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/simplifying-iphoneipad-screen-captures-for-online-sharing/"><u>Simplifying iPhone/iPad Screen Captures for Online Sharing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722967167762-ultimate-compatibility-with-your-devices-update-tp-link-tl-ub400-bluetooth-adapter-driver-here/"><u>Ultimate Compatibility with Your Devices: Update TP-Link TL-UB400 Bluetooth Adapter Driver Here!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-captivate-and-convert-creating-high-roi-animated-ads-on-facebook-for-2024/"><u>[Updated] Captivate and Convert Creating High-ROI Animated Ads on Facebook for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-augmenting-aerial-mastery-10-essential-drone-accessories/"><u>2024 Approved Augmenting Aerial Mastery 10 Essential Drone Accessories</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decoding-the-best-of-beauty-youtubes-elite-artists-showcased/"><u>Decoding the Best of Beauty YouTube's Elite Artists Showcased</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-9-innovative-workout-challenges-for-dynamic-viewers/"><u>In 2024, 9 Innovative Workout Challenges for Dynamic Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieve-more-engagement-on-youtube-learn-the-best-thumbnail-size/"><u>In 2024, Achieve More Engagement on YouTube Learn the Best Thumbnail Size</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-best-practices-for-archiving-youtube-livestream-content/"><u>In 2024, Best Practices for Archiving Youtube Livestream Content</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photoshop-shake-control-necessary-tool-or-unnecessary-for-2024/"><u>Photoshop Shake Control Necessary Tool or Unnecessary for 2024</u></a></li>
 </ul></div>
 

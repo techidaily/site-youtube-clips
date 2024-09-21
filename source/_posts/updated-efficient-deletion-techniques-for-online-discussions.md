@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-09-14T17:36:17.850Z
-updated: 2024-09-16T18:21:17.050Z
+date: 2024-09-16T18:53:25.304Z
+updated: 2024-09-21T19:22:16.193Z
 tags:
   - ai video
   - ai youtube
@@ -83,13 +83,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -110,6 +103,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -127,14 +127,14 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
 
@@ -143,10 +143,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,18 +164,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-dynamic-lighting-elevating-video-aesthetics/"><u>[New] Dynamic Lighting Elevating Video Aesthetics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>[Updated] 2024 Approved Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-your-course-in-youtubing-dodge-these-top-8-common-missteps-for-2024/"><u>Charting Your Course in YouTubing Dodge These Top 8 Common Missteps for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/curate-a-perfect-playlist-on-youtube-a-step-by-step-guide-for-2024/"><u>Curate a Perfect Playlist on YouTube A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-nokia-xr21-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Nokia XR21 FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://some-skills.techidaily.com/identify-your-windows-11-edition-and-anniversary-updates-with-ease/"><u>Identify Your Windows 11 Edition & Anniversary Updates with Ease</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oppo-f23-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Oppo F23 5G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/is-youtubes-4-second-trick-effective/"><u>Is YouTube's 4-Second Trick Effective?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/sizzling-shots-capturing-culinary-magic/"><u>Sizzling Shots Capturing Culinary Magic</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-role-of-analytics-in-achieving-igtv-viral-status/"><u>The Role of Analytics in Achieving IGTV Viral Status</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-comprehensive-hardware-reviews-and-insights/"><u>Tom's Tech Hub: Comprehensive Hardware Reviews and Insights</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-scratches-comparative-review-of-recorders/"><u>Top Scratches Comparative Review of Recorders</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/uplift-your-videos-top-techniques-for-iphones-brightness/"><u>Uplift Your Videos Top Techniques for iPhone's Brightness</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-techniques-for-aspiring-youtube-game-streamers/"><u>[Updated] Cutting-Edge Techniques for Aspiring YouTube Game Streamers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-beyond-the-buzz-the-top-10-competitive-video-editors/"><u>[Updated] In 2024, Beyond the Buzz The Top 10 Competitive Video Editors</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-how-to-seamlessly-convert-vimeo-media-to-mp3/"><u>2024 Approved How to Seamlessly Convert Vimeo Media to MP3</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-prime-steadicam-devices-for-drones-in-filmmaking/"><u>2024 Approved Prime Steadicam Devices for Drones in Filmmaking</u></a></li>
+<li><a href="https://windows11.techidaily.com/achieve-peak-productivity-essential-windows-11-and-cmd-commands/"><u>Achieve Peak Productivity: Essential Windows 11 & Cmd Commands</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/an-in-depth-guide-to-periscope-recording-procedures/"><u>An In-Depth Guide to Periscope Recording Procedures</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-infinix-smart-8-screen-sharing-drfone-by-drfone-android/"><u>How To Do Infinix Smart 8 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>In 2024, Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>In 2024, Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/laughter-and-tears-on-insta-the-ultimate-meme-page-list-for-2024/"><u>Laughter & Tears on Insta The Ultimate Meme Page List for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/visionparts-examination-for-2024/"><u>VisionParts Examination for 2024</u></a></li>
 </ul></div>
 

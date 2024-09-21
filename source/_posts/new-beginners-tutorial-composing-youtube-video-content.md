@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2024-09-11T16:08:16.700Z
-updated: 2024-09-16T16:40:44.856Z
+date: 2024-09-15T17:40:59.723Z
+updated: 2024-09-21T16:13:13.464Z
 tags:
   - ai video
   - ai youtube
@@ -52,33 +52,19 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -106,6 +92,13 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -117,6 +110,13 @@ These are the tips to keep in mind when considering how to write a script for a 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -135,17 +135,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/nalyzing-t-series-youtube-financial-gains-for-2024/"><u>[New] Analyzing T-Series Youtube Financial Gains for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-comprehensive-vlc-use-manual-for-mac-users-for-2024/"><u>[New] Comprehensive VLC Use Manual for Mac Users for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-documenting-xbox-gaming-tips-and-tricks/"><u>[Updated] In 2024, Documenting Xbox Gaming Tips & Tricks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-5-online-av-creation-leaders/"><u>2024 Approved The Ultimate 5 Online AV Creation Leaders</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boost-your-reach-the-quintessential-five-tactics-for-youtube-success-for-2024/"><u>Boost Your Reach The Quintessential Five Tactics for YouTube Success for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-3-technological-advances-shaping-our-future/"><u>Essential 3 Technological Advances Shaping Our Future</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gadget-glitch-keys-working-again/"><u>Gadget Glitch: Keys Working Again</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-capitalize-on-youtube-shorts-must-knows-earning-prospects/"><u>How to Capitalize on Youtube Shorts Must-Knows, Earning Prospects</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-razr-40-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Razr 40</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ideal-youtube-subscriptions-for-current-affairs/"><u>Ideal YouTube Subscriptions for Current Affairs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pioneering-platforms-for-no-cost-media-downloads/"><u>Pioneering Platforms for No-Cost Media Downloads</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-tecno-spark-go-2023-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Tecno Spark Go (2023) Black and White | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-explore-the-best-8-mirrorless-cameras-for-youtube-vloggers/"><u>[Updated] In 2024, Explore the Best 8 Mirrorless Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-guide-to-downloading-igtv-videos-on-pcmac-os/"><u>2024 Approved Step-by-Step Guide to Downloading IGTV Videos on PC/Mac OS</u></a></li>
+<li><a href="https://fox-that.techidaily.com/deciphering-the-offline-status-in-find-my-iphone-and-effective-methods-for-finding-your-device/"><u>Deciphering the 'Offline' Status in Find My iPhone & Effective Methods for Finding Your Device</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-installation-download-drivers-for-brother-printer-models-today/"><u>Effortless Installation: Download Drivers for Brother Printer Models Today!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-your-videos-effective-titles-and-keywords-on-youtube-for-2024/"><u>Enhance Your Videos Effective Titles and Keywords on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ethical-approaches-to-extract-and-convert-youtube-videos/"><u>Ethical Approaches to Extract and Convert YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-creator-to-critic-evaluating-video-value-across-platforms/"><u>From Creator to Critic Evaluating Video Value Across Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/gif-editor-how-to-make-animated-gif-images-online-from-youtube-video/"><u>GIF Editor How to Make Animated GIF Images Online From YouTube Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ny-hunt-uncover-the-most-popular-free-downloader-apps-on-youtube-and-android/"><u>Harmony Hunt - Uncover the Most Popular Free Downloader Apps on YouTube and Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/harness-the-power-of-youtube-videos-to-create-stunning-gifs-online/"><u>Harness the Power of Youtube Videos to Create Stunning Gifs Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-launch-your-first-sporty-video-channel-on-apple-systems/"><u>How to Launch Your First Sporty Video Channel on Apple Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-spark-10c-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Spark 10C to Outlook | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-9-zero-price-programs-to-take-your-videos-from-average-to-amazing/"><u>In 2024, 9 Zero Price Programs to Take Your Videos From Average to Amazing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-vivo-x100-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Vivo X100 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New 2024 Approved Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
 </ul></div>
 

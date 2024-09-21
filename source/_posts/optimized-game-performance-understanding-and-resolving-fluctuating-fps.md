@@ -1,7 +1,7 @@
 ---
 title: "Optimized Game Performance: Understanding & Resolving Fluctuating FPS"
-date: 2024-09-10T19:01:20.124Z
-updated: 2024-09-16T16:37:37.690Z
+date: 2024-09-15T18:11:08.632Z
+updated: 2024-09-21T17:20:38.280Z
 tags:
   - win11
   - win10
@@ -100,19 +100,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![how to download and install Windows updates](https://images.drivereasy.com/wp-content/uploads/2021/01/check-for-updates.png)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) Click on the **Check for updates**  button. If there are any updates available, it’ll automatically start to download and install it. Simply wait for the process to complete. Then you’ll be asked to restart your computer.
 
 ![how to download and install Windows updates](https://images.drivereasy.com/wp-content/uploads/2021/01/click-on-the-Check-for-updates-tab.png)
@@ -134,13 +121,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/restart-after-windows-updates-1200x626.png)
 
  If updating Windows doesn’t give you any luck, proceed to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Update your graphics driver
 
@@ -166,15 +146,28 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
  After updating drivers, restart your PC and test your gameplay. If your problem persists, proceed to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Verify integrity of game files
@@ -192,16 +185,10 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-verify-integrity-of-game-files-properties-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) Select the **LOCAL FILES**  tab. Then click **Verify integrity of game files…** .
@@ -219,6 +206,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  3) Select**Verify** from the drop-down.
 
  Depending on the size of the game it may take a few minutes to verify all your files. Once it completes, launch your game and test the gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Change in-game settings
 
@@ -253,6 +247,19 @@ Now scroll down and make these changes:
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/apply-the-changes.png)
 
  However, by applying these changes, you’ll have to settle for less in-game visual detail. If you find you’re sacrificing too much in your graphical settings to hit your frame rate target, there’s always another option: Upgrading to a new system with a faster GPU and CPU.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Enable hardware-accelerated GPU scheduling
 
@@ -297,13 +304,6 @@ Locate the game’s installation folder on Steam:
 
  However, if this doesn’t give you any performance boost, try the next fix below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. Scan your PC for corrupted files
 
  Graphics glitches and other critical issues can occur when your operating system becomes corrupted. Opening programs will be slower and response time will lag. To diagnose the problem you’re having, you should run a full scan on your system.
@@ -339,20 +339,15 @@ When the process is complete, restart your PC.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-demystifying-the-art-behind-live-video-thumbnails/"><u>[New] Demystifying the Art Behind Live Video Thumbnails</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-essentialists-approach-saving-your-screen-on-an-hp-notebook/"><u>[New] In 2024, The Essentialist's Approach Saving Your Screen on an HP Notebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieving-a-million-on-the-map-a-strategic-view-to-sub-guide/"><u>[Updated] Achieving a Million on the Map A Strategic View-to-Sub Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-success-stories-maximizing-income-with-youtube-adsense/"><u>[Updated] Video Success Stories Maximizing Income with YouTube AdSense</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-financial-freedom-joshis-youtube-tactics/"><u>2024 Approved Achieving Financial Freedom Joshi’s YouTube Tactics</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-your-inner-editor-with-these-premium-androidpc-apps/"><u>2024 Approved Unleash Your Inner Editor with These Premium Android/PC Apps</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-honor-x50iplus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Honor X50i+ to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-honor-70-lite-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Honor 70 Lite 5G Phone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/integrating-podcast-magic-a-step-by-step-for-iphone-users/"><u>Integrating Podcast Magic A Step-by-Step for iPhone Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/leap-from-youtube-to-dailymotion-with-ease/"><u>Leap From YouTube to Dailymotion with Ease</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/mastering-green-screen-blunders-in-video-production/"><u>Mastering Green Screen Blunders in Video Production</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/maximizing-your-monetary-gains-from-mobile-youtube-channels-2024-guide/"><u>Maximizing Your Monetary Gains From Mobile YouTube Channels - 2024 Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premium-film-experiences-yts-best-of-lists/"><u>Premium Film Experiences YT's Best Of Lists</u></a></li>
-<li><a href="https://windows11.techidaily.com/tackling-error-windows-welcome-cant-read-fingers/"><u>Tackling Error: Windows Welcome Can't Read Fingers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-efficient-youtube-follow-link-design/"><u>The Essential Guide to Efficient YouTube Follow Link Design</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-guide-to-enhancing-colors-in-photoshop/"><u>[New] Quick Guide to Enhancing Colors in Photoshop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-social-media-summit-twitters-top-10-tweets/"><u>[New] Social Media Summit Twitter’s Top 10 Tweets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elite-10-volume-augmenters-for-all-os/"><u>[Updated] Elite 10 Volume Augmenters for All OS</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-transform-your-discord-experience-learn-message-pinning/"><u>[Updated] In 2024, Transform Your Discord Experience Learn Message Pinning</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-collaboration-techniques-in-video-making-viewership-up/"><u>In 2024, Collaboration Techniques in Video Making, Viewership Up</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-z-flip-5-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy Z Flip 5 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-11-proplus-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme 11 Pro+? Fixed | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-realme-c67-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Realme C67 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/lifes-journey-videos-creating-authentic-online-experiences/"><u>Life's Journey Videos Creating Authentic Online Experiences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-challenge-ahead-for-ai-why-cant-chatgpt-detect-what-it-writes/"><u>The Challenge Ahead for AI: Why Can’t ChatGPT Detect What It Writes?</u></a></li>
 </ul></div>
 

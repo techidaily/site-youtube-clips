@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality\""
-date: 2024-09-10T16:48:33.390Z
-updated: 2024-09-16T17:57:59.162Z
+date: 2024-09-17T16:58:06.973Z
+updated: 2024-09-21T17:34:56.259Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,34 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -75,25 +96,11 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -108,13 +115,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -133,19 +133,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-novices-pathway-to-writing-youtube-video-plans/"><u>[New] A Novice's Pathway to Writing YouTube Video Plans</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-audience-wave-top-hash-tags-to-swell-youtube-views/"><u>[Updated] Audience Wave Top Hash Tags to Swell Youtube Views</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-decoding-the-best-timing-strategies-for-instagram-posts-for-2024/"><u>[Updated] Decoding the Best Timing Strategies for Instagram Posts for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-tools-for-creative-video-content-for-2024/"><u>[Updated] Essential Tools for Creative Video Content for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-becoming-an-animoji-expert-on-your-iphone-x-device/"><u>2024 Approved Becoming an Animoji Expert on Your iPhone X Device</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fixed-non-responsive-epson-device/"><u>Fixed Non-Responsive Epson Device</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-8t-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 8T 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/learn-to-negate-video-ordering-in-android/"><u>Learn To Negate Video Ordering in Android</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-personal-content-management-building-a-structured-watch-later-list/"><u>Mastering Personal Content Management Building a Structured 'Watch Later' List</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/toxic-trend-unnecessary-followers-tarnish-reputation-for-2024/"><u>Toxic Trend Unnecessary Followers Tarnish Reputation for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlocking-mobile-apps-on-windows-11-the-definitive-how-to-guide/"><u>Unlocking Mobile Apps on Windows 11: The Definitive How-To Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unraveling-the-secrets-of-viral-content-creation/"><u>Unraveling the Secrets of Viral Content Creation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-followers-surge-top-tips-for-channel-expansion/"><u>YouTube Followers Surge Top Tips for Channel Expansion</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-prime-videobg-selections-enhancing-remote-collaboration/"><u>[New] 2024 Approved Prime Videobg Selections Enhancing Remote Collaboration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-complete-guide-to-utilizing-youtubes-adsense-for-success/"><u>[New] A Complete Guide to Utilizing YouTube’s AdSense for Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-drive-traffic-and-growth-with-youtube-analytic-insights/"><u>[New] Drive Traffic and Growth with YouTube Analytic Insights</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/achieve-maximum-fps-top-strategies-to-upgrade-game-performance-in-windows-11/"><u>Achieve Maximum FPS: Top Strategies to Upgrade Game Performance in Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/brother-scanning-software-update-for-windows-improved-functionality-and-compatibility/"><u>Brother Scanning Software Update for Windows - Improved Functionality and Compatibility</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/directing-tech-titans-towards-a-coordinated-future/"><u>Directing Tech Titans Towards a Coordinated Future</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723009465246-fixing-borderlands-3-game-crashes-fast-and-simple-solutions/"><u>Fixing Borderlands 3 Game Crashes: Fast and Simple Solutions</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/from-small-to-significant-the-game-changing-potential-of-apples-iphone-12-mini-revealed/"><u>From Small to Significant: The Game-Changing Potential of Apple's iPhone 12 Mini Revealed</u></a></li>
+<li><a href="https://games-able.techidaily.com/remedying-error-steams-failed-file-verification/"><u>Remedying Error: Steam's Failed File Verification</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-condensation-editing-youtube-video-durations/"><u>The Art of Condensation Editing YouTube Video Durations</u></a></li>
+<li><a href="https://blog-min.techidaily.com/troubleshoot-and-repair-overcome-common-youtube-glitches-for-seamless-video-streaming/"><u>Troubleshoot & Repair: Overcome Common YouTube Glitches for Seamless Video Streaming!</u></a></li>
 </ul></div>
 
