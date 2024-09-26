@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-09-15T18:26:40.841Z
-updated: 2024-09-21T17:12:51.260Z
+date: 2024-09-19T16:16:25.523Z
+updated: 2024-09-26T20:43:41.277Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,6 +141,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -133,12 +161,16 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-decoding-youtubes-procedure-after-a-video-is-uploaded/"><u>[New] Decoding YouTube's Procedure After a Video Is Uploaded</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-leaders-of-the-digital-age-videoaudio-innovators-index/"><u>[New] Leaders of the Digital Age Video/Audio Innovators Index</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transforming-slow-motion-into-fast-action/"><u>[New] Transforming Slow Motion Into Fast Action</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-binge-worthy-vids-the-most-shared-content-on-fb-featured-here/"><u>2024 Approved Binge-Worthy Vids! The Most Shared Content on FB Featured Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-a-healthier-newsfeed-avoiding-fb-reels/"><u>Curating a Healthier Newsfeed: Avoiding Fb Reels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-kinemasters-secret-to-meme-making-mastery/"><u>In 2024, KineMaster's Secret to Meme-Making Mastery</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-monetization-in-ytp2024-for-youtubers/"><u>Mastering Monetization in YTP2024 for YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/securely-transforming-youtube-videos-top-3-reliable-methods/"><u>Securely Transforming YouTube Videos Top 3 Reliable Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleash-your-creative-vision-with-youtubes-filmmaking-courses/"><u>Unleash Your Creative Vision with YouTube's Filmmaking Courses</u></a></li>
+</ul></div>
 

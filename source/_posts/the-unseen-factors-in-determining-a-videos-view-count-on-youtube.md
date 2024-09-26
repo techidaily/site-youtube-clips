@@ -1,7 +1,7 @@
 ---
 title: "The Unseen Factors in Determining a Video’s View Count on YouTube"
-date: 2024-09-15T16:42:46.371Z
-updated: 2024-09-21T18:19:14.104Z
+date: 2024-09-19T17:26:35.858Z
+updated: 2024-09-26T16:56:43.731Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -60,10 +67,10 @@ You May Also Like:
 [ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. How Does YouTube’s View Count Algorithm Work?
@@ -82,6 +89,13 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -89,19 +103,6 @@ Something else that can affect whether a view is counted is the behavior of the 
 One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
 
 Any bot-like action will result in an account’s views do not be added to your view count.
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. The Skip & Skim
 
@@ -129,14 +130,14 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,5 +152,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-convenient-ways-to-screen-cast-lenovo-laptops/"><u>[New] In 2024, Convenient Ways to Screen Cast Lenovo Laptops</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-ace-10-budget-friendly-video-subtitle-grabs/"><u>[Updated] Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-changing-the-state-of-your-youtube-comments-for-2024/"><u>[Updated] Step-by-Step Changing the State of Your YouTube Comments for 2024</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/movavi-rmvb-avi/"><u>移動靈活: 使用 Movavi 在網路上無限制地從 RMVB 轉成 AVI - 完美的免費格式更改工具</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-xiaomi-redmi-k70-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Xiaomi Redmi K70 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://change-location.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dynamic-subtitle-artisan-for-2024/"><u>Dynamic Subtitle Artisan for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-strategies-for-professional-grade-video-editing-for-2024/"><u>Essential Strategies for Professional-Grade Video Editing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-the-asus-rog-rapture-gt-ax11000-ultimate-speed-and-gamers-delight/"><u>Expert Evaluation of the Asus ROG Rapture GT-AX11000: Ultimate Speed and Gamers' Delight</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-update-the-dynamic-theme-on-windows-regularly/"><u>How to Update the Dynamic Theme on Windows Regularly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-the-magic-behind-youtube-shorts/"><u>In 2024, Discovering the Magic Behind Youtube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>In 2024, Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
+<li><a href="https://fox-that.techidaily.com/streamlining-photo-collections-a-guide-to-combining-identical-images-on-iphone-or-macos/"><u>Streamlining Photo Collections: A Guide to Combining Identical Images on iPhone or MacOS</u></a></li>
+</ul></div>
 

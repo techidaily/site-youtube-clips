@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-09-14T16:54:51.532Z
-updated: 2024-09-21T17:48:49.591Z
+date: 2024-09-19T20:28:36.890Z
+updated: 2024-09-26T16:11:06.401Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,6 +119,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -125,18 +139,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-audience-connection-mastering-the-art-of-viewpoint-based-youtube-reaction-vids-2-pov-method/"><u>[New] Audience Connection – Mastering the Art of Viewpoint-Based YouTube Reaction Vids (2 POV Method)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-practices-for-organizing-online-video-stories/"><u>[New] Best Practices for Organizing Online Video Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-find-your-way-the-insider-guide-to-youtube-video-management-hub/"><u>[Updated] 2024 Approved Find Your Way The Insider Guide to YouTube Video Management Hub</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-nextlevelcameraseekingpost-mycam/"><u>2024 Approved NextLevelCameraSeekingPost-MyCam</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-price-friendly-nimbus-space-wide-file-vault/"><u>2024 Approved Price-Friendly Nimbus Space Wide File Vault</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/amplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-insights-into-polarrs-photo-tools/"><u>In 2024, Comprehensive Insights Into Polarr's Photo Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mac-os-anomalies-top-7-features-baffling-windows-enthusiasts/"><u>Mac OS Anomalies: Top 7 Features Baffling Windows Enthusiasts</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-harmonizing-tech-with-creativity-best-10-song-editors-for-windowsmac-enthusiasts/"><u>New 2024 Approved Harmonizing Tech with Creativity – Best 10 Song Editors for Windows/Mac Enthusiasts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimal-video-saver-best-chromebook-recorder/"><u>Optimal Video Saver Best Chromebook Recorder</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/piecing-together-attention-grabbing-channel-snippets/"><u>Piecing Together Attention-Grabbing Channel Snippets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleashing-potential-the-best-seo-practices-for-your-youtube-videos/"><u>Unleashing Potential The Best SEO Practices for Your YouTube Videos</u></a></li>
+</ul></div>
 

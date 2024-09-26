@@ -1,7 +1,7 @@
 ---
 title: "The Power of Politeness in Growing Your Audience"
-date: 2024-09-17T19:05:56.593Z
-updated: 2024-09-21T16:08:18.316Z
+date: 2024-09-20T18:54:16.911Z
+updated: 2024-09-26T16:03:42.438Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -63,6 +70,13 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -76,9 +90,23 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -93,12 +121,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-adding-eye-catching-text-to-vids-without-costs/"><u>[New] Adding Eye-Catching Text to Vids Without Costs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-artists-secret-high-quality-free-text-files/"><u>[New] In 2024, The Artist's Secret High-Quality Free Text Files</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-dive-deep-into-obs-advanced-techniques-for-game-capture/"><u>[Updated] Dive Deep Into OBS Advanced Techniques for Game Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-budget-friendly-methods-for-youtube-card-creation/"><u>2024 Approved Budget-Friendly Methods for YouTube Card Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-the-basics-advanced-techniques-for-improved-recordings-for-2024/"><u>Beyond the Basics Advanced Techniques for Improved Recordings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-subscribers-on-a-shoestring-budget-for-2024/"><u>Boost Your Channel's Subscribers on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts-for-2024/"><u>Charting the Course of Monetization for Creator Economy on YouTubeshorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decoding-the-art-of-engaging-in-youtube-short-forms-for-2024/"><u>Decoding the Art of Engaging in YouTube Short Forms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-and-economical-the-best-free-youtube-name-generators-for-2024/"><u>Effortless & Economical The Best Free YouTube Name Generators for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-brand-with-ai-enhanced-naming-solutions-for-2024/"><u>Elevate Your Brand with AI-Enhanced Naming Solutions for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/experience-seamless-windows-performance-on-your-steam-deck-oled-a-comprehensive-guide/"><u>Experience Seamless Windows Performance on Your Steam Deck OLED: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/guide-to-extracting-srt-from-a-zip-archive-for-2024/"><u>Guide to Extracting SRT From a ZIP Archive for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-youtube-masterpieces-with-powerful-hashtag-strategies/"><u>In 2024, Crafting YouTube Masterpieces with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-pace-youtube-via-desktops-and-phones/"><u>In 2024, Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-lag-issues-a-swift-solution-for-gta-5s-frame-rate-problems/"><u>Overcome Lag Issues - A Swift Solution for GTA 5'S Frame Rate Problems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/steps-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>Steps to Prevent Youtube Channels Mobile and Desktop Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tapez-et-protegez-votre-dvd-guide-de-clonage-en-fichier-iso-a-laide-de-winx-dvd-copy-pro/"><u>Tapez Et Protegez Votre DVD : Guide De Clonage en Fichier ISO À L'aide De WinX DVD Copy Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/visual-vaults-expert-tips-on-capturing-and-storing-twitter-video/"><u>Visual Vaults Expert Tips on Capturing and Storing Twitter Video</u></a></li>
+</ul></div>
 

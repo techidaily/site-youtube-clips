@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivate Your Audience  Professional End Screen Creations\""
-date: 2024-09-17T16:14:18.642Z
-updated: 2024-09-21T17:40:40.375Z
+date: 2024-09-21T20:09:35.911Z
+updated: 2024-09-26T17:15:17.853Z
 tags:
   - ai video
   - ai youtube
@@ -85,11 +85,25 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -104,6 +118,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -121,6 +142,13 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -136,12 +164,16 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-generating-a-youtube-auto-subscribe-direct-link-for-2024/"><u>[New] Generating a YouTube Auto Subscribe Direct Link for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-top-10-hilarious-tiktok-skits-unveiled/"><u>[Updated] In 2024, Top 10 Hilarious TikTok Skits Unveiled</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-optimize-viewership-with-proficient-timestamp-placement-on-youtube/"><u>2024 Approved Optimize Viewership with Proficient Timestamp Placement on YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-skill-up-on-the-fly-with-top-10-freeware-art-apps-for-mac/"><u>2024 Approved Skill Up on the Fly with Top 10 Freeware Art Apps for Mac</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/freebie-flicks-discovering-the-top-10-free-movies-online/"><u>Freebie Flicks Discovering the Top 10 Free Movies Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieve-profitability-on-youtube-embracing-any-device-approach/"><u>In 2024, Achieve Profitability on Youtube Embracing Any Device Approach</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-9-free-youtube-logo-makers/"><u>In 2024, Best 9 Free YouTube Logo Makers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-classroom-captures-unveiling-the-ultimate-10-video-recorders-for-education/"><u>In 2024, Classroom Captures Unveiling the Ultimate 10 Video Recorders for Education</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-earnings-by-mastering-youtube-shorts-monetization/"><u>Skyrocket Your Earnings by Mastering YouTube Shorts Monetization</u></a></li>
+</ul></div>
 

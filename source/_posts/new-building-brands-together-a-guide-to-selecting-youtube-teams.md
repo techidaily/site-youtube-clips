@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Building Brands Together  A Guide to Selecting YouTube Teams\""
-date: 2024-09-16T18:01:20.169Z
-updated: 2024-09-21T16:09:30.252Z
+date: 2024-09-21T18:36:43.936Z
+updated: 2024-09-26T17:19:55.640Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -78,6 +85,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -96,19 +110,6 @@ Aim to make your collab videos similar, content-wise, to the other videos on you
 If you appeared in someone else’s video, you would probably appreciate it if they thanked you for being there, told their viewers to go check out your channel, and provided a link for them to do so. So, when you host someone else in one of your videos, that’s the kind of treatment you should give them. If you don’t, then the next person you want to collaborate with will see that and probably won’t want to work with you.
 
  _Collab advice starts at around 2:10._
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
@@ -129,15 +130,22 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
  Do you have any of your advice on YouTube collaborations?
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -154,5 +162,19 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-laughterbox-easy-entry-endless-entertainment/"><u>[New] LaughterBox Easy Entry, Endless Entertainment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-maximizing-your-designs-with-free-clip-art-for-2024/"><u>[New] Maximizing Your Designs with FREE Clip Art for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-echoes-of-the-past-the-top-10-youtube-sources-for-history-lovers/"><u>2024 Approved Echoes of the Past The Top 10 YouTube Sources for History Lovers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-paramount-top-rated-vr-movies/"><u>2024 Approved Paramount Top-Rated VR Movies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-samsung-galaxy-m14-5g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Samsung Galaxy M14 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-galaxy-a05-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Galaxy A05?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/immediate-youtube-earnings-projections/"><u>Immediate YouTube Earnings Projections</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-clearing-the-list-of-auto-recommended-podcasts-in-spotify/"><u>In 2024, Clearing the List of Auto-Recommended Podcasts in Spotify</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>In 2024, Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://app-tips.techidaily.com/resolving-authorization-and-connection-errors-on-itunes-platforms-a-comprehastern-guide/"><u>Resolving Authorization and Connection Errors on iTunes Platforms – A Comprehastern Guide</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/worldwide-debut-of-stellars-pioneering-software-for-photo-recovery-and-repair-breaking-news-update/"><u>Worldwide Debut of Stellar's Pioneering Software for Photo Recovery & Repair - Breaking News Update</u></a></li>
+</ul></div>
 

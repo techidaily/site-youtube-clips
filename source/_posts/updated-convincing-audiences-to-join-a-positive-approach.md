@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Convincing Audiences to Join  A Positive Approach\""
-date: 2024-09-18T19:09:15.810Z
-updated: 2024-09-21T17:59:36.892Z
+date: 2024-09-24T16:03:34.089Z
+updated: 2024-09-26T18:30:38.076Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -54,6 +61,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -63,6 +77,13 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -75,6 +96,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
@@ -93,12 +121,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-15-favorite-online-anime-video-platforms/"><u>[New] 15 Favorite Online Anime Video Platforms</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-from-novices-to-professionals-free-guide-on-google-meet-mastery/"><u>[New] In 2024, From Novices to Professionals Free Guide on Google Meet Mastery</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[Updated] Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://win11.techidaily.com/bypassing-windows-error-0x80072af9-solution/"><u>Bypassing Windows Error: 0X80072AF9 Solution</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-branding-made-simple-and-free/"><u>Channel Branding Made Simple & Free</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716464747861-channel-name-wizardry-brainstorm-and-create/"><u>Channel Name Wizardry Brainstorm & Create!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/discover-the-best-19-gratis-video-landscaping-courses-begin-your-journey-online-and-free/"><u>Discover the Best 19 Gratis Video Landscaping Courses – Begin Your Journey , Online and Free!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/efficiently-achieving-color-background-separation/"><u>Efficiently Achieving Color Background Separation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/examining-realities-intertwined-what-is-mixed-reality/"><u>Examining Realities Intertwined What Is Mixed Reality?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mind-puzzling-stats-a-graphed-journey-through-yt-17/"><u>Mind-Puzzling Stats A Graphed Journey Through YT '17</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-youtubes-studio-editor-to-master-videography/"><u>Navigate YouTube's Studio Editor to Master Videography</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-gadgets-the-ultimate-guide-by-tom/"><u>Navigating Gadgets: The Ultimate Guide by Tom</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/unleash-your-creativity-best-movie-trailer-software-for-mac-and-windows-for-2024/"><u>Unleash Your Creativity Best Movie Trailer Software for Mac and Windows for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/watermarking-for-professionals-software-analysis/"><u>Watermarking for Professionals - Software Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-ultimate-guide-to-downloading-youtube-on-ios/"><u>Your Ultimate Guide to Downloading YouTube on iOS</u></a></li>
+</ul></div>
 

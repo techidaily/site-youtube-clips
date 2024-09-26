@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Discovering Popular Video Threads"
-date: 2024-09-06T12:24:08.021Z
-updated: 2024-09-07T12:24:08.021Z
+date: 2024-09-19T17:36:06.247Z
+updated: 2024-09-26T17:58:57.170Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -61,21 +68,16 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Make My Comment Highlighted?
 
 Now, making YouTube highlight your comment on a popular video is nothing less than an art. YouTube doesn't make it easy for you. The advantage of getting your comment highlighted on YouTube is limitless.
@@ -92,12 +94,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -109,11 +105,18 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 6: How to Remove Highlighted Comments?
 
 Can you, as a video maker, remove highlighted comments on YouTube? The direct answer to this would be a 'No.' It is because based on how you have opened the specific video, YouTube does it automatically.
@@ -129,17 +132,12 @@ Alternatively, you can try out a few temporary solutions.
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
 Many frequently inquire on the internet about how they can improve the chances of getting their comment pinned, as highlighted on YouTube. The secret lies in how you write the statement. We've listed a few pro tips below that can help:
@@ -150,12 +148,6 @@ Many frequently inquire on the internet about how they can improve the chances o
 * Do not hit the post option already. Before publishing it, you must cross-check that your comment has all the above points in place.
 * Lastly, you have to wait after publishing on the video's comment section. YouTube will highlight your comment if it passes according to the YouTube policy and if the search engine finds it unique.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 8: Are Highlighted Comments Beneficial?
 
 Being a convenience feature, a highlighted comment on YouTube is 100% beneficial. That is especially true if you are looking for ways to optimize your channel.
@@ -176,25 +168,11 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -202,3 +180,21 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-your-yearly-list-prime-free-video-editing-software/"><u>[New] Your Yearly List Prime Free Video Editing Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-guide-seamless-facebook-live-integration-for-web-pages/"><u>[Updated] 2024 Approved Guide Seamless Facebook Live Integration for Web Pages</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-foundation-principles-of-tale-telling/"><u>[Updated] Foundation Principles of Tale-Telling</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clear-cut-content-how-to-minimize-unwanted-elements-in-video-for-2024/"><u>Clear Cut Content How to Minimize Unwanted Elements in Video for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion/"><u>Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/demystifying-the-world-of-youtube-shorts-for-2024/"><u>Demystifying the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-youtube-experience-with-a-structured-watch-later-plan-for-2024/"><u>Enhancing YouTube Experience with a Structured Watch Later Plan for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-oppo-reno-11f-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/htful-ways-to-monitor-youtube-viewership-trends-for-2024/"><u>Insightful Ways to Monitor YouTube Viewership Trends for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/optimizing-your-documents-with-flipbuilder-the-ultimate-tutorial-for-using-page-references/"><u>Optimizing Your Documents with FlipBuilder: The Ultimate Tutorial for Using Page References</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-science-of-shareable-hashtags-that-gain-traction/"><u>The Science of Shareable Hashtags That Gain Traction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-sound-of-success-audio-tips-to-elevate-your-youtube-experience/"><u>The Sound of Success Audio Tips to Elevate Your YouTube Experience</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+</ul></div>
+

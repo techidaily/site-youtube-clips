@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-09-18T17:58:47.446Z
-updated: 2024-09-21T17:37:25.217Z
+date: 2024-09-21T18:05:39.339Z
+updated: 2024-09-26T16:57:35.587Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -69,6 +76,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,13 +96,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -119,27 +126,20 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -148,6 +148,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,5 +169,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-2024-guide-to-share-youtube-video-on-facebook/"><u>[New] 2024 Guide to Share YouTube Video on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cutting-edge-tips-refine-your-brands-instagram-visibility-for-2024/"><u>[New] Cutting-Edge Tips Refine Your Brand's Instagram Visibility for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-7-premier-android-apps-to-banish-ads/"><u>[New] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boost-views-top-10-free-tools-for-custom-youtube-thumbnails/"><u>[New] In 2024, Boost Views Top 10 Free Tools for Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-growth-the-best-online-stock-yts/"><u>[Updated] Charting Growth The Best Online Stock YTs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-video-viral/"><u>[Updated] Twitter Video Viral</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dance-directives-finding-ideal-dj-templates/"><u>Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-y55s-5g-2023-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo Y55s 5G (2023) to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-oppo-reno-11f-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Oppo Reno 11F 5G FRP</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-webcam-recommendations-for-smooth-zoom-sessions/"><u>In 2024, Premium Webcam Recommendations for Smooth Zoom Sessions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfect-your-channel-imagery-youtube-thumbnail-dos-and-donts/"><u>Perfect Your Channel Imagery YouTube Thumbnail Do's & Don'ts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/smartphone-browser-showdown-youtube-app-analysis/"><u>Smartphone Browser Showdown YouTube App Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-perfecting-your-yt-visual-footprint/"><u>The Ultimate Guide to Perfecting Your YT Visual Footprint</u></a></li>
+<li><a href="https://win-answers.techidaily.com/understanding-frame-rate-issues-in-farming-simulator-22-solving-pc-performance-drop/"><u>Understanding Frame Rate Issues in Farming Simulator 22: Solving PC Performance Drop</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-oppo-f25-pro-5g-by-drfone-android/"><u>Universal Unlock Pattern for Oppo F25 Pro 5G</u></a></li>
+</ul></div>
 

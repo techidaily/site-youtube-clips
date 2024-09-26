@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Video Setup Must-Haves\""
-date: 2024-09-17T16:23:20.299Z
-updated: 2024-09-21T18:45:46.552Z
+date: 2024-09-19T20:16:27.555Z
+updated: 2024-09-26T17:57:00.197Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -72,6 +79,13 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -86,13 +100,6 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -101,18 +108,25 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,5 +141,22 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[New] Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-addressing-missing-image-display-in-youtubes-shorts/"><u>[Updated] Addressing Missing Image Display in YouTubes Shorts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-everything-about-metaverse-marketing-example-strategies-and-more/"><u>[Updated] Everything About Metaverse Marketing Example, Strategies, and More</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-wmampeg/"><u>「Movavi オンラインエディター：WMA/MPEGファイルを自由に変換」専用無料サービス</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-your-youtube-stream-the-wirecast-way-for-2024/"><u>Elevating Your YouTube Stream The WireCast Way for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-tips-enhancing-focus-in-your-youtube-video-for-2024/"><u>Essential Tips Enhancing Focus in Your YouTube Video for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-technology-with-tom-hardware-insights/"><u>Exploring Technology with Tom: Hardware Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flashglimpse-crafter/"><u>FlashGlimpse Crafter</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-6s-plus-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 6s Plus Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-transforming-spontaneitous-tunes-into-structured-youtube-playlists/"><u>In 2024, Transforming Spontaneitous Tunes Into Structured YouTube Playlists</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/perfect-playlists-10-music-selections-to-open-your-podcast/"><u>Perfect Playlists 10 Music Selections to Open Your Podcast</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamline-color-correction-with-easy-techniques/"><u>Streamline Color Correction with Easy Techniques</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-conversion-boosting-click-through-rates-on-social-platforms/"><u>The Art of Conversion Boosting Click-Through Rates on Social Platforms</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-resolving-phasmophobia-vr-gameplay-issues/"><u>Troubleshooting Guide: Resolving Phasmophobia VR Gameplay Issues</u></a></li>
+</ul></div>
 

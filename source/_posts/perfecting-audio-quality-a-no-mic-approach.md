@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-09-18T16:53:52.473Z
-updated: 2024-09-21T17:07:12.207Z
+date: 2024-09-23T17:47:38.375Z
+updated: 2024-09-26T17:10:40.812Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,6 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -86,6 +79,13 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -95,10 +95,10 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
@@ -109,20 +109,27 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,5 +144,16 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-get-started-on-vimeo-for-free-the-basics-of-video-editing/"><u>[New] In 2024, Get Started on Vimeo for Free The Basics of Video Editing</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-getting-started-on-discord-a-comprehensive-guide-to-broadcasting/"><u>[Updated] 2024 Approved Getting Started on Discord A Comprehensive Guide to Broadcasting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-audiovisual-authority-the-finest-computers-for-professional-edits/"><u>[Updated] Audiovisual Authority The Finest Computers for Professional Edits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-step-by-step-guide-to-edit-youtube-videos-in-finalcut-for-2024/"><u>A Step-by-Step Guide to Edit YouTube Videos in FinalCut for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/broadcasters-dilemma-opt-for-wirecast-or-obs-in-2024/"><u>Broadcaster's Dilemma Opt for Wirecast or OBS, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-seas-of-success-utilizing-social-blade-for-youtube-data/"><u>Navigating the Seas of Success Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-through-the-differences-between-apples-ipad-pro-and-macbook-air/"><u>Navigating Through the Differences Between Apple's iPad Pro and MacBook Air</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfecting-your-footage-youtube-shorts-now-mp4/"><u>Perfecting Your Footage YouTube Shorts, Now Mp4</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-selection-of-no-cost-image-transformers-for-ios-and-android-for-2024/"><u>The Ultimate Selection of No-Cost Image Transformers for iOS and Android for 2024</u></a></li>
+</ul></div>
 

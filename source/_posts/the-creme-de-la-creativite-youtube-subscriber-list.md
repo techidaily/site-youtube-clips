@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2024-09-19T16:47:55.624Z
-updated: 2024-09-21T16:18:06.828Z
+date: 2024-09-20T19:31:51.239Z
+updated: 2024-09-26T20:44:00.757Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,13 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
@@ -74,22 +81,15 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -99,10 +99,10 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
@@ -121,6 +121,19 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -136,5 +149,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-frontier-top-360-cameras-for-industry-pros-2023/"><u>[New] Exploring the Frontier Top 360° Cameras for Industry Pros, 2023</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-reverse-silent-tweets-audible-video-connection/"><u>[New] In 2024, Reverse Silent Tweets Audible Video Connection</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-illumination-strategies-for-filming/"><u>[Updated] Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-building-through-characters-and-plot-twists/"><u>[Updated] In 2024, Channel-Building Through Characters and Plot Twists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-seamless-saving-of-snapchat-images-on-device-memory/"><u>[Updated] Seamless Saving of SnapChat Images on Device Memory</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-analyzing-youtube-rankings-what-drives-top-placement/"><u>2024 Approved Analyzing YouTube Rankings What Drives Top Placement?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-best-5-gif-to-video-converter-online-no-need-to-download/"><u>2024 Approved Best 5 GIF to Video Converter Online [No Need to Download]</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-engaging-video-teasers-for-youtube-success/"><u>2024 Approved Crafting Engaging Video Teasers for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/custom-youtube-video-speed-control-desktopmobile/"><u>Custom YouTube Video Speed Control (Desktop/Mobile)</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/easy-solutions-for-unfreezing-google-chrome-on-your-windows-11-pc/"><u>Easy Solutions for Unfreezing Google Chrome on Your Windows 11 PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-14-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/monetization-mastery-guide-choosing-the-right-platform/"><u>Monetization Mastery Guide Choosing the Right Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/prime-top-10-free-transcript-harvesters-for-videos/"><u>Prime Top 10 Free Transcript Harvesters for Videos</u></a></li>
+</ul></div>
 

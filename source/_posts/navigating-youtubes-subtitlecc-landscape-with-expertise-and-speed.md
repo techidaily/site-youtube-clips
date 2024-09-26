@@ -1,7 +1,7 @@
 ---
 title: "Navigating YouTube's Subtitle/CC Landscape with Expertise and Speed"
-date: 2024-09-18T17:10:30.785Z
-updated: 2024-09-21T18:25:19.651Z
+date: 2024-09-24T17:54:57.077Z
+updated: 2024-09-26T19:37:43.292Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -52,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -72,16 +86,10 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -101,10 +109,10 @@ thumbnail: https://thmb.techidaily.com/f02c60ec75f846fa2b4ccaf9e1cd79d7d6223ca42
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,5 +128,19 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-newbies-ultimate-youtube-gear-handbook/"><u>[New] 2024 Approved Newbies' Ultimate YouTube Gear Handbook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-finding-the-perfect-screen-recorder-for-games-for-2024/"><u>[New] Finding the Perfect Screen Recorder for Games for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-wise-approach-to-organize-youtube-content-into-chapters/"><u>[New] Step-Wise Approach to Organize YouTube Content Into Chapters</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven-for-2024/"><u>Aesthetic Ambitions Launching a YouTube Channel for Makeup Maven for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/discovering-the-ultimate-14-stardew-valley-upgrades-for-2024/"><u>Discovering the Ultimate 14 Stardew Valley Upgrades for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-social-reach-youtube-videos-on-facebook-sites/"><u>Enhancing Social Reach YouTube Videos on Facebook Sites</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-samsung-galaxy-f04-by-drfone-android/"><u>How to Bypass FRP from Samsung Galaxy F04?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-tecno-camon-20-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Tecno Camon 20 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-calculating-best-podcast-debut-days/"><u>In 2024, Calculating Best Podcast Debut Days</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-echoes-of-excellence-10-strategies-for-superior-sound-quality/"><u>In 2024, Echoes of Excellence 10 Strategies for Superior Sound Quality</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/scorching-speedways-ranking-the-top-5-virtual-race-titles-for-2024/"><u>Scorching Speedways Ranking the Top 5 Virtual Race Titles for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-life-experiences-into-engaging-yt-videos/"><u>Transforming Life Experiences Into Engaging YT Videos</u></a></li>
+</ul></div>
 

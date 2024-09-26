@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-09-19T16:56:07.526Z
-updated: 2024-09-21T16:14:06.106Z
+date: 2024-09-24T19:08:40.963Z
+updated: 2024-09-26T19:09:42.863Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -49,6 +56,13 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -84,10 +98,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -113,10 +127,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,5 +146,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-decoding-the-art-of-instagrams-hot-trending-reels/"><u>[New] Decoding the Art of Instagram's Hot Trending Reels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-efficiently-handling-youtube-short-issues/"><u>[New] Efficiently Handling YouTube Short Issues</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-5-pioneering-portals-to-streamline-your-text-effects-search/"><u>[New] In 2024, 5 Pioneering Portals to Streamline Your Text Effects Search</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[New] In 2024, Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unleashing-potential-in-virtual-collaboration-platforms/"><u>[New] In 2024, Unleashing Potential in Virtual Collaboration Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-guiding-principles-for-modifying-photographic-identities-on-major-social-platforms-for-2024/"><u>[Updated] Guiding Principles for Modifying Photographic Identities on Major Social Platforms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-arena-100plus-titles-for-the-true-gamer/"><u>2024 Approved Digital Arena 100+ Titles for the True Gamer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-smile-and-share-easy-memes-via-kinemaster/"><u>2024 Approved Smile and Share Easy Memes via KineMaster</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/economical-embellishments-free-youtube-template-packs-for-2024/"><u>Economical Embellishments FREE YouTube Template Packs for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-user-experience-strategic-placement-of-alerts-on-youtube-content/"><u>Enhancing User Experience Strategic Placement of Alerts on YouTube Content</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-troubleshoot-and-fix-the-black-screen-problem-following-a-windows-10-system-update/"><u>How to Troubleshoot and Fix the Black Screen Problem Following a Windows 10 System Update</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channel-upgrade-smartphone-techniques-for-professional-videos/"><u>In 2024, Channel Upgrade Smartphone Techniques for Professional Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-comprehensible-guide-to-high-quality-audios-on-youtube/"><u>In 2024, Comprehensible Guide to High-Quality Audios on YouTube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-humor-synthesizer-zombified-appliances/"><u>In 2024, Humor Synthesizer Zombified Appliances</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-up-your-stream-simultaneous-views-on-one-screen/"><u>Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+</ul></div>
 

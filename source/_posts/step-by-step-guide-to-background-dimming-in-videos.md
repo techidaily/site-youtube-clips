@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Background Dimming in Videos\""
-date: 2024-08-16T08:09:49.022Z
-updated: 2024-08-17T08:09:49.022Z
+date: 2024-09-23T17:32:58.126Z
+updated: 2024-09-26T16:12:06.595Z
 tags:
   - ai video
   - ai youtube
@@ -60,14 +60,18 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -76,15 +80,9 @@ There are about 20 bokeh effects available in filters and overlays. You can find
 Note: you should select **Included** to see all bokeh effects pre-programmed in Filmora. If you need more visual effects, just go to [the Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) effects store.
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
 Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, which allows you to highlight people in the video, blur, and conceal the video background.
@@ -92,26 +90,37 @@ Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, whic
 Go to the **Effects** tab and then switch to the **Utility** menu under **Included** category.
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -119,11 +128,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>[New] Channel Design Mastery Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-a-singular-stream-from-diverse-youtube-videos/"><u>[New] Creating a Singular Stream From Diverse YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-adaptive-sharing-techniques-for-igtv-on-fb/"><u>[Updated] 2024 Approved Adaptive Sharing Techniques for IGTV on FB</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-5-second-stories-explained-well/"><u>[Updated] 5-Second Stories Explained Well</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-inside-look-the-future-of-home-cam-recordings-for-2024/"><u>[Updated] Inside Look The Future of Home Cam Recordings for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accessing-and-understanding-windows-component-services-interface/"><u>Accessing & Understanding Windows Component Services Interface</u></a></li>
+<li><a href="https://fox-links.techidaily.com/crafting-softer-sounds-with-live-software-for-2024/"><u>Crafting Softer Sounds with Live Software for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-your-virtual-alter-ego-in-a-metaverse-setting/"><u>Crafting Your Virtual Alter Ego in a Metaverse Setting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/free-safe-steps-to-extract-audio-from-youtube-videos/"><u>Free, Safe Steps to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-se-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-google-meet-live-broadcast-steps/"><u>Mastering YouTube Google Meet Live Broadcast Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/sculpting-waterway-content-with-flair/"><u>Sculpting Waterway Content with Flair</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/shortcuts-to-wealth-in-youtube-shorts/"><u>Shortcuts to Wealth in YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-playlist-tweaking-on-youtube-for-2024/"><u>The Ultimate Playlist Tweaking on YouTube for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722898619084-troubleshoot-helperdll-file-not-found-issues-with-these-simple-fixes/"><u>Troubleshoot Helper.dll File Not Found Issues with These Simple Fixes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleash-creativity-with-free-templates-essential-for-video-makers/"><u>Unleash Creativity with FREE Templates – Essential for Video Makers</u></a></li>
+</ul></div>
+

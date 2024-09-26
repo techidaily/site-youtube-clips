@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding Video Thread Embellishments"
-date: 2024-09-20T17:35:10.992Z
-updated: 2024-09-21T19:19:38.162Z
+date: 2024-09-19T20:04:16.684Z
+updated: 2024-09-26T18:22:19.756Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -63,6 +70,13 @@ YouTube has been working on improving the navigation of the comment section for 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -81,20 +95,19 @@ Suppose you are a viewer who is going through the comments section of a video. I
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -149,10 +162,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,5 +181,21 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-chart-success-the-top-online-stock-portals/"><u>[New] Chart Success The Top Online Stock Portals</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-audio-tools-free-superior-dj-templates-online/"><u>[New] Essential Audio Tools Free, Superior DJ Templates Online</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-screenplay-blueprint-unveiled/"><u>[New] In 2024, Screenplay Blueprint Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pioneering-video-editing-techniques-for-windows-10-aficionados-for-2024/"><u>[New] Pioneering Video Editing Techniques for Windows 10 Aficionados for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-does-investing-in-video-growth-pay-off-on-yt/"><u>[Updated] Does Investing in Video Growth Pay Off on YT?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unravel-the-potential-of-multiple-screen-usage-in-netflix/"><u>[Updated] In 2024, Unravel The Potential of Multiple Screen Usage in Netflix</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-diy-youtube-thumbnails-on-smartphones/"><u>2024 Approved DIY YouTube Thumbnails on Smartphones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-sierra-navigating-desktop-drives-with-ease/"><u>2024 Approved Sierra Navigating Desktop, Drives with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-video-visibility-through-thumbnails-for-2024/"><u>Elevating Video Visibility Through Thumbnails for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-elite-d-class-dungeons-topping-the-list/"><u>In 2024, Elite D-Class Dungeons Topping the List</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-rapid-methods-to-customize-your-soundscaping-in-pubg/"><u>In 2024, Rapid Methods to Customize Your Soundscaping in PUBG</u></a></li>
+<li><a href="https://extra-information.techidaily.com/return-journey-maker-collection/"><u>Return Journey Maker Collection</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-complete-guide-to-proficient-kinemaster-use-and-top-digital-services-for-2024/"><u>The Complete Guide to Proficient KineMaster Use and Top Digital Services for 2024</u></a></li>
+</ul></div>
 

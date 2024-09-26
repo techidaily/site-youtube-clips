@@ -1,7 +1,7 @@
 ---
 title: "Optimized Game Performance: Understanding & Resolving Fluctuating FPS"
-date: 2024-09-15T18:11:08.632Z
-updated: 2024-09-21T17:20:38.280Z
+date: 2024-09-19T16:20:21.262Z
+updated: 2024-09-26T18:00:20.090Z
 tags:
   - win11
   - win10
@@ -112,6 +112,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/check-windows-update-1200x710.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Click **Check for updates** . If it detects any updates available, it will download it for you.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/check-for-updates-1200x685.png)
@@ -120,7 +127,21 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/restart-after-windows-updates-1200x626.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If updating Windows doesn’t give you any luck, proceed to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Update your graphics driver
 
@@ -146,29 +167,9 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
  After updating drivers, restart your PC and test your gameplay. If your problem persists, proceed to the next fix.
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Verify integrity of game files
 
@@ -183,13 +184,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 2) Under LIBRARY, right-click**Dying Light 2** and select**Properties** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-verify-integrity-of-game-files-properties-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  2) Select the **LOCAL FILES**  tab. Then click **Verify integrity of game files…** .
 
@@ -206,13 +200,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  3) Select**Verify** from the drop-down.
 
  Depending on the size of the game it may take a few minutes to verify all your files. Once it completes, launch your game and test the gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Change in-game settings
 
@@ -242,6 +229,13 @@ Now scroll down and make these changes:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/image.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Then apply the changes. Press the**Esc** key and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/apply-the-changes.png)
@@ -249,16 +243,10 @@ Now scroll down and make these changes:
  However, by applying these changes, you’ll have to settle for less in-game visual detail. If you find you’re sacrificing too much in your graphical settings to hit your frame rate target, there’s always another option: Upgrading to a new system with a faster GPU and CPU.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Enable hardware-accelerated GPU scheduling
@@ -274,6 +262,13 @@ Now scroll down and make these changes:
  2) Toggle**on** Hardware-accelerated GPU scheduling. Then select**Desktop app** from the drop-down. Then click on the**Browse** button.  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dyling-Light-2-enable-accelerated-high-gpu-scheduling.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  3) Navigate to your game’s installation folder. If you’re on Steam, follow the instructions below to locate your game’s installation folder.
 
@@ -296,6 +291,13 @@ Locate the game’s installation folder on Steam:
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/options.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  6) Choose**High performance** and click**Save** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/high-performance-1.png)
@@ -303,6 +305,13 @@ Locate the game’s installation folder on Steam:
  Doing this will make sure that the game runs on the best graphics processor you have on your computer, not holding back any performance.
 
  However, if this doesn’t give you any performance boost, try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. Scan your PC for corrupted files
 
@@ -337,5 +346,17 @@ When the process is complete, restart your PC.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>[New] In 2024, Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rolific-producers-of-profits-online-for-2024/"><u>[New] Prolific Producers of Profits Online for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-designing-direct-access-to-your-channels-subscribe-page/"><u>[Updated] Designing Direct Access to Your Channel's Subscribe Page</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-optimal-4k-video-recording-tools-compilation/"><u>2024 Approved Optimal 4K Video Recording Tools Compilation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-video-watchlist-activate-av1-on-youtube-for-2024/"><u>Elevate Your Video Watchlist - Activate AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fresh-funds-finds-economical-monetization-platforms-for-beginners/"><u>Fresh Funds Finds Economical Monetization Platforms for Beginners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ace-the-art-of-online-fame-trending-on-youtube/"><u>In 2024, Ace the Art of Online Fame Trending on YouTube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/microsoft-store-access-immediate-fixes-needed/"><u>Microsoft Store Access: Immediate Fixes Needed?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/navigating-zooms-share-functionality/"><u>Navigating Zoom's Share Functionality</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-vivo-s18-pro-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Vivo S18 Pro Phones</u></a></li>
+</ul></div>
 

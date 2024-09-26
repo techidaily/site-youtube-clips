@@ -1,7 +1,7 @@
 ---
 title: "[New] Antique Cinematography in the Digital Realm"
-date: 2024-09-15T18:21:24.007Z
-updated: 2024-09-21T18:34:33.932Z
+date: 2024-09-19T19:32:14.231Z
+updated: 2024-09-26T16:41:22.502Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,19 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -92,6 +105,13 @@ There are various other categories of filters you can apply, such as Retro, Sun 
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filters to stimulate sepia-tinted texture and recreate the old visual style. The Sun Kissed filter presents brown and red colors to give that warm image atmosphere.
 
 **Step 4:** Desaturate Video Clip
@@ -102,6 +122,13 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
 **Step 5:** Apply Black & White and Old Film Color Correction Presets to the video
@@ -109,6 +136,13 @@ Then, we have combined the black & white filter with an overlay of Film Reel Hor
 You can also access the Advanced color correction Tab of Filmora from the Color button. It also features Preset and Adjusts Tabs to desaturate footage. The Preset presents a variety of options, including Black & White and Old Film. You just need to right-click the particular preset and select the Apply option.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
 
@@ -121,13 +155,6 @@ Following the helpful tips would assist you in creating awesome retro videos.
 * Lower the frame rate or FPS to create an excellent vintage look. You can make it to 18 or 14 FPS depending upon the aesthetic requirements.
 * Keep an eye on black and white filters you have used. It's because more of a black and white can ruin the actual vintage experience.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 So, this is an ultimate tutorial on the creation of vintage videos. We Hope you have admired the steps and our recommended video editing software. Vintage means grand, and thus you should make it amazing as well. It is the reason we have stated all facts regarding the vintage effect in our post above. Wondering how to add such effect in FCPX? check this article:[How to Create a Vignette in Final Cut Pro X?](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -135,13 +162,6 @@ So, this is an ultimate tutorial on the creation of vintage videos. We Hope you 
 Surely give a read and thank us later!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -156,5 +176,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevate-your-instagram-storytelling-with-automated-captions/"><u>[New] 2024 Approved Elevate Your Instagram Storytelling with Automated Captions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-beginners-guide-to-elevating-auditory-experiences-on-youtube/"><u>[New] A Beginner's Guide to Elevating Auditory Experiences on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-dynamic-duo-shots-perfecting-youtube-video-splitting/"><u>[Updated] Dynamic Duo Shots Perfecting YouTube Video Splitting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-no-cash-needed-try-these-free-youtube-subtitle-tools/"><u>[Updated] No Cash Needed? Try These Free YouTube Subtitle Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-analyzing-t-series-youtube-financial-gains/"><u>2024 Approved Analyzing T-Series Youtube Financial Gains</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/avchd-on-galaxy-xcover-7-convert-mts-for-galaxy-xcover-7-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD on Galaxy XCover 7-convert MTS for Galaxy XCover 7</u></a></li>
+<li><a href="https://driver-download.techidaily.com/compatible-with-all-windows-versions-secure-epson-gt-s50-drivers-for-quick-setup-windows-7-8-and-10/"><u>Compatible with All Windows Versions: Secure Epson GT-S50 Drivers for Quick Setup (Windows 7, 8 & 10)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fast-format-transformation-youtube-for-mac-ratio/"><u>Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boost-visibility-with-customized-channel-names/"><u>In 2024, Boost Visibility with Customized Channel Names</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-audio-rates-on-youtube-dual-device-approach/"><u>In 2024, Elevating Audio Rates on YouTube Dual Device Approach</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-student/"><u>Lenovo Ideapad # Student</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-electrical-energy-the-best-lipo-for-uavs-for-2024/"><u>Mastering Electrical Energy The Best LiPo for UAVs for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/protect-identities-the-best-face-blur-video-editing-tools-for-2024/"><u>Protect Identities The Best Face Blur Video Editing Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/shaping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>Shaping Viewers’ Attention Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-design-and-build-your-own-4k-editing-system-for-2024/"><u>The Ultimate Guide to Design and Build Your Own 4K Editing System for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-motorola-moto-g-stylus-an-economical-phone-with-impressive-writing-capabilities/"><u>The Ultimate Guide to the Motorola Moto G Stylus - An Economical Phone with Impressive Writing Capabilities.</u></a></li>
+</ul></div>
 

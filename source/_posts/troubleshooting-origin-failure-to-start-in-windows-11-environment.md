@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2024-09-15T16:52:11.371Z
-updated: 2024-09-21T16:30:15.109Z
+date: 2024-09-21T19:40:18.903Z
+updated: 2024-09-26T19:52:31.435Z
 tags:
   - win11
   - win10
@@ -52,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a59dfeba.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3) Check if your Start menu works all right now.
 
  If the same problem keeps reoccurring, you may need to try other methods below.
@@ -80,6 +87,13 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8bbeac77b.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5) Restart your computer and log into the new user account.
 
 6) Your**Start** menu should work now.You can change the new local account to a Microsoft account and transfer your files and settings.
@@ -96,6 +110,13 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b92b357675.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Double-click**Sound, video and game controller** . Right-click your audio card driver and click**Uninstall device** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b931f18df7.png)
@@ -103,13 +124,6 @@ net user newusername newpassword /add
  When prompted with the following notification, tick the box for**Delete the driver software for this device** and click**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b939274834.png)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  5) Restart your computer after the uninstall of both of your video card driver and your sound card driver.
 
@@ -130,13 +144,6 @@ net user newusername newpassword /add
  Or click **Update All**  to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system (this requires the [**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b963732280.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 7) Check if your Start menu is back.
 
@@ -159,6 +166,13 @@ net user newusername newpassword /add
  1) On your keyboard, press the**Windows logo key** and**R**  at the same time, type**control** in and press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) View by**Category** , then click**Uninstall a program** .
 
@@ -190,22 +204,15 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
@@ -239,15 +246,22 @@ DISM /Online /Cleanup-Image /RestoreHealth
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Copy and paste the following command in and press the **Enter** key on your keyboard.
 
@@ -261,6 +275,13 @@ de -Register "$($_.InstallLocation)\AppXManifest.xml"}
 Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register "$($_.InstallLocation)\AppXManifest.xml"}
 
  4) There, your Cortana is reinstalled, and your Start menu should also be back now.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Last but not least: refresh your PC
 
@@ -283,5 +304,26 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>[New] Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-engaging-viewers-on-youtube-gaming-livestreams/"><u>[New] Engaging Viewers on YouTube Gaming Livestreams</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fbstream-reaper-download-features/"><u>[Updated] 2024 Approved FbStream Reaper - Download Features</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>[Updated] Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-step-by-step-vimeo-recording-process/"><u>[Updated] In 2024, Step-by-Step Vimeo Recording Process</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-animators-playground-building-your-own-visual-treats/"><u>2024 Approved Animator’s Playground Building Your Own Visual Treats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-identity-constructing-memorable-templates-for-gamers/"><u>2024 Approved Channel Identity Constructing Memorable Templates for Gamers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/animators-playground-building-your-own-visual-treats/"><u>Animator’s Playground Building Your Own Visual Treats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-mid-range-pricing-options-on-escortselfs-latest-long-range-radar-reviews-for-drivers/"><u>Discover Mid-Range Pricing Options on Escort’self's Latest Long Range Radar Reviews for Drivers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-silent-pcs-cyberpunk-2077-audio-issues-resolved-on-windows-11/"><u>Fixing Silent PCs: Cyberpunk 2077 Audio Issues Resolved on Windows 11</u></a></li>
+<li><a href="https://games-able.techidaily.com/frugal-futurists-guide-to-budget-vr-gear/"><u>Frugal Futurists' Guide to Budget VR Gear</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/get-and-set-up-microsofts-xp-video-editor-installer/"><u>Get & Set Up Microsoft's XP Video Editor Installer</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-itel-p55plus-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-advice-youtube-to-mpeg-compression-guide/"><u>In 2024, Expert Advice YouTube to MPEG Compression Guide</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/lost-and-found-unveiling-macs-top-free-and-paid-data-rescue-software/"><u>Lost and Found: Unveiling Mac's Top Free & Paid Data Rescue Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-video-editing-for-youtube-creators/"><u>Navigating the World of Video Editing for YouTube Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimizing-youtube-auditory-experience-for-viewers/"><u>Optimizing YouTube Auditory Experience for Viewers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/patching-up-overwatchs-graphic-mishaps-drivers-revised/"><u>Patching Up Overwatch's Graphic Mishaps – Drivers Revised</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-recommended-videos-block-the-videos/"><u>YouTube Recommended Videos - Block the Videos</u></a></li>
+</ul></div>
 

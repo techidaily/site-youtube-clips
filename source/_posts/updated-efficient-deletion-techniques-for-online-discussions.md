@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-09-16T18:53:25.304Z
-updated: 2024-09-21T19:22:16.193Z
+date: 2024-09-22T17:43:35.079Z
+updated: 2024-09-26T20:36:26.780Z
 tags:
   - ai video
   - ai youtube
@@ -103,13 +103,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -119,35 +112,49 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,5 +169,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-make-money-on-youtube/"><u>[New] 2024 Approved How To Make Money on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-stepwise-approach-to-youtube-caption-addition/"><u>[New] A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-charting-the-course-for-your-youtube-music-narrative/"><u>[New] Charting the Course for Your YouTube Music Narrative</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-efficient-techniques-screen-recording-in-google-meet-for-2024/"><u>[New] Efficient Techniques Screen Recording in Google Meet for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>[Updated] 2024 Approved Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cross-media-content-flow-from-youtube-to-thirtyplus-others/"><u>[Updated] Cross-Media Content Flow From YouTube to Thirty+ Others</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-effortlessly-record-high-quality-mac-audio-using-audacity-for-2024/"><u>[Updated] Effortlessly Record High-Quality Mac Audio Using Audacity for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-electrical-upgrades/"><u>[Updated] Electrical Upgrades</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>2024 Approved AdSense Profits on YouTube Earnings per Thousand Video Watchers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-crafting-a-compelling-narrative-with-voiceover-and-visuals/"><u>2024 Approved Crafting a Compelling Narrative with Voiceover and Visuals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-leading-5-underwater-filters-for-gopro-videos/"><u>2024 Approved Leading 5 Underwater Filters for Gopro Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-revolutionize-your-lessons-implementing-youtube-in-the-academic-realm/"><u>2024 Approved Revolutionize Your Lessons Implementing YouTube in the Academic Realm</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-screen-reporter-toolkit-for-youtube-streamers/"><u>In 2024, Best Screen Reporter Toolkit for YouTube Streamers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhance-your-watch-experience-with-faster-instagram-videos/"><u>In 2024, Enhance Your Watch Experience with Faster Instagram Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/swift-systems-for-rearranging-youtube-video-lineup/"><u>Swift Systems for Rearranging YouTube Video Lineup</u></a></li>
+</ul></div>
 

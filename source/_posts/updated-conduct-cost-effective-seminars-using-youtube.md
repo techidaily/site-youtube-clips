@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Conduct Cost-Effective Seminars Using YouTube\""
-date: 2024-09-17T18:32:25.687Z
-updated: 2024-09-21T16:49:05.400Z
+date: 2024-09-24T19:50:12.457Z
+updated: 2024-09-26T20:38:33.595Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hosting a Webinar for Free
 
 The world's largest video sharing platform also features broadcasting options that enable its users to schedule events and thus host webinars free of charge. Previously known as the Google Hangouts on Air, the YouTube Live feature is fairly simple to set up, but before you start your first webinar you will need to choose a landing page and a chatbox. If you already have a website you can simply copy and paste the embed link and create a landing page for your webinar, or you can use landing pages software products such as [LeadPages](https://www.leadpages.net/) or [Unbounce](https://unbounce.com/) if you don't have your own online domain. For setting up chatboxes for your webinars we recommend using [Chatroll](https://chatroll.com/) or [RumbleTalk](https://www.rumbletalk.com/) platforms, although you'll have to pay a fee if you choose to chat with your audience using these computer programs. So here's how you can host your first webinar on YouTube for free.
@@ -77,6 +84,19 @@ Hit the Go Live Now button, when you are ready to start your first webinar and e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -90,12 +110,17 @@ Follow @Max Wales
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-corrected-clandestine-miniature-video-absence/"><u>[New] 2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-fundamental-guidelines-for-saving-lol-scores/"><u>[New] 2024 Approved Fundamental Guidelines for Saving LOL Scores</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dive-into-the-world-of-youtuber-shorts/"><u>[New] Dive Into the World of Youtuber Shorts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-audio-alternatives-weighing-the-pros-of-podcasts-and-youtube/"><u>2024 Approved Audio Alternatives Weighing the Pros of Podcasts and YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cutting-edge-tools-for-unique-youtube-channel-names/"><u>2024 Approved Cutting-Edge Tools for Unique YouTube Channel Names</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/s-the-archived-unique-methods-for-viewing-old-youtube-for-2024/"><u>Access the Archived Unique Methods for Viewing Old YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adopt-the-best-practices-of-live-streaming-with-google-meet-youtube/"><u>Adopt the Best Practices of Live Streaming with Google Meet Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/global-viewer-count-triumphs-play-button-honors/"><u>Global Viewer Count Triumphs Play Button Honors</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-best-shared-calendars-organizing-your-busy-family-life-with-ease/"><u>The Best Shared Calendars: Organizing Your Busy Family Life with Ease</u></a></li>
+</ul></div>
 

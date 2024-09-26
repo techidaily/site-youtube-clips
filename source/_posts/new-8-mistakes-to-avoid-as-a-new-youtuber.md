@@ -1,7 +1,7 @@
 ---
 title: "[New] 8 Mistakes to Avoid as a New Youtuber"
-date: 2024-09-19T17:42:16.271Z
-updated: 2024-09-21T16:12:10.880Z
+date: 2024-09-21T16:22:21.887Z
+updated: 2024-09-26T16:58:20.536Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -52,6 +59,13 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -66,13 +80,6 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -80,10 +87,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -103,10 +110,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,5 +129,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-navigating-video-submission-on-facebook-from-your-gadgets/"><u>[Updated] 2024 Approved Navigating Video Submission on Facebook From Your Gadgets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ultimate-budget-friendly-online-face-offs-for-2024/"><u>[Updated] Ultimate Budget-Friendly Online Face-Offs for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audio-dialogue-recorder-for-2024/"><u>Audio Dialogue Recorder for 2024</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/contagion-film-guide-how-to-legally-stream-or-download-the-complete-movie/"><u>Contagion Film Guide: How to Legally Stream or Download the Complete Movie</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features-for-2024/"><u>From Reels to Filters A Closer Look at TikTok vs Snap's Features for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/harnessing-hashtags-elevating-your-youtube-gaming-series/"><u>Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-of-iphone-7-plus-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data of iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-b-roll-builder-kit/"><u>In 2024, B-Roll Builder Kit</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-key-techniques-for-smooth-inshot-pivots/"><u>In 2024, Key Techniques for Smooth Inshot Pivots</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-shooting-for-greatness-iphones-10-vital-composition-guidelines/"><u>In 2024, Shooting for Greatness IPhone's 10 Vital Composition Guidelines</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-art-of-audio-integration-tunes-for-your-microsoft-slides/"><u>In 2024, The Art of Audio Integration Tunes for Your Microsoft Slides</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tale-weavers-hub-hall-of-fame-picks-for-2024/"><u>Tale Weavers Hub - Hall of Fame Picks for 2024</u></a></li>
+</ul></div>
 
