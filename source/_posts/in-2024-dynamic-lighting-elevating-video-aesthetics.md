@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Dynamic Lighting  Elevating Video Aesthetics\""
-date: 2024-08-16T08:04:57.456Z
-updated: 2024-08-17T08:04:57.456Z
+date: 2024-09-29T20:32:41.764Z
+updated: 2024-10-01T20:58:30.725Z
 tags:
   - ai video
   - ai youtube
@@ -45,13 +45,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -77,12 +78,12 @@ This is by far the best option if you want to be in complete control of the ligh
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -90,8 +91,12 @@ If your strong main light is too hard on your eyes then you can use a translucen
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -99,8 +104,12 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -109,11 +118,24 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-fan-to-earner-understanding-view-requirements/"><u>[New] 2024 Approved From Fan to Earner Understanding View Requirements</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultra-30-camera-a-detailed-examination-by-garmin/"><u>[New] In 2024, The Ultra 30 Camera - A Detailed Examination by Garmin</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unleashing-power-plays-exclusive-insights-into-best-7-total-war-battles/"><u>[Updated] Unleashing Power Plays Exclusive Insights Into Best 7 Total War Battles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-video-content-iphoneipad-screen-capture-basics-for-2024/"><u>Enhancing Video Content IPhone/iPad Screen Capture Basics for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enlightenment-streams-foremost-ed-resources-online-for-2024/"><u>Enlightenment Streams Foremost Ed Resources Online for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-audiovisual-excellence-the-premier-video-formats-for-youtube/"><u>In 2024, Audiovisual Excellence The Premier Video Formats for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-how-to-design-dynamic-youtube-music-playlists/"><u>In 2024, Discover How to Design Dynamic YouTube Music Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-first-steps-on-the-path-equipment-for-beginners/"><u>In 2024, First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://games-able.techidaily.com/slash-steams-memory-usage-here-are-5-proven-methods/"><u>Slash Steam's Memory Usage - Here Are 5 Proven Methods</u></a></li>
+</ul></div>
+

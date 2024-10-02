@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Calculating Youtube's AdSense Gains  Per Thousand Viewer Income\""
-date: 2024-08-16T08:09:00.270Z
-updated: 2024-08-17T08:09:00.270Z
+date: 2024-09-24T18:42:24.380Z
+updated: 2024-10-01T21:46:39.983Z
 tags:
   - ai video
   - ai youtube
@@ -63,24 +63,15 @@ Also, if RPM is $4.00 from 45,000 ad impressions, your estimated earnings would 
 
 ($4.00 \* 45,000) / 1000 = $180.00
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### AdSense Pay Per View
 
 Lastly, if you’re looking for an exact answer regarding how much it pays per view, know that it varies and is based on different factors, such as niche or audience demographic.
 
 But you can expect something between $8 to $12 on 1,000 views after monetizing your YouTube channel with your Google AdSense account.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Part 2: How Much Does AdSense Pay Per Click?
 
 ![pay per click](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-adsense-pay-per-1000-views-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 After understanding AdSense’s way to pay for 1,000 views, formula, or pay per view, here’s what you need to know about AdSense’s payment on per click policy.
 
@@ -103,21 +94,10 @@ Let’s take a look at the following examples for better understanding:
 
 Remember, people from North America can make the most of these earnings. But worry not if you are based outside North America. Because Google AdSense revenue calculator can help you find the average pageviews on monthly basis.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Earnings from AdSense: Factors to Consider
 
 After learning how much you can earn in different niches, it’s equally important to focus on the following factors, so you can qualify and start earning from AdSense with ease.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 1) Type of Content
 
 To monetize your videos for AdSense, ensure that you own the rights to use visuals and audio elements of your video. And focus on creating all elements of your video yourself.
@@ -134,27 +114,18 @@ Be it a vlog or blog, please ensure that it’s original and not a copy from oth
 
 And to up your content game, you can even use the calculator to determine the value of your content and estimated revenue from AdSense.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### 2) Keywords
 
 Keywords are phrases and words that describe your service or product. The ones you choose will help show your ads to users.
 
 Therefore, go for the relevant yet high-quality keywords and add them to your ad campaigns. This strategy will put your ad in front of potential buyers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3) User Location
 
 Remember, AdSense follows geo-targeting strategy, so it can place ads on different pages. These ads are based on a user’s language, region, and IP address.
 
 Put simply, ads serving to a user from Algeria may differ from the ads for a user from Georgia.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4) Time Requires to Get Views
 
 There’s no fixed time frame; however, you can focus on search volume, audience, and competition to start getting the desired number of views.
@@ -174,9 +145,12 @@ Focus on the length of your video, as it determines how many ads can be shown in
 However, you must find the right balance between video duration, quality, and the number of videos on your channel, so you can continue to earn without hindrance.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6) Your Niche or Industry
 
 Niche is another essential factor to opt for AdSense earnings. Some of the profitable topics are:
@@ -192,9 +166,12 @@ You can choose the area that interest you the most and start people educating ab
 For example, people tend to think about investing their money to multiply it. You can create videos on investment-related topics, tips and tricks to get maximum views.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: Pros and Cons of Earning Money from Google AdSense
 
 At this point, you’re familiar with almost all aspects of generating money using Google AdSense. And considering the factors, it seems like a task you can perform.
@@ -216,9 +193,6 @@ Before you try earning money via AdSense, consider the following pros and cons.
 * You need a lot of traffic to make some serious money.
 * Adding several ads can annoy your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 Monetizing your YouTube channel for AdSense is great for having a steady passive income. But, it’s a time-consuming process and has a set of advantages and disadvantages.
@@ -236,8 +210,12 @@ Part 1: How Much Does AdSense Pay Per 1,000 Views
 As a content creator, you might be tempted to know how much you can expect to earn through AdSense. Since it’s a free and simple way to make extra bucks, showing ads with the content you produce for online platforms, it’s essential to know how much it pays for views.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Pay Per 1,000 Views by AdSense
 
 For 1,000 views, expect AdSense to pay around $8-$20\. However, your total earnings will depend on factors such as your content type, users' location, and setting of ads in Google AdSense, so it can pay on thousand views.
@@ -264,15 +242,19 @@ Also, if RPM is $4.00 from 45,000 ad impressions, your estimated earnings would 
 
 ($4.00 \* 45,000) / 1000 = $180.00
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### AdSense Pay Per View
 
 Lastly, if you’re looking for an exact answer regarding how much it pays per view, know that it varies and is based on different factors, such as niche or audience demographic.
 
 But you can expect something between $8 to $12 on 1,000 views after monetizing your YouTube channel with your Google AdSense account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How Much Does AdSense Pay Per Click?
 
 ![pay per click](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-adsense-pay-per-1000-views-2.jpg)
@@ -324,6 +306,19 @@ Keywords are phrases and words that describe your service or product. The ones y
 
 Therefore, go for the relevant yet high-quality keywords and add them to your ad campaigns. This strategy will put your ad in front of potential buyers.
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3) User Location
 
 Remember, AdSense follows geo-targeting strategy, so it can place ads on different pages. These ads are based on a user’s language, region, and IP address.
@@ -362,10 +357,6 @@ You can choose the area that interest you the most and start people educating ab
 
 For example, people tend to think about investing their money to multiply it. You can create videos on investment-related topics, tips and tricks to get maximum views.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Part 5: Pros and Cons of Earning Money from Google AdSense
 
 At this point, you’re familiar with almost all aspects of generating money using Google AdSense. And considering the factors, it seems like a task you can perform.
@@ -414,15 +405,19 @@ If you already have a YouTube channel and a certain number of views, you can tak
 # How To Make YouTube Videos on Your Smartphone
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How To Make YouTube Videos on Your Smartphone
 
@@ -453,9 +448,12 @@ If you already have a YouTube channel and a certain number of views, you can tak
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -512,9 +510,6 @@ Follow @Richard Bennett
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How To Make YouTube Videos on Your Smartphone
 
  Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
@@ -544,8 +539,12 @@ Follow @Richard Bennett
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -560,9 +559,6 @@ Follow @Richard Bennett
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How To Make YouTube Videos on Your Smartphone
 
  Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
@@ -612,4 +608,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-controlling-who-can-leave-a-comment-on-your-youtube-videos/"><u>[New] Controlling Who Can Leave a Comment on Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-2024s-streaming-surge-gamers-and-money-flow/"><u>[Updated] 2024'S Streaming Surge Gamers and Money Flow</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-key-strategies-in-building-successful-youtube-shorts-templates/"><u>[Updated] In 2024, Key Strategies in Building Successful YouTube Shorts Templates</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-essential-manual-to-operating-streamlabs-obs-for-2024/"><u>[Updated] The Essential Manual to Operating Streamlabs OBS for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-oppo-f23-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Oppo F23 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726030038571-avi3/"><u>最適化推薦の無料ソフトウェア 🔥: AVIファイル合成専用3選!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-itel-s23-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Itel S23 FRP Bypass Instantly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/cost-efficient-top-screen-recorder-apps-for-chromeos/"><u>Cost-Efficient Top Screen Recorder Apps for ChromeOS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-skill-discovering-the-top-10-budget-friendly-video-artists-on-youtube-for-2024/"><u>Elevate Your Skill Discovering the Top 10 Budget-Friendly Video Artists on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/hashtag-wisdom-jumpstart-your-6-figure-youtube-rank/"><u>Hashtag Wisdom Jumpstart Your 6-Figure Youtube Rank</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-hot-40i-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Infinix Hot 40i Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-practices-for-designing-an-engaging-youtube-teaser/"><u>In 2024, Best Practices for Designing an Engaging YouTube Teaser</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-asus-rog-phone-7-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Asus ROG Phone 7 for Parents | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-6-budget-friendly-youtube-outro-makers/"><u>Top 6 Budget-Friendly YouTube Outro Makers</u></a></li>
+</ul></div>
 

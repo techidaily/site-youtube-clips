@@ -1,7 +1,7 @@
 ---
 title: "\"The YouTube Creator Summit - A Getaway for Top Talent\""
-date: 2024-08-16T08:07:23.755Z
-updated: 2024-08-17T08:07:23.755Z
+date: 2024-09-28T20:34:00.584Z
+updated: 2024-10-01T17:39:35.336Z
 tags:
   - ai video
   - ai youtube
@@ -60,15 +60,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -78,30 +79,38 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -111,6 +120,13 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -119,11 +135,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/updated-best-3d-model-suites-for-animation-artists/"><u>[Updated] Best 3D Model Suites for Animation Artists</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/a-step-by-step-approach-to-infusing-conversations-with-gifs-on-snapchat/"><u>A Step-by-Step Approach to Infusing Conversations with GIFs on Snapchat</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-in-one-safety-solution-unveiling-the-arlo-video-doorbell-experience/"><u>All-in-One Safety Solution: Unveiling the Arlo Video Doorbell Experience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-delivery-comparison-vimeo-vs-youtube-vs-dailymotion/"><u>Content Delivery Comparison Vimeo vs YouTube vs Dailymotion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dslr-or-mirrorless-for-high-quality-video-recording-in-2024/"><u>DSLR or Mirrorless for High-Quality Video Recording, In 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhancing-engagement-30-outstanding-video-concepts/"><u>Enhancing Engagement 30 Outstanding Video Concepts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/exploring-the-monetization-framework-of-tseries-via-youtube/"><u>Exploring the Monetization Framework of TSeries via YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-ai-based-chatbot-monitoring-influence-user-experience-and-privacy-concerns/"><u>How Does AI-Based Chatbot Monitoring Influence User Experience and Privacy Concerns?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-exceptional-freefire-content-on-youtube-platforms/"><u>In 2024, Crafting Exceptional FreeFire Content on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-youtubes-procedure-after-a-video-is-uploaded/"><u>In 2024, Decoding YouTube's Procedure After a Video Is Uploaded</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-vivo-y28-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Vivo Y28 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-successfully-navigating-through-fortnite-version-ls-0013-launch-glitches/"><u>Troubleshooting Successfully: Navigating Through Fortnite Version LS-0013 Launch Glitches</u></a></li>
+</ul></div>
+

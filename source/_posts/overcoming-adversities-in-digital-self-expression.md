@@ -1,7 +1,7 @@
 ---
 title: "\"Overcoming Adversities in Digital Self-Expression\""
-date: 2024-08-16T08:05:08.221Z
-updated: 2024-08-17T08:05:08.221Z
+date: 2024-09-27T22:36:44.849Z
+updated: 2024-10-01T17:33:47.555Z
 tags:
   - ai video
   - ai youtube
@@ -45,24 +45,28 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
@@ -71,18 +75,6 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
@@ -90,6 +82,13 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -106,13 +105,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -121,11 +121,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-collaborative-listening-made-simple-on-youtube/"><u>[New] Collaborative Listening Made Simple on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-premier-hash-trackers-fb-tweet-instagram-edition/"><u>[Updated] 2024 Approved Premier Hash Trackers FB, Tweet, Instagram Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-creative-vanguard-audio-visual-convergence/"><u>[Updated] In 2024, Creative Vanguard Audio-Visual Convergence</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-tutorial-implementing-a-clean-color-separation/"><u>[Updated] In 2024, Instagram Tutorial Implementing a Clean Color Separation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-video-vibes-for-top-tier-unpacked-videos/"><u>[Updated] Mastering Video Vibes for Top-Tier Unpacked Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-income-with-effective-youtube-short-strategies/"><u>2024 Approved Boosting Income with Effective Youtube Short Strategies</u></a></li>
+<li><a href="https://discover-able.techidaily.com/1726226131167-movavi-ogg-mpeg/"><u>使用 MOVAVI 自由下載器，如何把 OGG 檔案快速轉換為 MPEG 格式</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/edit-with-ease-prime-10-converters-unveiled-for-2024/"><u>Edit with Ease Prime 10 Converters Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ensuring-visibility-fixing-missing-shorts-thumbnails-for-2024/"><u>Ensuring Visibility Fixing Missing Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/harnessing-the-power-of-burst-mode-for-dynamic-videos-for-2024/"><u>Harnessing the Power of Burst Mode for Dynamic Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-creative-teaching-incorporating-youtube-into-your-curriculum/"><u>In 2024, Creative Teaching Incorporating YouTube Into Your Curriculum</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-essentialtips-for-easycamwebrecorderuse/"><u>In 2024, EssentialTips for EasyCamWebRecorderUse</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/inspire-yourself-with-these-ten-high-growth-youtube-sources/"><u>Inspire Yourself with These Ten High-Growth YouTube Sources</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/must-have-3d-model-systems-in-animation/"><u>Must-Have 3D Model Systems in Animation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-s-most-popular-free-video-fx-apps-for-iphone-and-android/"><u>Updated 2024 Approved S Most Popular Free Video FX Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/webpage-wonders-enhancing-with-youtubes-playlist-features/"><u>Webpage Wonders Enhancing with YouTube's Playlist Features</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719164816351-why-your-gameplay-screams-for-an-oled-display/"><u>Why Your Gameplay Screams for an OLED Display.</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-thumbnails-top-20-fonts-for-stellar-credits/"><u>YouTube Thumbnails - Top 20 Fonts for Stellar Credits</u></a></li>
+</ul></div>
+

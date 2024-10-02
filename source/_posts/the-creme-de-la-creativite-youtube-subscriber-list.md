@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2024-09-20T19:31:51.239Z
-updated: 2024-09-26T20:44:00.757Z
+date: 2024-09-24T19:10:00.817Z
+updated: 2024-10-01T21:41:36.581Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
@@ -85,13 +78,6 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -99,15 +85,22 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -117,24 +110,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,18 +145,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-frontier-top-360-cameras-for-industry-pros-2023/"><u>[New] Exploring the Frontier Top 360° Cameras for Industry Pros, 2023</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-reverse-silent-tweets-audible-video-connection/"><u>[New] In 2024, Reverse Silent Tweets Audible Video Connection</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-essential-illumination-strategies-for-filming/"><u>[Updated] Essential Illumination Strategies for Filming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-building-through-characters-and-plot-twists/"><u>[Updated] In 2024, Channel-Building Through Characters and Plot Twists</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-seamless-saving-of-snapchat-images-on-device-memory/"><u>[Updated] Seamless Saving of SnapChat Images on Device Memory</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-analyzing-youtube-rankings-what-drives-top-placement/"><u>2024 Approved Analyzing YouTube Rankings What Drives Top Placement?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-best-5-gif-to-video-converter-online-no-need-to-download/"><u>2024 Approved Best 5 GIF to Video Converter Online [No Need to Download]</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-engaging-video-teasers-for-youtube-success/"><u>2024 Approved Crafting Engaging Video Teasers for YouTube Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/custom-youtube-video-speed-control-desktopmobile/"><u>Custom YouTube Video Speed Control (Desktop/Mobile)</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/easy-solutions-for-unfreezing-google-chrome-on-your-windows-11-pc/"><u>Easy Solutions for Unfreezing Google Chrome on Your Windows 11 PC</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-14-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/monetization-mastery-guide-choosing-the-right-platform/"><u>Monetization Mastery Guide Choosing the Right Platform</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prime-top-10-free-transcript-harvesters-for-videos/"><u>Prime Top 10 Free Transcript Harvesters for Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-most-reliable-royalty-free-audio-libraries/"><u>[New] Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-visibility-popularize-your-youtube-short-videos/"><u>[New] Enhancing Visibility Popularize Your YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-youtube-beauty-mastering-video-color-dynamics/"><u>[New] Enhancing YouTube Beauty Mastering Video Color Dynamics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sky-high-results-the-creme-de-la-liste-of-drone-editors/"><u>[New] Sky-High Results The Crème De La Liste of Drone Editors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-advanced-techniques-for-trimming-youtube-footage/"><u>[Updated] Advanced Techniques for Trimming YouTube Footage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-decoding-youtubes-user-comment-selection-criteria/"><u>[Updated] Decoding YouTube's User-Comment Selection Criteria</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-essential-igtv-picks-for-a-creative-edge/"><u>[Updated] Essential IGTV Picks for a Creative Edge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tech-savvy-pilots-guide-to-attentive-drones-for-2024/"><u>[Updated] Tech-Savvy Pilots' Guide to Attentive Drones for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ai-powered-microsoft-edge-real-time-video-translation-now-a-reality/"><u>AI-Powered Microsoft Edge: Real-Time Video Translation Now a Reality!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-installation-download-hps-laserjet-pro-m127fn-printer-drivers-now/"><u>Easy Installation: Download HP's Laserjet Pro M127FN Printer Drivers Now</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Detect and Remove Spyware on Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crucial-info-every-asmr-viewer-should-absorb/"><u>In 2024, Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-honor-80-pro-straight-screen-edition-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Honor 80 Pro Straight Screen Edition to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-the-art-of-removing-ps5-saves-safely/"><u>Master the Art of Removing PS5 Saves Safely</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transforming-your-video-files-from-webm-to-mp4-format-using-vlc-player/"><u>Step-by-Step Guide: Transforming Your Video Files From WebM to MP4 Format Using VLC Player</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youth-inspiration-tales-of-overcoming-challenges/"><u>Youth Inspiration Tales of Overcoming Challenges</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-live-thumbnails-the-ultimate-guide/"><u>YouTube Live Thumbnails The Ultimate Guide</u></a></li>
 </ul></div>
 

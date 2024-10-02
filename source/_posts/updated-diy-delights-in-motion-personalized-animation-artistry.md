@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DIY Delights in Motion  Personalized Animation Artistry\""
-date: 2024-08-16T08:09:22.296Z
-updated: 2024-08-17T08:09:22.296Z
+date: 2024-09-28T22:35:02.130Z
+updated: 2024-10-01T22:47:44.488Z
 tags:
   - ai video
   - ai youtube
@@ -51,9 +51,12 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
@@ -61,26 +64,34 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -89,11 +100,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-10-final-cut-pro-plug-ins/"><u>[New] 10 Final Cut Pro-Plug-Ins</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-techniques-to-halt-live-streams-in-qt-player/"><u>[New] 2024 Approved Techniques to Halt Live Streams in QT Player</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-essence-of-elongated-images-through-iphone-writings/"><u>[New] The Essence of Elongated Images Through iPhone’ Writings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/algorithmic-perfection/"><u>Algorithmic Perfection</u></a></li>
+<li><a href="https://win11.techidaily.com/best-practices-for-github-desktop-adoption-in-windows-11/"><u>Best Practices for GitHub Desktop Adoption in Windows 11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-channels-youtubes-partner-program/"><u>Elevate Your Channels - YouTube's Partner Program</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-next-level-hd-screen-recording-best-brands-showcased/"><u>In 2024, Next-Level HD Screen Recording Best Brands Showcased</u></a></li>
+<li><a href="https://extra-information.techidaily.com/uncovering-inexpensive-deals-for-your-gopro-camera/"><u>Uncovering Inexpensive Deals for Your GoPro Camera</u></a></li>
+</ul></div>
+

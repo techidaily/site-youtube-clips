@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, End-Screen Design Made Easy with Our Templates & Tutorials\""
-date: 2024-08-16T08:06:24.245Z
-updated: 2024-08-17T08:06:24.245Z
+date: 2024-09-25T23:14:40.108Z
+updated: 2024-10-01T21:49:28.387Z
 tags:
   - ai video
   - ai youtube
@@ -85,27 +85,21 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -113,8 +107,12 @@ No advertising on the website.
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
@@ -124,8 +122,12 @@ No advertising on the website.
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
@@ -136,12 +138,16 @@ No advertising on the website.
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -151,11 +157,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-top-6-fiscal-picks-in-the-4k-projector-market/"><u>[New] 2024 Approved Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-demystifying-t-series-income-streams-via-youtube-platforms/"><u>[Updated] Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-renaming-your-podcast-leading-ai-generators-explored/"><u>2024 Approved Renaming Your Podcast Leading AI Generators Explored</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-seeking-the-finest-cinematography-talents/"><u>2024 Approved Seeking the Finest Cinematography Talents</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-tour-through-top-virtual-biking-experiences-for-2024/"><u>A Tour Through Top Virtual Biking Experiences for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-electronics-with-tom-in-depth-hardware-insights/"><u>Exploring Electronics with Tom: In-Depth Hardware Insights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-a2plus-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Xiaomi Redmi A2+ Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-apple-iphone-13-pro-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on Apple iPhone 13 Pro online without jailbreak</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-youtubes-processing-after-uploading/"><u>In 2024, Deciphering YouTube's Processing After Uploading</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-metadata-title-and-description-for-youtube-traction/"><u>Mastering Metadata Title and Description for YouTube Traction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tag-wisdom-enhance-your-youtube-content/"><u>Tag Wisdom Enhance Your YouTube Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/tonal-triumphs-the-art-of-hue-enhancement/"><u>Tonal Triumphs The Art of Hue Enhancement</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-tecno-pova-5-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Tecno Pova 5 Pro Device</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "\"Video Blogging Essentials  Choosing the Best Cameras and Lenses\""
-date: 2024-08-16T08:07:00.398Z
-updated: 2024-08-17T08:07:00.398Z
+date: 2024-09-28T16:13:18.064Z
+updated: 2024-10-01T16:17:17.098Z
 tags:
   - ai video
   - ai youtube
@@ -56,9 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -81,16 +78,27 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -110,15 +118,23 @@ This table shows you the focal lengths needed to achieve the same shot between c
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -127,9 +143,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -157,9 +170,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,11 +177,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-advanced-techniques-in-post-uploaded-youtube-content-enhancement/"><u>[New] Advanced Techniques in Post-Uploaded YouTube Content Enhancement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-video-communities-eclipsing-youtube/"><u>[Updated] Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-content-quality-with-advanced-video-editing/"><u>[Updated] Enhancing Content Quality with Advanced Video Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-assessing-tseries-financial-outcomes-from-youtube-presence/"><u>2024 Approved Assessing TSeries’ Financial Outcomes From YouTube Presence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-customize-your-youtube-view-adjust-speed-settings/"><u>2024 Approved Customize Your YouTube View Adjust Speed Settings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videography-7-free-sound-effects-collection/"><u>2024 Approved Elevate Your Videography - 7 Free Sound Effects Collection</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/creative-freedom-vs-tech-titans-sarah-silverman-and-co-challenge-openaimeta/"><u>Creative Freedom Vs. Tech Titans: Sarah Silverman and Co. Challenge OpenAI/Meta</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-content-with-these-top-5-youtube-marketing-methods-for-2024/"><u>Elevate Your Content with These Top 5 YouTube Marketing Methods for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-gamers-showcase-premium-setups-unveiled/"><u>Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/experts-insight-downloading-audio-on-apple-gadgets-for-2024/"><u>Expert's Insight Downloading Audio on Apple Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-professional-tips-designing-youtube-trailers-in-filmora/"><u>In 2024, Professional Tips Designing YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://win-help.techidaily.com/introducing-the-new-quick-speed-chrome-microsoft-windows-users-rejoice-with-enhanced-efficiency-and-speed-yet-readers-beware/"><u>Introducing the New Quick-Speed Chrome: Microsoft Windows Users Rejoice with Enhanced Efficiency and Speed - Yet Readers Beware!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/linking-perfection-incorporating-linktree-into-your-tiktok-profile-for-2024/"><u>Linking Perfection Incorporating Linktree Into Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-corporate-cloud-storage-platforms/"><u>Top Corporate Cloud Storage Platforms</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Effective Solutions for Non-Working Logitech G230 Mic – A Comprehensive Guide
-date: 2024-08-16T08:07:10.186Z
-updated: 2024-08-17T08:07:10.186Z
+date: 2024-09-27T20:37:24.722Z
+updated: 2024-10-01T22:28:19.298Z
 tags:
   - win11
   - win10
@@ -36,46 +36,51 @@ This issue may occur if your Logitech G230 is not set as the default device, or 
 
 1. On your keyboard, press**the Windows logo key** and**R** at the same time to open the Run dialog. Type**control** and press**Enter** to open**Control Panel** . ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000092.png)
 2. **View Control Panel by Category** . Then click**Hardware and Sound** .![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000093.png)
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 3. Click**Sound** to continue.![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000094.png)
 4. Click the **Recording**  tab, then**right-click** on any empty place inside the device list and tick **Show Disabled Devices** .![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap892.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Right-click the**Headset Microphone** and click **Enable** .![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap893-1.png)
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 6. Select the microphone you’re using and click **Set Default** .![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap447.jpg)
-7. While still in the **Recording** tab, try **speaking into your microphone**  to test if it works properly. If it is, you should see some green in the bar on the right:![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+7. While still in the **Recording** tab, try **speaking into your microphone**  to test if it works properly. If it is, you should see some green in the bar on the right:![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap443.jpg)
 8. Click **OK** .
 See if your Logitech G230 mic works. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fix 2: Allow access to your headset microphone (for Windows 10 users)**
 
 If you don’t allow Windows 10 and applications to access your microphone, you may also encounter this issue. You can follow the steps below to check:
 
 1. On your keyboard, press the Windows logo key and I at the same time to open Windows Settings. Then click**Privacy** .![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000087.png)
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2. Click**Microphone** on the left panel. On the right,**if** **microphone access for this device is off** , click**Change** **to** **turn it on** . You should also all apps to access your microphone. If it is turned off, turn it on.![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000088.png)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Check if your Logitech G230 mic works. If not, try the next fix below to update your audio driver.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fix 3: Update your audio driver**
 
@@ -91,16 +96,17 @@ An outdated or corrupted audio driver can also be the root of this issue. To fix
 
 1. **[Download](https://tools.techidaily.com/drivereasy/download/)**  and install Driver Easy.
 2. Run Driver Easy and click **Scan Now**  . Driver Easy will then scan your computer and detect any problem drivers. ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000027-4.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 3. Click **Update**  next to your sound card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All**  to automatically download and install the correct version of_all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get**full support** and a**30-day money back** guarantee ).  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap0029-1.png)  
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You can do it for free if you like, but it’s partly manual.  
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you need assistance, please contact**Driver Easy’s support team** at[**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
 ### **Fix 4: Troubleshoot hardware issues**
@@ -121,8 +127,6 @@ Hopefully one of the fixes above resolved this issue for you. If you have any qu
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +134,20 @@ Hopefully one of the fixes above resolved this issue for you. If you have any qu
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-accessing-all-shared-content-in-messenger-chats/"><u>[New] Accessing All Shared Content in Messenger Chats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge/"><u>[Updated] Binge on Christmas Classics Enjoy 9 Whole-Film Flicks No Charge</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>[Updated] In 2024, How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>2024 Approved Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/acoustic-mastery-secrets-for-exceptional-audio-capture/"><u>Acoustic Mastery Secrets for Exceptional Audio Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels-for-2024/"><u>Cut Cost, Unlock Creativity Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-lava-blaze-curve-5g-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Lava Blaze Curve 5G.</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-cues-to-trigger-an-avatar-transformation/"><u>Essential Cues to Trigger an Avatar Transformation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-15-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix iPhone 15 Unavailable Issue With Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-revenue-on-youtube-shorts/"><u>Mastering Revenue on YouTube Shorts</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-12-mini-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 12 mini Activation Lock</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-vsco-photo-editing-tips-and-tricks/"><u>Unlocking VSCO Photo Editing Tips & Tricks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-poco-x6-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Poco X6 Device</u></a></li>
+</ul></div>
 

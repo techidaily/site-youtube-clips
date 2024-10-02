@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Choosing the Right Lights & Cameras for YouTube Videos"
-date: 2024-08-16T08:07:25.420Z
-updated: 2024-08-17T08:07:25.420Z
+date: 2024-09-27T20:21:28.626Z
+updated: 2024-10-01T21:41:43.174Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,12 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
  The process of creating a video can be divided into three different stages, the pre-production, production, and post-production. Each stage has its own tools, without which completing a video would be impossible. In this article, we will be covering the equipment that will make the production stage of the process much smoother, and it will also help you to go through post-production much faster.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Equipment 1: Camera
 
  You can't shoot a video without a camera, but which camera you're going to use depends on the type of the video you want to produce. Sometimes the camera that offers the most shooting options is not the best choice, and different factors like size or the weight of the camera can be much more important than the sheer quality of the footage.
@@ -47,8 +50,12 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
  You can also [make YouTube videos with just your phone](https://tools.techidaily.com/wondershare/filmora/download/), check this video for more details.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2. Action Cameras
@@ -76,8 +83,18 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
  With a DSLR camera, you can also use it a webcam for recording your face and your desktop screen at the same time, check [how to use a DSLR camera as a webcam]( https://filmora.wondershare.com/webcam-recording/use-dslr-camera-as-webcam.html).
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Equipment 2: Microphones
 
  Moving images are less effective without sound, which is the reason why you should pay close attention to this aspect of the video making process. All cameras have built-in microphones, but the audio quality they produce is often not good enough to actually use it in a YouTube video. That's why recording sound with an external microphone is a common practice among the most successful YouTubers.
@@ -89,8 +106,12 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
  Check: [best microphones for YouTube vloggers.]( https://filmora.wondershare.com/vlogger/best-microphone-for-youtuber-videos.html)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Equipment 3: Video Stabilization Equipment
 
  Holding a camera in your hand while shooting a video is often not the best idea, because even breathing may cause the camera to move and produce camera shakes. That's where [tripods](https://tools.techidaily.com/wondershare/filmora/download/), steadicams, [gimbals](https://tools.techidaily.com/wondershare/filmora/download/), rigs and other video stabilization equipment comes in. As a matter of fact, you should only shoot handheld videos when you want to achieve this effect, while all another camera movement should be avoided without the use of appropriate equipment.
@@ -99,9 +120,6 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
 
  Check our list of [best camera stabilizer for YouTubers in 2018]( https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Equipment 4: Lighting Equipment
 
  Instead of struggling with natural light sources and having to deal with shadows, you can simply use the [lighting equipment](https://tools.techidaily.com/wondershare/filmora/download/) to equalize the light values in a shot. Of course, whether or not you will use artificial light in your video depends on a number of factors, including the location and the visual style you're trying to achieve.
@@ -115,9 +133,6 @@ thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e4
  We'd love to hear all about the gear you're using to capture your videos, so leave a comment and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -125,11 +140,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-prime-routines-for-documenting-live-sports-events/"><u>[New] 2024 Approved Prime Routines for Documenting Live Sports Events</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-tiktok-to-tokens-financial-figures-of-pewdiepie/"><u>[New] 2024 Approved TikTok to Tokens Financial Figures of PewDiePie</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-android-and-ios-timer-tools-reviewed-your-big-day-planners-must-haves/"><u>[New] Leading Android & iOS Timer Tools Reviewed Your Big Day Planner's Must-Haves</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-clear-images-made-easy-picart-backdrop-takedown-technique/"><u>2024 Approved Clear Images Made Easy PicArt Backdrop Takedown Technique</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast/"><u>Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-add-video-to-text/"><u>How to Add Video to Text</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enriching-vlog-topics-to-share/"><u>In 2024, Enriching Vlog Topics to Share</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-unraveling-visual-clarity-for-the-new-digital-age/"><u>In 2024, Unraveling Visual Clarity for the New Digital Age</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/photoshop-techniques-for-dynamic-realistic-text/"><u>Photoshop Techniques for Dynamic, Realistic Text</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-latvian-fluently-with-ten-minute-practice/"><u>Speak Latvian Fluently with Ten-Minute Practice</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>Tailor-Made Melodies Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transforming-computing-the-impact-of-apples-m1-cpu-on-the-macbook-pro-13-inch/"><u>Transforming Computing: The Impact of Apple's M1 CPU on the MacBook Pro 13-Inch</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-t2-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo T2 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465279013-youtube-profile-picture-templates-free-downloads/"><u>YouTube Profile Picture Templates – Free Downloads!</u></a></li>
+</ul></div>
+

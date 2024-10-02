@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-09-24T19:08:40.963Z
-updated: 2024-09-26T19:09:42.863Z
+date: 2024-09-30T21:05:30.023Z
+updated: 2024-10-01T17:14:20.979Z
 tags:
   - ai video
   - ai youtube
@@ -36,13 +36,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -58,19 +51,33 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -89,6 +96,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -96,13 +110,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -126,13 +133,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -148,21 +148,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-decoding-the-art-of-instagrams-hot-trending-reels/"><u>[New] Decoding the Art of Instagram's Hot Trending Reels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-efficiently-handling-youtube-short-issues/"><u>[New] Efficiently Handling YouTube Short Issues</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-5-pioneering-portals-to-streamline-your-text-effects-search/"><u>[New] In 2024, 5 Pioneering Portals to Streamline Your Text Effects Search</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[New] In 2024, Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unleashing-potential-in-virtual-collaboration-platforms/"><u>[New] In 2024, Unleashing Potential in Virtual Collaboration Platforms</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-guiding-principles-for-modifying-photographic-identities-on-major-social-platforms-for-2024/"><u>[Updated] Guiding Principles for Modifying Photographic Identities on Major Social Platforms for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-arena-100plus-titles-for-the-true-gamer/"><u>2024 Approved Digital Arena 100+ Titles for the True Gamer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-smile-and-share-easy-memes-via-kinemaster/"><u>2024 Approved Smile and Share Easy Memes via KineMaster</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/economical-embellishments-free-youtube-template-packs-for-2024/"><u>Economical Embellishments FREE YouTube Template Packs for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-user-experience-strategic-placement-of-alerts-on-youtube-content/"><u>Enhancing User Experience Strategic Placement of Alerts on YouTube Content</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/how-to-troubleshoot-and-fix-the-black-screen-problem-following-a-windows-10-system-update/"><u>How to Troubleshoot and Fix the Black Screen Problem Following a Windows 10 System Update</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-channel-upgrade-smartphone-techniques-for-professional-videos/"><u>In 2024, Channel Upgrade Smartphone Techniques for Professional Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-comprehensible-guide-to-high-quality-audios-on-youtube/"><u>In 2024, Comprehensible Guide to High-Quality Audios on YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-humor-synthesizer-zombified-appliances/"><u>In 2024, Humor Synthesizer Zombified Appliances</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/step-up-your-stream-simultaneous-views-on-one-screen/"><u>Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-create-memorable-videos-with-the-right-thumbnail-font/"><u>[New] Create Memorable Videos with the Right Thumbnail Font</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creative-channel-themes-get-them-for-free/"><u>[Updated] Creative Channel Themes Get Them for Free</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-complete-guide-to-tunefabs-screen-capturing-for-2024/"><u>[Updated] The Complete Guide to Tunefab's Screen Capturing for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-superior-8-filter-trios-for-broadcast-excellence/"><u>2024 Approved Superior 8 Filter Trios for Broadcast Excellence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dailymotion-vs-youtube-who-earns-more-from-video-content-for-2024/"><u>Dailymotion vs YouTube Who Earns More From Video Content for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-top-10-no-cost-digital-photography-tools/"><u>Explore Top 10 No-Cost Digital Photography Tools</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-meizu-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Meizu Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-create-engaging-visual-hooks-a-guide-to-video-thumbnail-making/"><u>How to Create Engaging Visual Hooks A Guide to Video Thumbnail Making</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>In 2024, A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>In 2024, A Journey Through Time Best History YouTubes for Scholars & Enthusiasts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diversify-earnings-multiplying-revenue-with-mobile-video-content/"><u>In 2024, Diversify Earnings Multiplying Revenue with Mobile Video Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-srt-a-thorough-exploration-of-its-essence/"><u>In 2024, Mastering SRT A Thorough Exploration of Its Essence</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-reimagining-streaming-experience-beyond-manycam/"><u>In 2024, Reimagining Streaming Experience Beyond ManyCam</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/love-in-the-time-of-algorithms-how-cyber-crooks-harness-ai-for-fraudulent-affairs/"><u>Love in the Time of Algorithms: How Cyber Crooks Harness AI for Fraudulent Affairs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-comprehensive-shoppers-guide-for-top-360cams-for-2024/"><u>The Comprehensive Shopper’s Guide for Top 360Cams for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-drive-with-the-escort-ix-the-cutting-edge-ai-jammer-for-smart-drivers/"><u>Transform Your Drive with the Escort iX: The Cutting-Edge AI Jammer for Smart Drivers</u></a></li>
 </ul></div>
 

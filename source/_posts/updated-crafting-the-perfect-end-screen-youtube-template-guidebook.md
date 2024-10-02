@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting the Perfect End Screen - YouTube Template Guidebook\""
-date: 2024-08-16T08:05:37.750Z
-updated: 2024-08-17T08:05:37.750Z
+date: 2024-09-30T16:07:09.801Z
+updated: 2024-10-01T18:47:48.026Z
 tags:
   - ai video
   - ai youtube
@@ -85,21 +85,29 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -111,35 +119,37 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -147,11 +157,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-trailblaze-the-gaming-frontier-samsung-edition/"><u>[New] Trailblaze the Gaming Frontier Samsung Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/12-essential-metaverse-prototypes-demystifying-vr-for-2024/"><u>12 Essential Metaverse Prototypes Demystifying VR for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-copycatting-charisma-making-ingenious-parodies/"><u>2024 Approved Copycatting Charisma Making Ingenious Parodies</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-instagram-to-twitter-sharing-without-retweeting/"><u>2024 Approved Instagram to Twitter Sharing without Retweeting</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-magic-v2-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion-in-2024/"><u>Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-the-cord-on-costs-select-best-free-yt-title-makers-for-2024/"><u>Cutting the Cord on Costs - Select Best-Free YT Title Makers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deciphering-youtubes-shorts-funding-mechanism-for-2024/"><u>Deciphering YouTube's Shorts Funding Mechanism for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/delving-into-the-strengths-of-yuneecs-typhoon-h-drone-for-2024/"><u>Delving Into the Strengths of Yuneec's Typhoon H Drone for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>Earning on YouTube A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-xiaomi-redmi-13c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-the-magic-behind-quantum-hdr/"><u>In 2024, Understanding the Magic Behind Quantum HDR</u></a></li>
+</ul></div>
+

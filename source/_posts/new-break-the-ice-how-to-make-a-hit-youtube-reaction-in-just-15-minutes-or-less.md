@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less\""
-date: 2024-08-16T08:07:04.588Z
-updated: 2024-08-17T08:07:04.588Z
+date: 2024-09-28T21:27:04.232Z
+updated: 2024-10-01T17:22:01.968Z
 tags:
   - ai video
   - ai youtube
@@ -45,9 +45,6 @@ Video editing software, like [Filmora](https://tools.techidaily.com/wondershare/
 The first step is to create a new project in Filmora and then import the media assets into the editor. Besides video clips, you can also add music, pictures, or create opening titles and end credits for your reaction video.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 
 Place the video you’re reacting to on a video track on the timeline and then add the video of your reaction to the timeline that is directly above the one to which you added the first video clip. Click on the top video in the preview window and use the handles that are positioned around the edges of the video to adjust its size.
 
@@ -55,35 +52,37 @@ If you would like to change the on-screen position of the overlay clip, you shou
 
 ![Create reaction video with Filmora Picture in Picture feature ](https://images.wondershare.com/filmora/article-images/adjust-reaction-video-size-position.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Filmora offers more than sixty motion effects, hundreds of transitions, and visual effects that can make your reaction video more visually appealing to the audience.
 
 ![Filmora  compositing with Blending modes ](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
 Moreover, Filmora video editing software offers a variety of blending modes, and it lets you control the opacity of the overlay video so that you can make it more transparent. Whether or not you are going to use these options depends on the footage you’re working with and the demands of a particular project.
 
 **Pros of using the Picture in Picture feature to make reaction videos in Filmora:** You can place and adjust the videos with more customizable options. Get more tips about [Making a PIP video in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 2: Create several reaction windows with the Split Screen feature
 
 Besides the Picture-in-Picture option, Filmora also enables you to [play two or more videos simultaneously](https://tools.techidaily.com/wondershare/filmora/download/) with Split Screen templates. Drag and drop the template you want to use in your reaction video to the timeline and click on the Enable Split Screen Animation tick box if you want to use the template without animations.
 
 ![create reaction video with Filmora  Split Screen Templates](https://images.wondershare.com/filmora/article-images/add-split-screen.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Afterward, you should drag the video clips from the Media tab and drop them onto the section of the preview window where you want them to be located. Keep in mind that you cannot add more than six videos to a split-screen template.
 
 ![Filmora  Edit Reaction Video with Split Screen Video](https://images.wondershare.com/filmora/article-images/reaction-video-advanced-split-screen-edit.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 
 All videos you add to a split-screen template can be edited, and you just have to click on them if you want to adjust their sizes, enhance colors, mute their audio tracks or add a new audio file to the template.
 
@@ -94,8 +93,12 @@ Check the details about [How to make a split-screen video](https://tools.techida
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 3: Create A YouTube Reaction Video with AI Portrait
 
 With the human segmentation effect in AI Portrait, you can now blend the reaction video in a more natural way. The human segmentation effect will isolate people from the background, you can use any background in the video.
@@ -104,11 +107,22 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 1:** Import the videos to the media library, and then drag the background video to the first video track, and the reaction video to the track above.
 
 ![import reaction videos to Filmora](https://images.wondershare.com/filmora/article-images/import-reaction-videos-to-timeline.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Go to the Effects tab at the top, and click the AI Portrait category, and then you will see many effects such as Human Segmentation, Human Pixelate, Human Noise, and lighting flash. Here, drag and drop the Human segmentation effect to the reaction video.
@@ -118,15 +132,19 @@ Note: You can use this feature after version after V 10.5 for Windows, and V 10.
 **Step 3**: Select the reaction video in the timeline, and then adjust its size and position by dragging it on the preview window. See, the reaction video is fine blended with the background video.
 
 ![adjust reaction video size](https://images.wondershare.com/filmora/article-images/customize-reaction-video-size.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 
 **Step 4:** That’s the basic editing of making a reaction video. You can also add the neon or flashing effect to the video. If everything goes well, click Export and save the video.
 
 ![add neon flash effects to reaction video](https://images.wondershare.com/filmora/article-images/add-neon-flash-effects-to-video.jpg)
 
 You can find out more details about using the [AI Portrait effect to make a reaction video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Avoid Copyright Infringements While Making a YouTube Reaction Video
 
@@ -152,11 +170,23 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-oneplus-nord-n30-se-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-screen-time-youtubes-top-movies-list/"><u>Cutting Edge Screen Time YouTube's Top Movies List</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ensuring-safe-practices-utilizing-chatgpt-effectively-in-mental-wellness-coaching/"><u>Ensuring Safe Practices: Utilizing ChatGPT Effectively in Mental Wellness Coaching</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/experience-advanced-note-organization-on-mematic/"><u>Experience Advanced Note Organization on Mematic</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-advice-on-free-youtube-events-without-extra-cost/"><u>Expert Advice on Free Youtube Events without Extra Cost</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-successfully-repair-a-504-gateway-timeout-problem-a-comprehensive-guide/"><u>How To Successfully Repair a 504 Gateway Timeout Problem - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dual-watch-dynamics-navigating-youtube-in-parallel/"><u>In 2024, Dual-Watch Dynamics Navigating YouTube in Parallel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ensuring-accurate-earnings-tracking-for-creators/"><u>In 2024, Ensuring Accurate Earnings Tracking for Creators</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>In 2024, Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+</ul></div>
+

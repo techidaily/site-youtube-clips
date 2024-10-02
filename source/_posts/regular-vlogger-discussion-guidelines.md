@@ -1,7 +1,7 @@
 ---
 title: "Regular Vlogger Discussion Guidelines"
-date: 2024-09-21T20:08:22.379Z
-updated: 2024-09-26T19:28:39.138Z
+date: 2024-09-27T16:51:53.116Z
+updated: 2024-10-01T20:57:19.152Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -52,10 +59,10 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -74,13 +81,6 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -98,22 +98,21 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
@@ -124,6 +123,13 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,20 +146,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-easy-steps-how-to-master-the-best-of-9-free-youtube-logomakers/"><u>[New] Easy Steps How to Master the Best of 9 Free YouTube Logomakers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-essential-sites-for-fetching-video-intro-files/"><u>[Updated] Essential Sites for Fetching Video Intro Files</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-sound-transforming-apps-for-youtube-vloggers/"><u>2024 Approved Best Sound Transforming Apps for YouTube Vloggers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas/"><u>2024 Approved Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-best-of-the-best-exciting-windows-10-apps-and-games/"><u>2024 Approved The Best of the Best Exciting Windows 10 Apps & Games</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/demystifying-youtube-seo-terminology-and-tactics/"><u>Demystifying YouTube SEO Terminology and Tactics</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/exploring-the-youtube-content-manager-toolkit-for-2024/"><u>Exploring the YouTube Content Manager Toolkit for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/handling-a-failed-transaction-6-tips-for-overcoming-apples-payment-refusal/"><u>Handling a Failed Transaction: 6 Tips for Overcoming Apple’s Payment Refusal</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-build-a-thriving-biz-channel-proven-strategies-and-examples/"><u>In 2024, Build a Thriving Biz Channel Proven Strategies and Examples</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>In 2024, Elevate Your YouTube Content Editing in Adobe Premiere</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-pro-max-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Pro Max without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/kostenlose-online-umwandlung-von-mkv-in-m4v-format-mit-movavi-streamingqualitat/"><u>Kostenlose Online-Umwandlung Von MKV in M4V Format Mit Movavi Streamingqualität</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-instagram-video-soundtracking-techniques/"><u>Mastering the Art of Instagram Video Soundtracking Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/starting-your-youtubian-journey-from-launchpad-to-loot/"><u>Starting Your Youtubian Journey From Launchpad to Loot</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/vn-video-editor-pc-edition-a-compact-review/"><u>VN Video Editor PC Edition A Compact Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-from-footage-to-narrative-the-essential-guide-to-instagram-descriptive-texts/"><u>[New] In 2024, From Footage to Narrative The Essential Guide to Instagram Descriptive Texts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-for-iphone-screen-taping/"><u>[Updated] 2024 Approved The Ultimate Guide for iPhone Screen Taping</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-business-boosters-the-ultimate-highlight-enhancement-guide/"><u>2024 Approved Business Boosters The Ultimate Highlight Enhancement Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/designing-with-dirt-incorporating-natural-elements-into-urban-areas/"><u>Designing with Dirt Incorporating Natural Elements Into Urban Areas</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ng-mastery-executing-a-3-step-procedure-to-evaluate-your-youtube-income/"><u>Earning Mastery Executing a 3-Step Procedure to Evaluate Your YouTube Income</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/feast-your-eyes-enjoyment-without-cost-watch-9-christmas-films-online/"><u>Feast Your Eyes, Enjoyment Without Cost Watch 9 Christmas Films Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/gain-momentum-with-these-strategies-for-trending-youtubers/"><u>Gain Momentum with These Strategies for Trending YouTubers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-iphone-6-plus-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock iPhone 6 Plus without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-content-distribution-showdown-vimeo-vs-youtubes-and-dailymotions/"><u>In 2024, Content Distribution Showdown Vimeo vs YouTubes and DailyMotions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-elevating-your-macs-tiktok-opener-quality/"><u>In 2024, Elevating Your Mac's TikTok Opener Quality</u></a></li>
+<li><a href="https://network-issues.techidaily.com/no-errors-post-setup-nvidias-smooth-operations/"><u>No Errors Post-Setup: Nvidia's Smooth Operations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-to-stellar-video-youtube-studio-edition/"><u>Step-by-Step to Stellar Video YouTube Studio Edition</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-windows-10-tips-switching-the-screen-keyboard-on-and-off-smoothly/"><u>Unlocking Windows 10 Tips: Switching the Screen Keyboard On and Off Smoothly</u></a></li>
 </ul></div>
 

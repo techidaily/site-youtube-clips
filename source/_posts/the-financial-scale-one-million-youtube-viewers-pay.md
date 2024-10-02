@@ -1,7 +1,7 @@
 ---
 title: "\"The Financial Scale  One Million YouTube Viewers' Pay\""
-date: 2024-08-16T08:07:47.828Z
-updated: 2024-08-17T08:07:47.828Z
+date: 2024-09-25T18:48:04.402Z
+updated: 2024-10-01T16:44:31.240Z
 tags:
   - ai video
   - ai youtube
@@ -40,44 +40,40 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
+## How Revenue is Calculated
+
+In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
+
+In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
+
+As of February 2018, to qualify for ad revenue, the YouTube channel must have:
+
+1\. You will need to have 1,000 subscribers.
+
+2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
+
+The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+## Understanding CPM and CPCs
+
+### What is CPM?
+
+CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
+
+Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
+
+For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+### What is CPC?
+
+CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## How Revenue is Calculated
-
-In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
-
-In order to join this program you need to be able to commit to uploading ad-friendly (nothing controversial) content that is completely original and high quality and which also adheres to all of the community guidelines and YouTube’s Terms of Service (YouTube actually just introduced a couple of stricter rules - click here for [YouTube Monetization 2018](https://www.filmora.io/community-blog/youtube-monetization-2018---the-new-rules-everyone-hates-331.html)).
-
-As of February 2018, to qualify for ad revenue, the YouTube channel must have:
-
-1\. You will need to have 1,000 subscribers.
-
-2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
-
-The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-## Understanding CPM and CPCs
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### What is CPM?
-
-CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
-
-Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
-
-For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
-### What is CPC?
-
-CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -100,9 +96,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 
 02 [How is the revenue calculated?](#part2)
 
@@ -119,8 +112,12 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -135,14 +132,8 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Understanding CPM and CPCs
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -151,9 +142,6 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
@@ -194,6 +182,13 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -219,8 +214,12 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
@@ -246,9 +245,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 
 02 [How is the revenue calculated?](#part2)
 
@@ -264,9 +260,6 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Revenue is Calculated
 
 In order to understand how revenue is calculated over the YouTube marketplace, a YouTube user needs to first understand what the partnership program entails. Basically, a YouTube partner has the ability to monetize their videos and serve ads on their content.
@@ -283,6 +276,19 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 
 ## Understanding CPM and CPCs
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -292,16 +298,16 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -323,6 +329,13 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -335,6 +348,13 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Accelerating Engagement with Optimized YouTube Video Speeds
 
@@ -342,4 +362,18 @@ YouTube is one of the top online learning platforms that ever existed. You could
 
 More so, you could want to save time while playing your choice YouTube video and yet wish to get all the information. You can eat your muffin and have it by speeding up or slowing down the **YouTube playback speed**. This article will show you how to **speed up YouTube videos** or slow them down.
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-unlocking-the-door-to-joining-a-tiktok-gathering-for-2024/"><u>[New] Unlocking the Door to Joining a TikTok Gathering for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unraveling-the-purpose-of-facebooks-blue-messenger-emblem-for-2024/"><u>[Updated] Unraveling the Purpose of Facebook's Blue Messenger Emblem for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-visual-voyage-documenting-desktop-views-on-winos-for-2024/"><u>[Updated] Visual Voyage Documenting Desktop Views on WinOS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-online-tools-perfect-your-beats-like-a-pro-dj/"><u>2024 Approved Free Online Tools Perfect Your Beats Like a Pro DJ</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-power-how-to-use-phantoms-retro-vision/"><u>2024 Approved Harnessing Power How to Use Phantom's Retro Vision</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos/"><u>Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enriching-youtube-content-with-improved-sound-quality-for-2024/"><u>Enriching YouTube Content with Improved Sound Quality for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-affordable-flight-masters-top-drone-selections-below-500/"><u>In 2024, Affordable Flight Masters Top Drone Selections Below $500</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rise-to-the-top-mastering-youtube-descriptions-with-customizable-templates/"><u>Rise to the Top Mastering YouTube Descriptions with Customizable Templates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-the-finest-mesh-wireless-networking-technology/"><u>Ultimate List: The Finest Mesh Wireless Networking Technology</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleash-the-potential-customizing-your-youtube-channel-url/"><u>Unleash the Potential Customizing Your YouTube Channel Url</u></a></li>
+</ul></div>
 

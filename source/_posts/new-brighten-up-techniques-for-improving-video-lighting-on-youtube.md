@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Brighten Up  Techniques for Improving Video Lighting on YouTube\""
-date: 2024-08-16T08:04:58.564Z
-updated: 2024-08-17T08:04:58.564Z
+date: 2024-09-28T18:52:20.793Z
+updated: 2024-10-01T16:55:40.034Z
 tags:
   - ai video
   - ai youtube
@@ -39,9 +39,6 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -50,11 +47,22 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -67,20 +75,21 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
@@ -93,9 +102,6 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -111,8 +117,12 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -121,11 +131,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/updated-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[Updated] Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/addressing-youtube-shorts-no-image-upload-issue/"><u>Addressing YouTube Shorts No Image Upload Issue?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-amplify-your-youtubes-interaction-with-emojis/"><u>In 2024, Amplify Your Youtubes' Interaction with Emojis</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-itel-p40plus-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Itel P40+ Device</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lost-video-steps-to-fix-sony-a6400-problem/"><u>Lost Video Steps to Fix Sony A6400 Problem</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-inserting-descriptive-commentary-in-youtube-videos/"><u>The Art of Inserting Descriptive Commentary in YouTube Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-fix-for-when-you-cant-locate-mingwm10dll-on-windows/"><u>The Ultimate Fix for When You Can't Locate Mingwm10.dll on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-online-stores-with-the-wideest-selection-of-televisions/"><u>Top 6 Online Stores with the Wideest Selection of Televisions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-the-secrets-of-pokemon-go-playing-in-simple-steps/"><u>Unlock the Secrets of Pokémon Go Playing in Simple Steps</u></a></li>
+</ul></div>
+

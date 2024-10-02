@@ -1,7 +1,7 @@
 ---
 title: "[New] Digital Artisans Gathering Haven"
-date: 2024-08-16T08:05:46.755Z
-updated: 2024-08-17T08:05:46.755Z
+date: 2024-09-24T21:10:09.379Z
+updated: 2024-10-01T16:30:58.529Z
 tags:
   - ai video
   - ai youtube
@@ -60,15 +60,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -78,8 +79,12 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
@@ -88,16 +93,17 @@ _thinknoodles wearing his YouTube slippers._
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -107,8 +113,12 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -119,11 +129,23 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-decrypting-youtubes-view-count-calculation-system/"><u>[New] Decrypting YouTube’s View-Count Calculation System</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-avoid-and-eliminate-fog-on-gopro-lenshousing/"><u>[New] How to Avoid and Eliminate Fog on GoPro Lens/Housing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-srt-breakdown-core-concepts-and-applications/"><u>[New] SRT Breakdown Core Concepts and Applications</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-symphony-of-streams-harmonizing-your-multiple-youtube-views/"><u>[Updated] A Symphony of Streams Harmonizing Your Multiple YouTube Views</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-ringtones-for-pixels-where-to-download/"><u>2024 Approved Top Ringtones for Pixels Where to Download?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-tips-for-effortless-youtube-video-uploads-via-ios/"><u>Expert Tips for Effortless YouTube Video Uploads via iOS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-novice-to-specialist-a-step-by-step-journey-through-adobe-ps-background-removal-techniques-for-2024/"><u>From Novice to Specialist A Step-by-Step Journey Through Adobe PS Background Removal Techniques for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/puns-and-plots-developing-7-funny-video-storylines/"><u>Puns & Plots Developing 7 Funny Video Storylines</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/your-picks-for-the-best-photovideo-makers-that-tune-in-music/"><u>Your Picks for the Best Photo/Video Makers That Tune in Music</u></a></li>
+</ul></div>
+

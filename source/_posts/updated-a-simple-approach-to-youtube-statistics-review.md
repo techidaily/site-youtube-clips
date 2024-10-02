@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Simple Approach to YouTube Statistics Review"
-date: 2024-08-16T08:04:45.235Z
-updated: 2024-08-17T08:04:45.235Z
+date: 2024-09-24T21:21:43.761Z
+updated: 2024-10-01T22:19:45.275Z
 tags:
   - ai video
   - ai youtube
@@ -44,8 +44,12 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -55,8 +59,12 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -71,9 +79,6 @@ In the watch time reports for individual videos, you will be able to see data on
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -99,8 +104,12 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -108,8 +117,12 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -118,11 +131,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-captivating-titles-easily-achievable/"><u>[New] Captivating Titles, Easily Achievable</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-video-reach-optimize-tags-for-600esplus-growth/"><u>[New] Elevate Video Reach Optimize Tags for $6,00Es+ Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-storyboard-studio/"><u>2024 Approved Digital Storyboard Studio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-reach-the-quintessential-five-tactics-for-youtube-success/"><u>Boost Your Reach The Quintessential Five Tactics for YouTube Success</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exclusive-techniques-to-maximize-windows-11/"><u>Exclusive Techniques to Maximize Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fixing-compatibility-issues-with-the-corsair-h115i-on-windows-os-updates/"><u>Fixing Compatibility Issues with the Corsair H115i on Windows OS Updates</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-nvidia-geforce-rtx-cudnn-driver-for-windows-10-8-and-7/"><u>Get the Latest NVIDIA GeForce RTX cuDNN Driver for Windows 10, 8 & 7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diy-delights-in-motion-personalized-animation-artistry/"><u>In 2024, DIY Delights in Motion Personalized Animation Artistry</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-google-pixel-7a-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Google Pixel 7a to Outlook | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leading-5-video-editors-outside-youtube-realm/"><u>Leading 5 Video Editors Outside YouTube Realm</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/seamless-video-production-youtube-studios-cutting-edge-editing/"><u>Seamless Video Production YouTube Studio's Cutting-Edge Editing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-future-of-professional-spaces-and-their-impact-on-productivity/"><u>The Future of Professional Spaces and Their Impact on Productivity</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-review-evaluating-amazonbasics-12-page-high-security-shredding-device/"><u>The Ultimate Review: Evaluating AmazonBasics 12-Page High-Security Shredding Device</u></a></li>
+</ul></div>
+

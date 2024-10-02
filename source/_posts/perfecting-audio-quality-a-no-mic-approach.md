@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-09-23T17:47:38.375Z
-updated: 2024-09-26T17:10:40.812Z
+date: 2024-09-27T19:18:12.251Z
+updated: 2024-10-01T21:57:04.355Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -75,15 +82,22 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
@@ -93,13 +107,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -115,20 +122,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,14 +146,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-get-started-on-vimeo-for-free-the-basics-of-video-editing/"><u>[New] In 2024, Get Started on Vimeo for Free The Basics of Video Editing</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-getting-started-on-discord-a-comprehensive-guide-to-broadcasting/"><u>[Updated] 2024 Approved Getting Started on Discord A Comprehensive Guide to Broadcasting</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-audiovisual-authority-the-finest-computers-for-professional-edits/"><u>[Updated] Audiovisual Authority The Finest Computers for Professional Edits</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-step-by-step-guide-to-edit-youtube-videos-in-finalcut-for-2024/"><u>A Step-by-Step Guide to Edit YouTube Videos in FinalCut for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/broadcasters-dilemma-opt-for-wirecast-or-obs-in-2024/"><u>Broadcaster's Dilemma Opt for Wirecast or OBS, In 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-the-seas-of-success-utilizing-social-blade-for-youtube-data/"><u>Navigating the Seas of Success Utilizing Social Blade for YouTube Data</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/navigating-through-the-differences-between-apples-ipad-pro-and-macbook-air/"><u>Navigating Through the Differences Between Apple's iPad Pro and MacBook Air</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/perfecting-your-footage-youtube-shorts-now-mp4/"><u>Perfecting Your Footage YouTube Shorts, Now Mp4</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-selection-of-no-cost-image-transformers-for-ios-and-android-for-2024/"><u>The Ultimate Selection of No-Cost Image Transformers for iOS and Android for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-optimal-team-call-aesthetics-pre-call-and-post-call-tweaks/"><u>[New] Optimal Team Call Aesthetics Pre-Call & Post-Call Tweaks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlocking-igtvs-potential-a-video-resizing-primer/"><u>[Updated] 2024 Approved Unlocking IGTV's Potential A Video Resizing Primer</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-pioneering-a-dual-perspective-3-innovative-techniques-for-viewpoint-based-youtube-reactions/"><u>[Updated] Pioneering a Dual Perspective 3 Innovative Techniques for Viewpoint-Based YouTube Reactions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dive-into-diy-the-beginners-guide-to-eye-catching-mac-videos/"><u>Dive Into DIY The Beginner’s Guide to Eye-Catching Mac Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effective-team-videos-boosting-channelnode-growth-rate/"><u>Effective Team Videos Boosting Channelnode Growth Rate</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>Enhance Visibility on YT Key Aspects of Channel Art & Banner Size</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/expert-choice-top-10-video-subtitles-editors-online-for-2024/"><u>Expert Choice Top 10 Video Subtitles Editors Online for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-zero-to-hero-crafting-an-authoritative-online-self/"><u>From Zero to Hero Crafting an Authoritative Online Self</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-does-youtube-manage-post-upload-operations/"><u>How Does YouTube Manage Post-Upload Operations?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/improve-viewability-master-the-art-of-adding-timestamps-to-youtube-urls/"><u>Improve Viewability Master the Art of Adding Timestamps to YouTube URLs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channel-identity-made-simple-with-these-top-11-zero-cost-tools/"><u>In 2024, Channel Identity Made Simple with These Top 11 Zero-Cost Tools</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/into-the-humor-hub-of-the-world-wide-web-metaverse-memes-101/"><u>Into the Humor Hub of the World Wide Web - Metaverse Memes 101</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-samsungs-dex-the-ultimate-users-blueprint/"><u>Navigating Samsung’s DeX: The Ultimate User’s Blueprint</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722957707630-temperature-ranges-during-different-growth-stages-from-spore-germination-to-fruiting-bodies-emergence/"><u>Temperature Ranges During Different Growth Stages From Spore Germination to Fruiting Bodies Emergence.</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-list-10-free-and-paid-alternatives-to-final-cut-pro-x/"><u>Updated The Ultimate List 10 Free and Paid Alternatives to Final Cut Pro X</u></a></li>
 </ul></div>
 

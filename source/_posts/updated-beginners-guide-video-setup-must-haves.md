@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Video Setup Must-Haves\""
-date: 2024-09-19T20:16:27.555Z
-updated: 2024-09-26T17:57:00.197Z
+date: 2024-09-30T22:54:29.838Z
+updated: 2024-10-01T19:06:34.639Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,6 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -79,13 +72,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -96,9 +82,23 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -109,10 +109,16 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -122,10 +128,10 @@ Another common downside of smartphone cameras is that most of them use digital z
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,20 +149,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[New] Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-addressing-missing-image-display-in-youtubes-shorts/"><u>[Updated] Addressing Missing Image Display in YouTubes Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-everything-about-metaverse-marketing-example-strategies-and-more/"><u>[Updated] Everything About Metaverse Marketing Example, Strategies, and More</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/movavi-wmampeg/"><u>「Movavi オンラインエディター：WMA/MPEGファイルを自由に変換」専用無料サービス</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-your-youtube-stream-the-wirecast-way-for-2024/"><u>Elevating Your YouTube Stream The WireCast Way for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-tips-enhancing-focus-in-your-youtube-video-for-2024/"><u>Essential Tips Enhancing Focus in Your YouTube Video for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-technology-with-tom-hardware-insights/"><u>Exploring Technology with Tom: Hardware Insights</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/flashglimpse-crafter/"><u>FlashGlimpse Crafter</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-6s-plus-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 6s Plus Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-transforming-spontaneitous-tunes-into-structured-youtube-playlists/"><u>In 2024, Transforming Spontaneitous Tunes Into Structured YouTube Playlists</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/perfect-playlists-10-music-selections-to-open-your-podcast/"><u>Perfect Playlists 10 Music Selections to Open Your Podcast</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/streamline-color-correction-with-easy-techniques/"><u>Streamline Color Correction with Easy Techniques</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-art-of-conversion-boosting-click-through-rates-on-social-platforms/"><u>The Art of Conversion Boosting Click-Through Rates on Social Platforms</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-resolving-phasmophobia-vr-gameplay-issues/"><u>Troubleshooting Guide: Resolving Phasmophobia VR Gameplay Issues</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-captivating-book-video-tours/"><u>[Updated] Captivating Book Video Tours</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/20plus-hashes-to-skyrocket-your-short-films-popularity/"><u>20+ Hashes to Skyrocket Your Short Film's Popularity</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-advanced-techniques-using-jump-cuts-effectively/"><u>2024 Approved Advanced Techniques Using Jump Cuts Effectively</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-the-ultimate-youtube-musical-collection/"><u>2024 Approved Building the Ultimate YouTube Musical Collection</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>2024 Approved Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discovering-how-youtube-runs-its-creator-workshop/"><u>2024 Approved Discovering How YouTube Runs Its Creator Workshop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-down-the-process-for-youtube-comment-highlights-for-2024/"><u>Breaking Down the Process for YouTube Comment Highlights for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/breaking-the-barrier-acquiring-mass-tiktok-videos-easily/"><u>Breaking the Barrier Acquiring Mass TikTok Videos Easily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-sustainable-cities-innovation-in-environmental-design-for-2024/"><u>Building Sustainable Cities Innovation in Environmental Design for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-upgrade-made-simple-embrace-tubebuddy-techniques-for-2024/"><u>Channel Upgrade Made Simple - Embrace TubeBuddy Techniques for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-an-apple-powered-athletic-broadcast-platform/"><u>Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/dvdmacdvdrip/"><u>DVDレンタルサービスからMacへ素晴らしいDVDをダウンロードする簡単方法とおすすめRipソフトの使い方</u></a></li>
+<li><a href="https://win-able.techidaily.com/get-your-game-running-overcoming-hardware-and-driver-errors-in-rainbow-six-extraction/"><u>Get Your Game Running: Overcoming Hardware and Driver Errors in Rainbow Six Extraction</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-iphone-14-by-drfone-ios/"><u>How to Fix when Apple Account Locked On iPhone 14?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-movie-magic-at-work-the-crucial-functions-and-impact-of-every-film-set-team-member/"><u>In 2024, Movie Magic at Work The Crucial Functions and Impact of Every Film Set Team Member</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-oppo-a18-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Oppo A18 Phones</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-lg-gram-156-inch-2018-the-perfect-blend-of-portability-and-endurance-in-a-laptop/"><u>Unveiling the LG Gram 15.6-Inch (2018) - The Perfect Blend of Portability and Endurance in a Laptop</u></a></li>
 </ul></div>
 

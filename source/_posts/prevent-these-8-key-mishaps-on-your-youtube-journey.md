@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-09-23T16:29:31.796Z
-updated: 2024-09-26T17:37:11.919Z
+date: 2024-09-30T18:12:38.739Z
+updated: 2024-10-01T19:30:44.361Z
 tags:
   - ai video
   - ai youtube
@@ -38,19 +38,6 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -65,13 +52,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -79,10 +59,10 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -99,6 +79,13 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -106,10 +93,10 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -121,6 +108,19 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,22 +137,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-integrate-youtube-content-for-dynamic-google-slides/"><u>[New] 2024 Approved Integrate YouTube Content for Dynamic Google Slides</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-pro-converter-mp4-videos-for-social-media-fb-focus/"><u>[New] 2024 Approved Pro Converter MP4 Videos for Social Media (FB Focus)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-investment-tips-from-youtube-experts/"><u>[New] 2024 Approved Top Investment Tips From YouTube Experts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-discover-unmissable-adventures-in-sandbox-gaming/"><u>[New] Discover Unmissable Adventures in Sandbox Gaming</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-from-concept-to-completion-a-stories-polling-handbook/"><u>[New] From Concept to Completion A Stories Polling Handbook</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-top-10-global-youtube-stars-with-mass-following/"><u>[New] In 2024, Top 10 Global YouTube Stars with Mass Following</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-djs-playlist-tailoring-sounds-for-stories/"><u>[Updated] 2024 Approved The Instagram DJ's Playlist Tailoring Sounds for Stories</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-adding-audio-descriptions-to-videos-on-youtube/"><u>[Updated] Adding Audio Descriptions to Videos on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-sculpting-the-digital-experience-through-zooming/"><u>[Updated] Sculpting the Digital Experience Through Zooming</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-converting-your-favourite-tracks-bridging-spotify-with-youtube-music/"><u>2024 Approved Converting Your Favourite Tracks Bridging Spotify with YouTube Music</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-easy-access-best-free-youtube-subtitle-extractors/"><u>2024 Approved Easy Access Best Free YouTube Subtitle Extractors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cinema-for-all-a-comparative-look-at-vimeo-and-youtube-for-2024/"><u>Cinema for All? A Comparative Look at Vimeo & YouTube for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/desktopmobile-techniques-for-sound-rate-manipulation-in-youtube-for-2024/"><u>Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/effective-practices-for-device-video-capture/"><u>Effective Practices for Device Video Capture</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors-for-2024/"><u>Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/savor-spectaculars-youtubes-best-cooking-channels/"><u>Savor Spectaculars YouTube's Best Cooking Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-art-of-mixing-on-youtube-music/"><u>The Art of Mixing on YouTube Music</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-content-game-mastering-the-art-of-instagram-video-uploads-on-desktop/"><u>[Updated] Elevate Your Content Game Mastering the Art of Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-a-striking-online-presence-with-perfect-yt-dimensions/"><u>2024 Approved Crafting a Striking Online Presence with Perfect YT Dimensions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-narrative-flow-integrating-chapters-into-your-youtube-content/"><u>2024 Approved Enhancing Narrative Flow Integrating Chapters Into Your YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-malpractice-how-to-safely-grow-a-million-fanbase/"><u>Avoiding Malpractice How to Safely Grow a Million Fanbase</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/conquer-and-cease-the-unremovable-guide-to-youtube-shorts/"><u>Conquer & Cease The Unremovable Guide to Youtube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-impact-best-9-video-thumbnail-makers-reviewed/"><u>Crafting Impact Best 9 Video Thumbnail Makers Reviewed</u></a></li>
+<li><a href="https://win11.techidaily.com/daznpc/"><u>DAZN映像取得・保管手順に関するPCユーザ向けの詳細マニュアル</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-dominating-the-digital-realm-youtube-marketing-secrets/"><u>In 2024, Dominating the Digital Realm YouTube Marketing Secrets</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-create-movies-online-for-free-top-9-tools/"><u>New In 2024, Create Movies Online for Free Top 9 Tools</u></a></li>
+<li><a href="https://techidaily.com/samsung-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Samsung won’t play MP4 files</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-fix-for-anticheat-connection-failed-error-in-escape-from-tarkov-gameplay/"><u>Ultimate Fix for 'Anticheat Connection Failed' Error in Escape From Tarkov Gameplay</u></a></li>
 </ul></div>
 

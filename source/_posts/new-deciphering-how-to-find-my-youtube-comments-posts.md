@@ -1,7 +1,7 @@
 ---
 title: "[New] Deciphering How To Find My YouTube Comments Posts"
-date: 2024-08-16T08:04:09.732Z
-updated: 2024-08-17T08:04:09.732Z
+date: 2024-09-25T17:05:33.754Z
+updated: 2024-10-01T16:26:32.546Z
 tags:
   - ai video
   - ai youtube
@@ -42,8 +42,12 @@ YouTube allows you to post comments on any video only if you are signed in to yo
 You can learn how to find all the comments you have posted on YouTube while using your preferred device by following the instructions given below:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1\. Find Your YouTube Comments on a Desktop or Laptop Computer
 
 **Step 1: Sign In to Your YouTube Account**
@@ -55,9 +59,6 @@ Launch your favorite web browser, go to the YouTube page, click **SIGN IN** from
 Click the **Menu</strong > button from the top-left corner of the page, and then click History from the categories available in the navigation bar in the left.**
 
 ![YouTube History Menu   ](https://images.wondershare.com/filmora/article-images/youtube-history-menu.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 
 **Step 3: Access/View Your Past Comments**
 
@@ -66,8 +67,12 @@ Click **Comments** from the right of the **History** page to view all the commen
 ![YouTube History Menu  Comments ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Find Your YouTube Comments on an iPhone
 
 Unfortunately, at the time of this writing, the YouTube app for iOS doesn’t have the feature to view your comments history. However, there is a workaround where you can use a web browser on your smartphone to get this done. The process that is given below explains how to view your past YouTube comments on an iPhone:
@@ -110,6 +115,13 @@ Once you are signed in to your account, tap the **Menu** icon from the top-left 
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
 You can use your favorite web browser on a PC to easily find all the comments that the videos on your YouTube channel have received as long as you are signed in to your Google account. The step-by-step instructions on how this can be done are given below:
@@ -119,9 +131,6 @@ You can use your favorite web browser on a PC to easily find all the comments th
 Open your favorite Internet browser, go to <https://www.youtube.com>, and sign in to your YouTube account as explained in the previous sections. Next, click the **Menu** icon from the top-left corner of the YouTube homepage, and click **Your videos** from the menu that appears.
 
 ![Access  YouTube Your videos Page ](https://images.wondershare.com/filmora/article-images/youtube-your-videos-menu.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 
 **Step 2: View the Comments**
 
@@ -134,11 +143,15 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
 
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
@@ -160,6 +173,26 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -175,18 +208,12 @@ Launch Google Chrome on your desktop or laptop computer, search for **YCS – Yo
 Go to your or any other’s YouTube video, and click **Load All** from the top-right corner of the YouTube Comment Search panel that is present under the description box to allow YCS to scan all the comments the video has received.
 
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 **Step 3: Search Comments from a Particular User**
 
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
 ![Serach  YouTube Comments of specific users ](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
@@ -203,8 +230,12 @@ Locate the comment that you want to reply to, click **REPLY** from under the com
 ![Reply  YouTube Comments  ](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Moderate YouTube Comments?
 
 If you publish videos on YouTube that may put some impact on people’s lifestyle, you are likely to face criticism quite often. Therefore, you might want to moderate all your comments before they become visible to the audience so as not to spread negativity among the mass. Fortunately, YouTube helps you get this done easily, and the instructions that teach you the process are given below:
@@ -220,14 +251,14 @@ From the bottom of the navigation bar on the left of the **YouTube Studio** page
 Go to the **Community** category from the left pane, and go to the **Defaults** tab from the right. Next, choose **Hide all comments for review** from the **Comments on your new videos** drop-down list, and click **SAVE** from the bottom-right corner of the box to moderate all YouTube comments that your new videos receive from this point onward.
 
 ![set  YouTube Community Comments moderation ](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -238,9 +269,6 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 **Q1) Why can’t I see the comments I posted?**
@@ -261,11 +289,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unveiling-10-cost-effective-virtual-communication-tools/"><u>[New] In 2024, Unveiling 10 Cost-Effective Virtual Communication Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-step-by-step-techniques-for-computer-based-photo-filtering/"><u>[New] Step-By-Step Techniques for Computer-Based Photo Filtering</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-building-captivating-online-media-summaries/"><u>[Updated] Building Captivating Online Media Summaries</u></a></li>
+<li><a href="https://games-able.techidaily.com/can-amds-fsr-3-deliver-enhanced-visual-quality-to-surpass-dlss-35/"><u>Can AMD’s FSR 3 Deliver Enhanced Visual Quality to Surpass DLSS 3.5?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clear-cinematic-vision-top-camera-stabilizers-reviewed-for-2024/"><u>Clear Cinematic Vision - Top Camera Stabilizers Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-dominion-for-techno-gamers-for-2024/"><u>Digital Dominion for Techno Gamers for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/improve-your-workflow-advanced-file-explorer-techniques-for-windows-11-users/"><u>Improve Your Workflow: Advanced File Explorer Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-design-wizards-perfect-templates-for-gaming-channel-logos/"><u>In 2024, Design Wizards Perfect Templates for Gaming Channel Logos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-honor-90-gt-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Honor 90 GT and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721458167409-iphone-not-picking-up-calls-heres-how-you-can-fix-it/"><u>IPhone Not Picking Up Calls? Here's How You Can Fix It</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-best-value-for-money-11-no-cost-name-creation-tips/"><u>The Best Value for Money 11 No-Cost Name Creation Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/viewership-volume-the-financial-impact-of-one-million-views/"><u>Viewership Volume The Financial Impact of One Million Views</u></a></li>
+</ul></div>
+

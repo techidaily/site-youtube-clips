@@ -1,7 +1,7 @@
 ---
 title: "Mobile & Desktop Techniques for YouTube Short Video Submission"
-date: 2024-08-16T08:04:29.911Z
-updated: 2024-08-17T08:04:29.911Z
+date: 2024-09-27T19:47:45.453Z
+updated: 2024-10-01T22:17:24.399Z
 tags:
   - ai video
   - ai youtube
@@ -76,14 +76,18 @@ For macOS 10.12 or later
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -92,17 +96,18 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
@@ -112,8 +117,12 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -123,6 +132,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -139,9 +155,6 @@ On the next window, use the **Music** and **Text** buttons from the bottom-left 
 On the **Add details** window, enter a name for the video along with the **#Shorts** tag in the **Create a title** field, tap **Select audience** to select the target audience, and tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -150,9 +163,6 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,11 +170,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-story-audiences-the-untold-details/"><u>[New] 2024 Approved Instagram Story Audiences The Untold Details</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>[New] Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-diy-digital-storytelling-making-moving-pictures-on-your-smartphone/"><u>[Updated] DIY Digital Storytelling Making Moving Pictures on Your Smartphone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-1-5-best-editors-apart-from-youtube-platform/"><u>2024 Approved 1-#5 Best Editors Apart From YouTube Platform</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-se-2020-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone SE (2020) and iPad Securely</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-high-cpu-usage-by-wmi-service/"><u>Addressing High Cpu Usage by WMI Service</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/d-tubes-the-ultimate-video-share-sites/"><u>Beyond Tubes The Ultimate Video Share Sites</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-realme-c67-4g-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Realme C67 4G</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/making-it-easier-nvidias-revamped-approach-to-pc-application-management/"><u>Making It Easier: NVIDIA's Revamped Approach to PC Application Management</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pro-gamers-top-5-soundtrack-devices/"><u>Pro Gamers' Top 5 Soundtrack Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyrocketing-revenue-mastering-video-monetization-everywhere/"><u>Skyrocketing Revenue Mastering Video Monetization Everywhere</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-to-the-parameter-is-incorrect-problem-in-library-loading/"><u>Step-by-Step Solution to the 'Parameter Is Incorrect' Problem in Library Loading</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/swift-valorant-image-crafting-professionally-done-on-the-fly/"><u>Swift Valorant Image Crafting Professionally Done on the Fly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-systematic-search-for-concealed-youtube-repositories/"><u>The Systematic Search for Concealed YouTube Repositories</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/uncover-hubs-sites-that-connect-you-with-youtube-branding-deals/"><u>Uncover Hubs Sites That Connect You with YouTube Branding Deals</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unpacking-security-the-pros-and-cons-of-battery-based-google-wireless-nest-doorbells/"><u>Unpacking Security: The Pros and Cons of Battery-Based Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-create-professional-looking-animations-with-these-12-online-makers/"><u>Updated Create Professional-Looking Animations with These 12 Online Makers</u></a></li>
+</ul></div>
+

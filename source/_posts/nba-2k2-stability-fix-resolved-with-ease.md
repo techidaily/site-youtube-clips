@@ -1,7 +1,7 @@
 ---
 title: NBA 2K2# Stability Fix - Resolved with Ease!
-date: 2024-08-16T08:04:17.572Z
-updated: 2024-08-17T08:04:17.572Z
+date: 2024-09-28T23:30:10.894Z
+updated: 2024-10-01T22:53:24.904Z
 tags:
   - win11
   - win10
@@ -29,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 6. [**Verify the game file**](https://tools.techidaily.com/drivereasy/download/)
 7. [**Add NBA 2K20 as an exception to your 3rd party antivirus software**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ### Fix 1: Update your graphics driver
 
  Graphics card manufacturers like Nvidia, AMD and Intel constantly release new graphics drivers to fix bugs and improve the gaming performance and experience.
@@ -49,9 +46,6 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 1. **[Download](https://tools.techidaily.com/drivereasy/download/)**  and install Driver Easy.
 2. Run Driver Easy and click**Scan Now** . Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/DE-scan-screen.png)
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. You need the Pro version of Driver Easy to do this, so you’ll be prompted to upgrade.  
 
  Don’t worry; it comes with a 30-day money-back guarantee, so if you don’t like it you can get a full refund, no questions asked.  
@@ -61,18 +55,12 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/)**  .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### Fix 2: Install the latest game patch
 
  Visual Concepts (the developer of NBA 2K20) releases regular game patches to fix bugs and improve gaming performance. It’s possible that a recent patch has caused the game crash issue, and that a new patch is required to fix it. Or maybe this newly released game has not been fully optimized yet, so we need to install patches to optimize the gaming performance and experience.
 
  If a patch is available, just download and install it to see if it can fix the crashing issue; if there’s no patches available, or if the issue persists after you installed the latest patch, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 3: Perform a Windows Update
 
  According to the game developers, if MS Visual C++ is missing or corrupted, you may also run into the NBA 2K20 crash issue. To resolve this problem, you need to reinstall the official Visual C++ Redistributable for Visual Studio 2015 and Visual Studio 2017 and .NET Framework.
@@ -97,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
  After installing the latest Microsoft Visual C++ Redistributable and Microsoft .NET Framework, you need to restart Windows. Then launch NBA 2K20 to see if this issue persists. If not, congratulations, you’ve resolved this issue! If this issue reappears, try the next fix, below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 4: Use a reduced settings profile for graphics related features
 
  If your PC fails to meet the recommended system requirements for NBA 2K20, you should use a reduced settings profile for graphics related features, because higher settings will increase the workload for your PC, which may even lead to game crash issue.
@@ -104,13 +99,17 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
  Below are the system requirements for NBA 2K20\. If your PC fails to meet the recommended system requirements for NBA 2K20, you should reduce the in-game graphics settings, or upgrade your PC.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/image-904.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
  T_he system requirements information is captured from Steam_
 
  Restart the game to see if this fix works, if not, try the next fix below to modify your graphics card settings.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Modify your graphics card settings
 
@@ -128,21 +127,41 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-1.jpg)
 2. View Control Panel by **Large icons** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3. Select **NVIDIA Control Panel**  to open it.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/nividia-control-panel.jpg)
 4. Click **3D Settings** and select **Adjust image settings with preview** . Then select **Use my preference emphasizing** and **drag the slider to the left** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/nividia-control-panel-main-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Modify AMD graphics card settings
 
 1. On your keyboard, press **the Windows logo key** and **R** at the same time to open the Run dialog. Then type **control**  and press **Enter**  to open Control Panel.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-2.jpg)
 2. View Control Panel by **Large icons** .  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select your **AMD Radeon Settings** to open it.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Go to **Gaming** **\>** **Global Settings** . Then modify the settings the same way you see on the screenshot below.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/AMD-Radeon-Settings.jpg)
 
@@ -150,37 +169,42 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
 1. On your keyboard, press **the Windows logo key** and **R** at the same time to open the Run dialog. Then type **control**  and press **Enter**  to open Control Panel.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/run-dialog-control-panel-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 2. View Control Panel by **Large icons** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-category.jpg)
 3. Select **Intel Graphics Settings**  to open it.  
-![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-Graphics-Settings.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-Graphics-Settings.jpg)
 4. Click **3D** to open the 3D settings.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings.jpg)
 5. Click **Scan** to add the game to the application list.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-2.png)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 6. Modify the settings the same way you see on the screenshot below.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-3.png)
 7. Click **Apply** to save the settings.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Intel-graphics-3D-settings-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Restart NBA 2K20 to see if you can play the game without crashes. If so, congratulations! You’ve resolved this issue; if not, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Fix 6: Verify the game file
 
  NBA 2K20 may not run properly and it may even crash if its game files are corrupted or faulty. So it’s necessary to verify the integrity of the the game files when you’re running into the game crash issues. Here’s how to do it:
@@ -189,15 +213,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/Steam-verify-the-game-file-1.png)
 2. Click **the LOCAL FILES tab** , then click **VERIFY INTEGRITY OF GAME CACHE…** . After that, click **CLOSE** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/Steam-verify-the-game-file-2.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Launch NBA 2K20 again to see if this issue persists. If the game still crashes, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Fix 7: Add NBA 2K20 as an exception to your 3rd party antivirus software
 
  The NBA 2K20 crash issue may also be caused by your third-party antivirus application. Since the third-party antivirus application hooks very deep into your system, it may interfere with the game.
@@ -219,8 +244,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -228,4 +251,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-cost-free-translation-made-easy-with-these-subtitle-downloader-apps/"><u>[New] Cost-Free Translation Made Easy with These Subtitle Downloader Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-often-should-you-upload-youtube-videos-to-get-more-views/"><u>[New] How Often Should You Upload YouTube Videos to Get More Views</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-deciphering-digital-dominance-a-detailed-examination-of-youtube-engagement-metrics/"><u>[Updated] Deciphering Digital Dominance A Detailed Examination of YouTube Engagement Metrics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-the-leading-free-naming-resources-11-must-have-makers/"><u>[Updated] Discover the Leading Free Naming Resources - 11 Must-Have Makers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-correcting-gopros-fish-eye-distortion-techniques/"><u>2024 Approved Correcting GoPro's Fish Eye Distortion Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-dissecting-splitcam-a-video-recorder-standout-analysis/"><u>2024 Approved Dissecting SplitCam A Video Recorder Standout Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/analyzing-the-frequency-of-youtube-payments/"><u>Analyzing the Frequency of YouTube Payments</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-chatgpt-and-google-translate-determining-the-superior-language-tool/"><u>Comparing ChatGPT and Google Translate: Determining the Superior Language Tool</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-insights-into-gimp-an-affordable-and-versatile-option-for-multi-platform-photo-editing/"><u>Expert Insights Into GIMP: An Affordable and Versatile Option for Multi-Platform Photo Editing</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-15-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 15 Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-the-market-with-them-best-video-for-stocks/"><u>In the Market with Them Best Video for Stocks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/maximizing-youtube-exposure-with-ongoing-creative-commons-compliance-for-2024/"><u>Maximizing YouTube Exposure with Ongoing Creative Commons Compliance for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailoring-textual-terminals/"><u>Tailoring Textual Terminals</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Which Pokémon can Evolve with a Moon Stone For Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Effortless Guide to Share Your Videos as Shorts on Computers & Phones"
-date: 2024-08-16T08:08:23.677Z
-updated: 2024-08-17T08:08:23.677Z
+date: 2024-09-26T18:27:12.760Z
+updated: 2024-10-01T19:25:38.443Z
 tags:
   - ai video
   - ai youtube
@@ -76,9 +76,6 @@ For macOS 10.12 or later
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -86,8 +83,12 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -95,9 +96,6 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -105,15 +103,19 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -123,6 +125,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -139,20 +148,21 @@ On the next window, use the **Music** and **Text** buttons from the bottom-left 
 On the **Add details** window, enter a name for the video along with the **#Shorts** tag in the **Create a title** field, tap **Select audience** to select the target audience, and tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,11 +170,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-efficient-strategies-for-saving-youtube-thumbnails-on-any-os/"><u>[New] Efficient Strategies for Saving Youtube Thumbnails on Any OS</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-gaming-gain-graph-finns-financial-flux/"><u>[Updated] 2024 Approved Gaming Gain Graph Finn's Financial Flux</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[Updated] Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhance-video-playback-with-av1-on-youtube/"><u>[Updated] Enhance Video Playback with AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[Updated] Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-groundbreaking-filmmakers-first-work-insight-and-alternate-films/"><u>[Updated] In 2024, Groundbreaking Filmmaker's First Work Insight & Alternate Films</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-youtubes-revenue-model-for-video-clips/"><u>2024 Approved Decoding YouTube's Revenue Model for Video Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-the-power-of-5-editors-beyond-youtubes-boundaries/"><u>2024 Approved Discover the Power of 5 Editors Beyond Youtube's Boundaries</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725289987546-winxvideo-ai/"><u>利用 Winxvideo AI 创建优雅螢幕抓取和在线拍摄，一路前进！</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/comprehensive-fb-messenger-recordings-explained/"><u>Comprehensive FB Messenger Recordings Explained</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/effortless-mp4-flv-transformation-quick-secure-online-video-conversion-at-no-cost/"><u>Effortless MP4-FLV Transformation: Quick, Secure Online Video Conversion at No Cost</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-redmi-12-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi Redmi 12</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-oppo-find-x6-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Oppo Find X6 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/precise-video-queue-a-step-by-step-guide-to-creating-an-effective-playlist-on-youtube/"><u>Precise Video Queue A Step-by-Step Guide to Creating an Effective Playlist on YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/redesigning-the-perception-of-sony-s3700-review-for-2024/"><u>Redesigning the Perception of Sony S3700 Review for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-listening-experience-convert-spotify-to-youtube-with-these-tools/"><u>Streamline Your Listening Experience Convert Spotify to YouTube with These Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-s17t-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S17t Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+</ul></div>
+

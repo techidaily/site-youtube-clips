@@ -1,7 +1,7 @@
 ---
 title: "PC Players Guide: Solving Call of Duty: Warzone Connection Problems During Online Battles"
-date: 2024-08-16T08:08:01.946Z
-updated: 2024-08-17T08:08:01.946Z
+date: 2024-09-24T16:05:00.531Z
+updated: 2024-10-01T19:30:12.433Z
 tags:
   - win11
   - win10
@@ -28,9 +28,6 @@ Many players have reported that the Elden Ring multiplayer can not work. Even af
 5. **[Run Fortect to repair system files](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Update your Windows system](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### Before getting started
 
  When you encounter the Elden Ring multiplayer problem, you can perform checks below first.
@@ -48,31 +45,35 @@ Many players have reported that the Elden Ring multiplayer can not work. Even af
 
  If your internet speed is too low, you can try to[speed up the internet](https://tools.techidaily.com/drivereasy/download/) or just call your ISP.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 1: Optimize Elden Ring’s network settings
 
  If your Elden Ring’s network is not set correctly, you may find your Elden Ring multiplayer cannot work. To solve this problem, you should check your Elden Ring’s network settings and try to optimize it.
 
 1. Open the game menus and click**System** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_14-38-37.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 2. Click the**Network** tab on the top and then it will switch to the Network settings panel.  
-![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_14-25-55-network-settings.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_14-25-55-network-settings.jpg)
 3. Click**Launch Setting** and then click the pointing arrow behind**Launch Setting** to select**Play Online** .  
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_14-39-232222.jpg)
 
  After you optimize the Elden Ring’s network settings, you can check if it works. If not, move to the next method.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 2: Update your network drivers
 
  Through network drivers, your PC can connect to the network. If your network driver is outdated, your network connection may become poor and therefore influencing your gaming experience. Once you find your Elden Ring multiplayer can not work, you can try to update your network drivers to the latest version.
@@ -97,15 +98,23 @@ Here are two ways to update your network drivers.
 1. You can choose to update the driver with a FREE version. Click the**Update** button next to the flagged driver to automatically download the correct version of that driver, then you can manually install it.  
  Or you can click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/update-network-adapter-driver-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  After updating your network drivers, see if your Elden Ring multiplayer works. If not, move to the next method.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Method 3: Enable auto-updates of Elden Ring
 
  Elden Ring updates can optimize game performance and deliver better gaming experience. Many players have reported that updating the game is a fix to solve the Elden Ring error. So you can just try to update your Elden Ring when it does not work.
@@ -115,14 +124,21 @@ Here are two ways to update your network drivers.
 2. Right-click**ELDEN RING** and select**Properties…** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_18-05-493333.jpg)
 3. Click the**UPDATES** tab on the left panel.  
-![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-11_14-14-13-update-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-11_14-14-13-update-1.jpg)
 4. Click**Always keep this game updated** under AUTOMATIC UPDATES. Whenever there is an available update, Steam will update the game automatically.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-11_14-12-34update-3.jpg)
 
@@ -137,8 +153,24 @@ No advertising on the website.
 2. Right-click**ELDEN RING** and select**Properties…** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-10_18-05-493333.jpg)
 3. Click the**Installed Files** and select**Verify integrity of game files** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://www.drivereasy.com/wp-content/uploads/2022/03/Elden-Ring-Verify-integrity-of-game-files.jpg)
 4. Steam will verify the game files. It may take a few minutes. Once the process is complete, click the**Close** button.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. After validating Steam files, check if your Elden Ring multiplayer works normally. If not, move to the next method.
 
 ### Method 5: Run Fortect to repair system files
@@ -150,15 +182,17 @@ No advertising on the website.
 1. **[Download](https://tools.techidaily.com/drivereasy/download/)**  and install Fortect.
 2. Open Fortect and click**Yes** to run a free scan of your PC.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 3. Fortect will scan your computer thoroughly. This may take a few minutes.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 4. Once done, you’ll see a detailed report of all the issues on your PC. To fix them automatically, click**START REPAIR** . This requires you to purchase the full version. But don’t worry. If Fortect doesn’t solve the issue, you can request a refund within 60 days.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/fortect-3.jpg)
 
  The Pro version of Fortect comes with 24/7 technical support. If you need any assistance, please contact Fortect support:  
@@ -166,9 +200,6 @@ No advertising on the website.
 
  After repairing the system files, you can check if the Elden Ring multiplayer works normally.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 6: Update your Windows system
 
  An outdated operating system can cause underlying errors, including your Elden Ring multiplayer not working. If you have tried the above methods, it still does not work. You can try to update your Windows system.
@@ -180,9 +211,6 @@ No advertising on the website.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-07_19-50-12-5.jpg)
 3. Click**Check for updates** under Windows Update. Windows will automatically download and install the available updates.  
 ![](https://images.drivereasy.com/wp-content/uploads/2022/05/2022-05-08_19-48-21-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 4. After you’ve installed the updates, restart your PC and launch Elden Ring multiplayer. Then check if the Elden Ring multiplayer problem has been solved.
 
 #### on Windows 11
@@ -206,8 +234,6 @@ No advertising on the website.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,4 +241,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-audience-alchemy-converting-shorts-to-sensations/"><u>[New] Audience Alchemy Converting Shorts to Sensations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] In 2024, Football Inscriptions Premier FIFA YouTube Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-can-a-brief-subscribe-boost-your-content-viewing-in-2024/"><u>[Updated] Can a Brief Subscribe Boost Your Content Viewing, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-capture-perfection-dive-into-top-12-websites-offering-stock-photos-without-cost-for-2024/"><u>[Updated] Capture Perfection Dive Into Top 12 Websites Offering Stock Photos Without Cost for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-earning-big-on-youtube-shorts-must-haves-opportunities-and-more/"><u>[Updated] Earning Big on YouTube Shorts Must-Haves, Opportunities and More</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-a-successful-online-business-with-youtube-studio/"><u>2024 Approved Crafting a Successful Online Business with Youtube Studio</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>2024 Approved Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-hardware-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>How to identify missing hardware drivers with Windows Device Manager in Windows 11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieving-excellence-in-work-and-online-content/"><u>In 2024, Achieving Excellence in Work and Online Content</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-balancing-visual-elements-with-ideal-video-ratios/"><u>In 2024, Balancing Visual Elements with Ideal Video Ratios</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a79-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Oppo A79 5G Phone without PIN</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mobile-sound-shakers-the-ultimate-playlist/"><u>Mobile Sound Shakers The Ultimate Playlist</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/shield-against-random-youtube-video-plays/"><u>Shield Against Random YouTube Video Plays</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-best-laptops-for-video-editing-you-should-know-for-2024/"><u>The Best Laptops For Video Editing You Should Know for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-the-storportsys-error-and-preventing-windows-1-cuffles/"><u>Troubleshooting the StorPort.sys Error and Preventing Windows 1 Cuffles</u></a></li>
+</ul></div>
 
