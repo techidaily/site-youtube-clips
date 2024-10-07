@@ -1,7 +1,7 @@
 ---
 title: "The Essential Guide to YouTube Thumbnail Crafting (Mac)"
-date: 2024-08-10T05:17:46.984Z
-updated: 2024-08-11T05:17:46.984Z
+date: 2024-10-04T05:52:59.547Z
+updated: 2024-10-07T03:49:43.737Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
 
 # How to Make a YouTube Thumbnail On Mac
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -45,6 +42,13 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
@@ -53,10 +57,14 @@ You can easily create interesting thumbnails for youtube videos using a thumbnai
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -65,30 +73,24 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -101,10 +103,14 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -114,11 +120,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-digital-footprint-crafting-compelling-shorts-thumbnails/"><u>[New] Elevate Your Digital Footprint Crafting Compelling Shorts Thumbnails</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-disclosure-unveiling-all-about-google-podcasts-app/"><u>[New] Full Disclosure Unveiling All About Google Podcasts App</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-from-celluloid-to-screen-adapting-your-vids-for-ig/"><u>[New] In 2024, From Celluloid to Screen Adapting Your Vids for IG</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-explore-the-safest-video-chat-apps-on-both-sides-of-the-market/"><u>[Updated] 2024 Approved Explore the Safest Video Chat Apps on Both Sides of the Market</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-behind-the-scenes-how-ajey-monetizes-content/"><u>[Updated] Behind the Scenes How Ajey Monetizes Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-3d-software-for-dynamic-youtube-intros/"><u>[Updated] Best 3D Software for Dynamic YouTube Intros</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-countdown-magic-discover-10-must-have-androidios-clocks/"><u>2024 Approved Countdown Magic Discover 10 Must-Have Android/iOS Clocks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-delving-into-the-world-of-mukbang-videos/"><u>2024 Approved Delving Into the World of Mukbang Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/capturing-the-perfect-shot-with-built-in-timing-features-in-ios-cameras/"><u>Capturing the Perfect Shot with Built-In Timing Features in iOS Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enjoy-pure-browsing-our-selections-of-7-top-android-adblockers-for-2024/"><u>Enjoy Pure Browsing Our Selections of 7 Top Android AdBlockers for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/get-started-with-kmplayer-kmp-comprehensive-downloads-for-both-desktop-and-mobile-platforms/"><u>Get Started with KMPlayer KMP: Comprehensive Downloads for Both Desktop and Mobile Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-expert-mp4-to-fb-migration-tool/"><u>In 2024, Expert MP4 To-FB Migration Tool</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-cyber-companion-tone-downloads-guide/"><u>In 2024, Ultimate Cyber Companion Tone Downloads Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-turning-youtube-media-on-its-head/"><u>The Art of Turning YouTube Media on Its Head</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-youtubers-guide-to-editing-in-premiere-pro/"><u>The Complete Youtuber's Guide to Editing in Premiere Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-learners-guide-to-best-rated-history-yt-channels-1-10/"><u>The Learner's Guide to Best-Rated History YT Channels #1-10</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-pathway-to-smart-youtube-frames-free-methods-inside/"><u>The Pathway to Smart YouTube Frames (Free Methods Inside!)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-finding-the-most-impactful-keywords-for-your-videos/"><u>The Ultimate Guide to Finding the Most Impactful Keywords for Your Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-get-ahead-in-video-editing-6-cutting-edge-adobe-premiere-pro-tips/"><u>Updated Get Ahead in Video Editing 6 Cutting-Edge Adobe Premiere Pro Tips</u></a></li>
+</ul></div>
+

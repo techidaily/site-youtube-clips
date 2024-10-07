@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-09-27T20:16:47.743Z
-updated: 2024-10-01T16:20:00.421Z
+date: 2024-09-29T16:45:10.084Z
+updated: 2024-10-06T17:38:33.166Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,6 +89,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -103,13 +117,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -120,16 +127,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -140,13 +141,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -156,10 +150,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -177,24 +171,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-how-to-screen-hulu-on-any-system-seamlessly/"><u>[New] 2024 Approved How to Screen Hulu On Any System Seamlessly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/pef-to-png-movavi/"><u>「オンラインで自由にPEF to PNGアップコンバート: Movaviがワクワクさせる手軽な解決方法」</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-a-brief-guide-to-download-install-and-use-ez-grabber/"><u>2024 Approved A Brief Guide to Download, Install, and Use EZ Grabber</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connect-with-millions-an-exploration-of-facebook-twitter-instagram-and-youtubes-influence/"><u>Connect with Millions: An Exploration of Facebook, Twitter, Instagram & YouTube's Influence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/diy-video-setups-perfect-self-portraits-for-youtubers-for-2024/"><u>DIY Video Setups Perfect Self-Portraits for YouTubers for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-hp-deskjet-2600-printer-drivers-on-windows-7-8-or-10-systems/"><u>Download and Install HP Deskjet 2600 Printer Drivers on Windows 7, 8 or 10 Systems</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/einfach-lernen-wie-man-dvd-inhalte-effizient-auf-pc-und-mac-mit-den-neuesten-betriebssystemen-ubertragen-kann/"><u>Einfach Lernen, Wie Man DVD-Inhalte Effizient Auf PC Und Mac Mit Den Neuesten Betriebssystemen Übertragen Kann</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-youtube-music-soundscape-for-2024/"><u>Enhancing YouTube Music Soundscape for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-youtube-video-editing-techniques/"><u>Essential YouTube Video Editing Techniques</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-vidas-capabilities-in-digital-film-production-for-2024/"><u>Exploring Vida's Capabilities in Digital Film Production for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/filtering-through-youtube-talks/"><u>Filtering Through YouTube Talks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/flutter-freedom-for-videos-the-best-tools-to-flv-to-youtubes/"><u>Flutter Freedom for Videos The Best Tools to Flv-to-YouTubes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-eyeballs-to-earnings-the-price-of-popular-videos/"><u>From Eyeballs to Earnings The Price of Popular Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-novice-to-vlogger-the-top-10-editing-techniques/"><u>From Novice to Vlogger The Top 10 Editing Techniques</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-create-animated-facebook-ads-with-high-roi/"><u>How to Create Animated Facebook Ads With High ROI?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-subscriber-commitment-top-strategies-for-keeping-viewers-coming-back-on-youtube/"><u>In 2024, Boosting Subscriber Commitment Top Strategies for Keeping Viewers Coming Back on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-unraveling-drone-technology-mechanisms-and-applications-demystified/"><u>In 2024, Unraveling Drone Technology Mechanisms and Applications Demystified</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-efficient-strategies-for-saving-youtube-thumbnails-on-any-os/"><u>[New] Efficient Strategies for Saving Youtube Thumbnails on Any OS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-evasion-tactics-for-watching-instagram-stories-unattached-to-your-account/"><u>[New] In 2024, Evasion Tactics for Watching Instagram Stories Unattached to Your Account</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweet-titans-social-networks-10-most-shared-posts/"><u>[Updated] 2024 Approved Tweet Titans Social Network’s 10 Most Shared Posts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[Updated] Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-video-acquisition-made-easy-best-android-downloader-apps-ranked/"><u>[Updated] In 2024, Facebook Video Acquisition Made Easy Best Android Downloader Apps Ranked</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-the-power-of-5-editors-beyond-youtubes-boundaries/"><u>2024 Approved Discover the Power of 5 Editors Beyond Youtube's Boundaries</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bing-ai-for-android-users-mastering-text-input-through-smart-assistance/"><u>Bing AI for Android Users: Mastering Text Input Through Smart Assistance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-charm-with-cost-free-visual-aids/"><u>Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-6-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone 6 Passcode not Working?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/los-mejores-8-aplicaciones-de-registro-de-pantalla-para-sistema-operativo-windows/"><u>Los Mejores 8 Aplicaciones De Registro De Pantalla Para Sistema Operativo Windows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2024-09-24T19:10:00.817Z
-updated: 2024-10-01T21:41:36.581Z
+date: 2024-10-02T07:00:40.319Z
+updated: 2024-10-06T18:06:55.584Z
 tags:
   - ai video
   - ai youtube
@@ -70,6 +70,13 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
@@ -84,22 +91,21 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -111,24 +117,24 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -145,22 +151,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-the-most-reliable-royalty-free-audio-libraries/"><u>[New] Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-visibility-popularize-your-youtube-short-videos/"><u>[New] Enhancing Visibility Popularize Your YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-youtube-beauty-mastering-video-color-dynamics/"><u>[New] Enhancing YouTube Beauty Mastering Video Color Dynamics</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-sky-high-results-the-creme-de-la-liste-of-drone-editors/"><u>[New] Sky-High Results The Crème De La Liste of Drone Editors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-advanced-techniques-for-trimming-youtube-footage/"><u>[Updated] Advanced Techniques for Trimming YouTube Footage</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-decoding-youtubes-user-comment-selection-criteria/"><u>[Updated] Decoding YouTube's User-Comment Selection Criteria</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-essential-igtv-picks-for-a-creative-edge/"><u>[Updated] Essential IGTV Picks for a Creative Edge</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-tech-savvy-pilots-guide-to-attentive-drones-for-2024/"><u>[Updated] Tech-Savvy Pilots' Guide to Attentive Drones for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ai-powered-microsoft-edge-real-time-video-translation-now-a-reality/"><u>AI-Powered Microsoft Edge: Real-Time Video Translation Now a Reality!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-installation-download-hps-laserjet-pro-m127fn-printer-drivers-now/"><u>Easy Installation: Download HP's Laserjet Pro M127FN Printer Drivers Now</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Detect and Remove Spyware on Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crucial-info-every-asmr-viewer-should-absorb/"><u>In 2024, Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-honor-80-pro-straight-screen-edition-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Honor 80 Pro Straight Screen Edition to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/master-the-art-of-removing-ps5-saves-safely/"><u>Master the Art of Removing PS5 Saves Safely</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transforming-your-video-files-from-webm-to-mp4-format-using-vlc-player/"><u>Step-by-Step Guide: Transforming Your Video Files From WebM to MP4 Format Using VLC Player</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youth-inspiration-tales-of-overcoming-challenges/"><u>Youth Inspiration Tales of Overcoming Challenges</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-live-thumbnails-the-ultimate-guide/"><u>YouTube Live Thumbnails The Ultimate Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-art-of-dramatic-hdr-portraits-explained/"><u>[Updated] 2024 Approved The Art of Dramatic HDR Portraits Explained</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-techniques-for-screen-capturing-on-various-os-and-gadgets/"><u>[Updated] In 2024, Essential Techniques for Screen Capturing on Various OS & Gadgets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/20-essential-youtube-groups-navigating-stocks-for-2024/"><u>20 Essential YouTube Groups Navigating Stocks for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-12-simple-tricks-to-make-your-youtube-videos-go-viral/"><u>2024 Approved 12 Simple Tricks to Make Your YouTube Videos Go Viral</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-accelerate-your-fb-video-game-the-top-apps-and-plugins-guide/"><u>2024 Approved Accelerate Your FB Video Game The Top Apps & Plugins Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-custom-link-for-youtubes-auto-subscribe/"><u>2024 Approved Building a Custom Link for YouTube's Auto-Subscribe</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/amplify-youtube-performance-rapid-video-rendering-guide/"><u>Amplify YouTube Performance - Rapid Video Rendering Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-capturing-the-web-in-motion-a-compact-list-of-leading-recorders/"><u>In 2024, Capturing the Web in Motion A Compact List of Leading Recorders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-charismatic-charm-of-moving-text-on-screen/"><u>In 2024, Charismatic Charm of Moving Text on Screen</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-capture-tips-for-professional-sound-recording/"><u>In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ensuring-profit-tracking-on-your-channel/"><u>In 2024, Ensuring Profit Tracking on Your Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-and-dominate-with-youtube-studios-advanced-editing-features/"><u>Navigate and Dominate with YouTube Studio's Advanced Editing Features</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-tutorial-how-to-get-and-set-up-intel-network-drivers-for-windows-systems/"><u>Step-by-Step Tutorial: How to Get and Set Up Intel Network Drivers for Windows Systems</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/streamlining-browser-profile-management-boost-productivity-and-personalization-in-arc/"><u>Streamlining Browser Profile Management: Boost Productivity & Personalization in Arc</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/teaching-with-video-effective-editing-methods/"><u>Teaching with Video Effective Editing Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-lowdown-on-making-captivating-short-videos/"><u>The Complete Lowdown on Making Captivating Short Videos</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-mastering-volume-controls-with-adobe-premiere-pro-on-windows-for-2024/"><u>Updated Mastering Volume Controls with Adobe Premiere Pro on Windows for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-itel-a60-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Itel A60 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

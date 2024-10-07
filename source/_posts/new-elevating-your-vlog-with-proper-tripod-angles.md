@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevating Your Vlog with Proper Tripod Angles"
-date: 2024-08-10T05:22:41.295Z
-updated: 2024-08-11T05:22:41.295Z
+date: 2024-10-03T18:20:46.823Z
+updated: 2024-10-07T01:09:42.598Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,6 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 
  This article will explain how to use a tripod and then introduce you to four different types.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -47,9 +44,6 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 
  Ball Heads and Pan/Tilt Heads are the two most common types of tripod heads. Ball Heads allow you to adjust your camera’s position quite a bit before you start shooting. They are not good for adding in camera movements while you are filming, however, because you need to lock them in place. Pan/Tilt heads are great for creating camera movement. Most Pan/Tilt heads have a handle which you can use to make a smooth panning motion.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Why Do You Need a Tripod: Benefits of Using Tripod
 
  Why can't you just hold a camera in your hand while shooting vlog entries for your YouTube channel? Honestly, you can, but the camera may shake a lot and your footage might end up being unusable. Putting a camera on a tripod reduces the probability of camera shake to the minimum and that is just the tip of the iceberg.
@@ -85,8 +79,12 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 **Table-Top Tripods:** are very small and easy to travel with. You can leave one in your camera bag or your glove box. Table-Top Tripods are meant to be set up on top of desks or other stable surfaces and may not be ideal for heavier cameras.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: The 5 Best Tripods For YouTube Vlogging
 
  Even if you know everything there is to know about tripods, the selection process can be daunting. That's why we've shortlisted the top 5 tripods on the market, in an effort to make finding the right tripod for your vlog videos as quick an easy as it can possibly be. Let's have a look.
@@ -95,10 +93,14 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 
 **Price:** $24.99
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/camrah-smartphone-tripod.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  An increasing number of Smartphones features powerful cameras that can record videos at high resolutions. Unfortunately, most iPhones and Android devices are lightweight, which makes it difficult to hold them perfectly still while shooting a video. CamRah Smartphone Tripod offers a perfect solution to this problem because it is easy to pack and you can carry it wherever you go, without needing the extra space.
 
@@ -121,6 +123,13 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
 
  The tripod's rotatable head features a lock button that enables you to fix the camera at a certain position and to shoot a video from an angle you selected. You can't extend the legs on this tripod so shooting high angle shots is not an option.
@@ -140,9 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 
 **Price:** $22.50
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/joby-gorilla-pod.jpg)
 
  This tripod is a superstar in the vlogging community because it is flexible, easy to set up and it fits into a pocket. Joby Gorilla Pod's legs are segmented, so you can freely choose an angle from which you want to shoot, without having to worry about the camera's stability. You can use this tripod on flat and uneven surfaces equally effectively.
@@ -198,10 +204,14 @@ thumbnail: https://www.lifewire.com/thmb/qjRWM7DRMdHfIsseqmuv0-b1A-o=/540x405/fi
 * Weighs 7.9lbs
 * Not the best choice for action and adventure vlogs
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -209,11 +219,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-guide-to-embedding-timestamp-metadata/"><u>[New] A Step-by-Step Guide to Embedding Timestamp Metadata</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhance-videos-at-no-extra-cost-best-editors-ranked-top-9/"><u>[New] Enhance Videos at No Extra Cost Best Editors Ranked (Top 9)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximize-impact-with-professional-360-video-uploads-for-youtube-for-2024/"><u>[New] Maximize Impact with Professional 360° Video Uploads for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-download-harmony-free-music-from-fb-for-2024/"><u>[Updated] Download Harmony Free Music From FB for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-how-to-create-a-youtube-channel-trailer-to-increase-revenue/"><u>[Updated] How to Create a YouTube Channel Trailer to Increase Revenue</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-practical-demonstrations-creating-and-configuring-timer-modules-in-obs/"><u>[Updated] In 2024, Practical Demonstrations Creating and Configuring Timer Modules in OBS</u></a></li>
+<li><a href="https://games-able.techidaily.com/become-the-architect-of-fantasy-building-interactive-adventures-via-chatgpt/"><u>Become the Architect of Fantasy: Building Interactive Adventures via ChatGPT</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/guide-to-bulk-saving-cartoons-on-kimcartoon-easily-download-and-convert-movies-into-various-formats/"><u>Guide to Bulk Saving Cartoons on KIMCartoon - Easily Download and Convert Movies Into Various Formats</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-xiaomi-redmi-k70e-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Xiaomi Redmi K70E</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-uniting-individual-shots-into-a-compelling-image-story/"><u>In 2024, Uniting Individual Shots Into a Compelling Image Story</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/launching-into-creation-equipment-essentials-for-youtubers/"><u>Launching Into Creation Equipment Essentials for YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/trailblazing-trends-the-top-5-tips-for-youtube-triumph/"><u>Trailblazing Trends The Top 5 Tips for YouTube Triumph</u></a></li>
+</ul></div>
+
