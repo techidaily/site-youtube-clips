@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-10-03T01:50:26.151Z
-updated: 2024-10-06T18:07:04.464Z
+date: 2024-10-07T17:06:44.977Z
+updated: 2024-10-12T22:52:57.789Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -75,6 +68,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -111,16 +111,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -133,10 +127,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -149,18 +143,18 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,24 +171,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-building-a-thriving-igtv-following-the-ultimate-guide/"><u>[New] 2024 Approved Building a Thriving IGTV Following The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-income-through-the-science-of-youtube-trailer-creation/"><u>[New] Enhancing Income Through the Science of YouTube Trailer Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lipping-the-script-online-video-reversals/"><u>[New] Flipping the Script Online Video Reversals</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-screen-capture-mastery-windows-edition-free-3-methods/"><u>[Updated] 2024 Approved Screen Capture Mastery Windows Edition (Free, 3 Methods)</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-cinematic-mastery-starts-here-the-best-cameras-of-all-levels/"><u>[Updated] Cinematic Mastery Starts Here The Best Cameras of All Levels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-does-the-sub4sub-strategy-improve-content-consumption/"><u>[Updated] Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-animate-and-make-your-own-effects/"><u>How to Animate and Make Your Own Effects</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-on-your-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock on your Apple iPhone 11 Pro Max and iPad?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-all-you-need-to-know-about-the-youtube-shorts-fund/"><u>In 2024, All You Need to Know About the YouTube Shorts Fund</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-iphone-12-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone 12 Lock Screen</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/jake-pauls-youtube-success-story/"><u>Jake Paul's YouTube Success Story</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/jest-jamboree-the-most-entertaining-youtubers-to-watch/"><u>Jest Jamboree The Most Entertaining YouTubers to Watch</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-video-speed-expert-tips-for-faster-render-and-upload/"><u>Skyrocket Your Video Speed Expert Tips for Faster Render & Upload</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/smartphones-and-beyond-the-leading-vr-headsets/"><u>Smartphones and Beyond The Leading VR Headsets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/synth-symphony-selecting-superior-dj-templates-for-download/"><u>Synth Symphony Selecting Superior DJ Templates for Download</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-google-pixel-8-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Google Pixel 8 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-boost-your-youtube-earnings-with-effective-adsense-use/"><u>[New] Boost Your YouTube Earnings with Effective AdSense Use</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[New] Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-progression-reach-and-maintain-10k-viewer-threshold/"><u>[New] Channel Progression Reach and Maintain 10K Viewer Threshold</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-select-the-superior-a-guide-to-8-outstanding-free-android-mp3-downloaders/"><u>[New] Select the Superior A Guide to 8 Outstanding Free Android MP3 Downloaders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>[Updated] Boosting Your Content Quality Essential Tips for YouTube Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[Updated] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-endless-entertainment-loop-youtube-videos-for-continuous-tv-viewing/"><u>[Updated] Endless Entertainment Loop YouTube Videos for Continuous TV Viewing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-youtube-end-screen-templates-for-content-makers/"><u>[Updated] In 2024, Essential YouTube End Screen Templates for Content Makers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-social-metaverse-titles-top-10-multiplayer-classics/"><u>2024 Approved Social Metaverse Titles Top 10 Multiplayer Classics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-windows-10-ultimate-screen-capture-tool/"><u>2024 Approved Windows 10 Ultimate Screen Capture Tool</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-internet-connections-a-guide-for-steam-on-windows/"><u>Fixing Internet Connections: A Guide for Steam on Windows</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oppo-find-x7-ultra-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Oppo Find X7 Ultra without App | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rallying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>Rallying Towards Partnership Reach the Critical 10K View Target Quickly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>Streamline Video Analytics A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-techniques-to-solve-overwatch-2-not-working-problem/"><u>Top Techniques to Solve 'Overwatch 2 Not Working' Problem</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/youtube-to-mp4-get-free-hd1080p-from-facebook-vids-for-2024/"><u>YouTube-to-MP4 Get Free HD/1080P From Facebook Vids for 2024</u></a></li>
 </ul></div>
 

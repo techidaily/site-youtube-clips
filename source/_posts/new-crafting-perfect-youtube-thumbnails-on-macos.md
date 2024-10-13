@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Perfect YouTube Thumbnails on macOS"
-date: 2024-08-10T05:12:28.499Z
-updated: 2024-08-11T05:12:28.499Z
+date: 2024-10-07T00:26:29.971Z
+updated: 2024-10-12T18:18:33.469Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
 # How to Make a YouTube Thumbnail On Mac
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -35,9 +32,6 @@ However, if you are wondering how that can be achieved then fret no longer for t
 
 ![youtube thumbnail mac](https://images.wondershare.com/filmora/Mac-articles/youtube-thumbnail-mac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## What is a Youtube Thumbnail?
 
 A youtube thumbnail is a smaller version of the video, a snapshot that you choose as a preview of your video. A Thumbnail is extremely important because it is essentially the outer packaging of your video; its front cover.
@@ -56,15 +50,14 @@ You can easily create interesting thumbnails for youtube videos using a thumbnai
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -76,23 +69,35 @@ You can easily choose the frame from the video or use the preview frame button t
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -105,9 +110,6 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -118,11 +120,26 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-the-ultimate-guide-to-streamline-your-podcast-on-google/"><u>[Updated] 2024 Approved The Ultimate Guide to Streamline Your Podcast on Google</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-revitalize-your-shots-10-cost-free-expandable-with-additional-luts/"><u>[Updated] Revitalize Your Shots 10 Cost-Free, Expandable With Additional LUTs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/device-friendly-tutorial-inserting-your-shorts-into-youtube-for-2024/"><u>Device-Friendly Tutorial Inserting Your Shorts Into YouTube for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-devices-on-toms-digital-workshop/"><u>Discover Cutting-Edge Devices on Tom's Digital Workshop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diy-unleashing-creative-power-in-animation-effects/"><u>DIY Unleashing Creative Power in Animation Effects</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/epic-audio-essentials-top-10-for-trending-yt-shorts/"><u>Epic Audio Essentials Top 10 for Trending YT Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/guide-to-youtubes-latest-income-strategies/"><u>Guide to YouTube's Latest Income Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>In 2024, Best 10 YouTube Volume Boosters for Windows, macOS, Android, and iPhone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-honor-magic-5-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Honor Magic 5</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-screen-clipping-on-sonys-ps4-console/"><u>Mastering the Art of Screen Clipping on Sony's PS4 Console</u></a></li>
+<li><a href="https://solve-help.techidaily.com/top-rated-dvd-converter-software-for-pc-and-mac-copy-protected-dvds-to-avi-mp4-mkv-formats/"><u>Top-Rated DVD Converter Software for PC and Mac: Copy Protected DVDs to AVI, MP4, MKV Formats</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-best-webm-to-mp4-converters-for-seamless-video-conversion-for-2024/"><u>Updated Best WebM to MP4 Converters for Seamless Video Conversion for 2024</u></a></li>
+</ul></div>
+

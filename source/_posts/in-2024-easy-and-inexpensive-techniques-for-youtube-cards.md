@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-08-10T05:14:05.867Z
-updated: 2024-08-11T05:14:05.867Z
+date: 2024-10-05T22:44:31.576Z
+updated: 2024-10-13T00:09:27.452Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c2d68683c182adeb644872ae9b6efd92813d48ae8
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/c2d68683c182adeb644872ae9b6efd92813d48ae8
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,11 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,11 +132,24 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-mastering-screen-recordings-powerpoint-edition-for-2024/"><u>[New] Mastering Screen Recordings PowerPoint Edition for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-smooth-setup-seamless-screenshots-on-dell-devices-for-2024/"><u>[New] Smooth Setup Seamless Screenshots on Dell Devices for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-5-browser-screen-recorders-for-2024/"><u>[Updated] Top 5 Browser Screen Recorders for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-choose-your-perfect-wedding-tales-youtubes-finest-8/"><u>2024 Approved Choose Your Perfect Wedding Tales - Youtube's Finest 8</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>2024 Approved Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/balancing-creativity-and-monetization-in-youtube-shorts-for-2024/"><u>Balancing Creativity and Monetization in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channeling-success-emulating-top-video-bloggers-techniques/"><u>Channeling Success Emulating Top Video Bloggers' Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-bring-imagination-to-life-self-animated-artistry/"><u>In 2024, Bring Imagination to Life Self-Animated Artistry</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-full-facetune-experience-from-novice-to-expert-photographer/"><u>In 2024, The Full Facetune Experience From Novice to Expert Photographer</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photographers-ultimate-cloud-companion-infinite-free-and-paid-sky-sanctuaries-for-2024/"><u>Photographer’s Ultimate Cloud Companion Infinite, Free & Paid Sky Sanctuaries for 2024</u></a></li>
+</ul></div>
+

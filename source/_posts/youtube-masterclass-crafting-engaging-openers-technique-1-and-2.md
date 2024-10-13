@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Masterclass  Crafting Engaging Openers (Technique 1 & 2)\""
-date: 2024-09-30T19:18:58.218Z
-updated: 2024-10-07T05:28:50.750Z
+date: 2024-10-11T20:58:51.228Z
+updated: 2024-10-12T21:46:51.034Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ Notice all the existing solid and gradient colors in the **Media** library in th
 
 Alternatively, you can also use your own background image or video clip by selecting the **Project Media** category from the left pane, clicking anywhere inside the **Media** window, and then importing your favorite media file to Filmora. After importing, you can follow the procedure given above to add it to the timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Select and Add Audio/Sound Effect to YouTube Intro
 
 With audio in the YouTube intro, your video will be more recognizable. If you have watched PewDiePie ‘s video, you’ll find that even though he changed the images on the intro often, he keeps the music and sound the same in the intro.
@@ -72,13 +79,6 @@ Also, you need to adjust the position and duration of the title to get a better 
 
 In the intro video, it is recommended to [add your logo](https://tools.techidaily.com/wondershare/filmora/download/) or slogan as well. To add your logo, drag and drop it to the track above the video, and adjust its position and size. For more details, you can check the guide about [How to Add Photo or Video to Watermark](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 4: Add Effects to YouTube Intro
 
 Go to **Effects** tab, choose a category from the top-left pane, and click and drag your preferred effect from the **Effects** library to the timeline.
@@ -88,10 +88,10 @@ Adjust the playback duration by dragging the right handle of the track in the ti
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Export the Intro and Add to Shared Media
@@ -102,16 +102,16 @@ Once exported, back on the main interface, select **Media** again from the stand
 
 ![Filmora9 Shared Media](https://images.wondershare.com/filmora/article-images/shared-media-filmora9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Also, you can save the project, and then revise the element, effects or text to make a YouTube intro vibration.
 
 You can find there are many video tutorials about how to use Filmora to make a YouTube intro, and below is one for you to have a quick glance.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make YouTube Intros with Templates
 
@@ -122,10 +122,10 @@ Besides the pre-programmed templates and effects in Filmora, you can find more v
 You can learn **how to make YouTube intro video in Filmora** with a template downloaded from Filmstock.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 1: Visit Filmora Effects Page on Filmstock
@@ -145,19 +145,19 @@ After downloading, you will see these them in red circles under titles, transiti
 ![Filmstock Dynamic Intro](https://images.wondershare.com/filmora/article-images/dynamic-intro-templates.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Looking for an online solution? Check the list of [Top 10 Free Online YouTube Intro Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Creative Intro Makers Made with Filmora (Video Tutorial Included)
@@ -167,13 +167,6 @@ Both the above processes on **how to make YouTube intro video** are helpful as l
 **Below is a video tutorial from YouTuber Nash. He demonstrated how to create a YouTube Intro with the Sample Colors, Titles, filters and sound effects.**
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### FAQs About YouTube Intro Video Making
 
@@ -191,6 +184,19 @@ To learn **how to make a YouTube intro** is easy, and things can get even simple
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -206,22 +212,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-capturing-stills-in-time-a-guide-to-slow-motion-on-ig/"><u>[New] 2024 Approved Capturing Stills in Time A Guide to Slow Motion on IG</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-integrate-video-content-for-playlist-building/"><u>[New] 2024 Approved Integrate Video Content for Playlist Building</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[New] Direct YouTube Tunes to MP3s Online & Offline Options!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-choice-10-budget-friendly-caption-tools/"><u>[New] Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-computers-notebook-recommendations-for-editors/"><u>[Updated] Cutting-Edge Computers Notebook Recommendations for Editors</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-new-era-vr-game-engines-whats-revolutionary/"><u>[Updated] In 2024, New Era VR Game Engines What's Revolutionary ?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-cascade-of-curiosity-concurrent-video-watching-made-easy/"><u>2024 Approved A Cascade of Curiosity Concurrent Video Watching Made Easy</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-step-by-step-guide-to-crafting-an-effective-youtube-watch-later-playlist/"><u>2024 Approved A Step-by-Step Guide to Crafting an Effective YouTube Watch Later Playlist</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>2024 Approved Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-embrace-the-season-ideal-winter-backgrounds-for-yt/"><u>2024 Approved Embrace the Season Ideal Winter Backgrounds for YT</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-simple-steps-for-iphone-to-pc-file-shift/"><u>2024 Approved Simple Steps for iPhone-to-PC File Shift</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/apple-iphone-15-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 15 Screen Mirroring You Must Know | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/convert-audio-online-mp3-to-youtube-live-upload-guide/"><u>Convert Audio Online MP3 to YouTube Live Upload Guide</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/establishing-a-mac-based-sports-media-outlet/"><u>Establishing a Mac-Based Sports Media Outlet</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-can-you-create-animated-facebook-ads-with-high-roi/"><u>How Can You Create Animated Facebook Ads With High ROI?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prolonged-youtube-visibility-through-continuous-cc-membership/"><u>Prolonged YouTube Visibility Through Continuous CC Membership</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-quest-for-optimal-video-viewing-vlcs-stand-against-mpc-for-2024/"><u>The Quest for Optimal Video Viewing VLC's Stand Against MPC for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-filmmakers-guide-seamless-editing-and-uploading-360-degree-footage-for-youtube/"><u>[New] A Filmmaker's Guide Seamless Editing & Uploading 360-Degree Footage for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-approach-to-crafting-your-video-market-standouts/"><u>[New] A Step-by-Step Approach to Crafting Your Video' Market Standouts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-differentiate-yourself-with-these-critical-yt-shorts-hacks/"><u>[New] Differentiate Yourself with These Critical YT Shorts Hacks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-contents-exposure-with-ongoing-creative-commons-usage/"><u>[Updated] Elevating Your Content's Exposure with Ongoing Creative Commons Usage</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-power-of-precision-crafting-effective-video-titles/"><u>2024 Approved The Power of Precision Crafting Effective Video Titles</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-motorola-moto-g24-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Motorola Moto G24</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratuiti-conversione-online-di-file-wtv-a-formato-mpeg-con-movavi/"><u>Gratuiti: Conversione Online Di File WTV a Formato MPEG Con Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-12-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi 12? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-poco-c50-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Poco C50 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crucial-info-every-asmr-viewer-should-absorb/"><u>In 2024, Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-filmora-13-editor-download-for-windows-and-mac/"><u>In 2024, Free Filmora 13 Editor Download For Windows and Mac</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-guide-to-garmin-vivosmart-4-exploring-body-battery-and-stress-tracking-capabilities/"><u>In-Depth Guide to Garmin Vivosmart 4: Exploring Body Battery & Stress Tracking Capabilities</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-best-mobile-asmr-worldwide/"><u>Navigating the Best Mobile ASMR Worldwide</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/streamline-your-gaming-memories-easy-minecraft-recordings-on-macs/"><u>Streamline Your Gaming Memories Easy Minecraft Recordings on Macs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-journey-of-a-youtube-video-from-creation-to-live-streaming/"><u>The Journey of a YouTube Video From Creation to Live Streaming</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-your-windows-7-audiophile-life-nvidias-way/"><u>Upgrade Your Windows 7 Audiophile Life - Nvidia's Way</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youth-inspiration-tales-of-overcoming-challenges/"><u>Youth Inspiration Tales of Overcoming Challenges</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
 </ul></div>
 

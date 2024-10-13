@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-06T04:56:58.454Z
-updated: 2024-10-06T19:42:55.178Z
+date: 2024-10-09T16:50:31.237Z
+updated: 2024-10-12T20:06:07.406Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,22 +141,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-dissecting-video-ranking-algorithms-on-youtube/"><u>[New] Dissecting Video Ranking Algorithms on YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-boosting-speed-for-periscope-live-video/"><u>[Updated] Boosting Speed for Periscope Live Video</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-budgets-with-effective-youtube-marketing/"><u>2024 Approved Boosting Budgets with Effective YouTube Marketing</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-effortless-webinar-capture-techniques-for-os-xwindows-enthusiasts/"><u>2024 Approved Effortless Webinar Capture Techniques for OS X/Windows Enthusiasts</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-your-course-in-the-realm-of-youtube-shorts-for-2024/"><u>Charting Your Course in the Realm of YouTube Shorts for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/efficient-message-sending-techniques-to-reduce-data-consumption-in-texts/"><u>Efficient Message Sending: Techniques to Reduce Data Consumption in Texts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps-for-2024/"><u>Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-expert-tips-for-quality-video-with-nvidia/"><u>In 2024, Expert Tips for Quality Video with NVIDIA</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-nokia-c12-plus-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Nokia C12 Plus Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-ratio-reference-for-youtube-videos-and-ads/"><u>The Ultimate Ratio Reference for YouTube Videos & Ads</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tips-for-superior-sound-recordings-without-a-microphone/"><u>Tips for Superior Sound Recordings Without a Microphone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-15-funny-youtube-channels-to-watch-when-youre-bored/"><u>Top 15 Funny YouTube Channels to Watch When You're Bored</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-ranked-h265-to-mp4-converter-effortless-hevc-to-h264-video-format-change/"><u>Top-Ranked H.265 To MP4 Converter: Effortless HEVC to H.264 Video Format Change</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-design-channels-get-free-visuals-now/"><u>[New] Design Channels - Get Free Visuals Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-new-heights-top-10-adventure-channels/"><u>[New] Discover New Heights Top 10 Adventure Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-pathway-to-instagrams-elite-circle-expanding-your-audience-with-key-tips-for-2024/"><u>[Updated] The Pathway to Instagram's Elite Circle Expanding Your Audience with Key Tips for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-convert-waters-10-tips-for-youtube-to-mp4mpeg/"><u>2024 Approved Navigating the Convert Waters 10 Tips for YouTube to MP4/MPEG</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-troubleshoot-black-screen-woes-in-youtube-playback/"><u>2024 Approved Troubleshoot Black Screen Woes in Youtube Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/re-the-essence-of-your-favorite-series-with-these-extractors/"><u>Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-covert-content-creation-how-to-invisibly-alter-videos/"><u>In 2024, Covert Content Creation How to Invisibly Alter Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-engagement-with-these-10-premier-youtube-seo-instruments/"><u>In 2024, Elevate Engagement with These 10 Premier YouTube SEO Instruments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/navigating-keyword-strategies-for-youtube-success-for-2024/"><u>Navigating Keyword Strategies for YouTube Success for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-madden-nfl-22s-load-screen-delays-quick-fixes-and-expert-advice/"><u>Overcome Madden NFL 22'S Load Screen Delays - Quick Fixes and Expert Advice</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-fix-for-broken-headphone-connection-in-windows-10-devices/"><u>The Ultimate Fix for Broken Headphone Connection in Windows 10 Devices</u></a></li>
 </ul></div>
 

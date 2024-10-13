@@ -1,7 +1,7 @@
 ---
 title: "The Essential Thumbnail Strategy for Top Video Visibility"
-date: 2024-10-05T20:02:18.066Z
-updated: 2024-10-07T06:00:50.363Z
+date: 2024-10-07T22:38:29.670Z
+updated: 2024-10-12T19:02:26.469Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,13 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### #1. Ham It Up (Take Your Reaction Photo)
 
 Take a high-quality photograph of yourself conveying strong emotion. Generally, you want to look extremely excited, disgusted, angry, or shocked depending on the theme of the video.
@@ -99,13 +106,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 #### #4. Add Extras (Text, Emojis, etc.)
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Upload a YouTube Thumbnail
 
@@ -137,13 +137,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -183,6 +176,19 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -192,10 +198,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -204,14 +210,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -228,19 +234,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-rising-through-rhythm-how-to-submit-music-to-youtube/"><u>[New] 2024 Approved Rising Through Rhythm How to Submit Music to YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-visuals-hub-icon-and-banner-crafting-tips/"><u>[New] Channel Visuals Hub Icon & Banner Crafting Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-demystifying-youtube-shorts-template-design-principles/"><u>[New] Demystifying YouTube Shorts Template Design Principles</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-expert-advice-on-flawless-ipad-screen-captures/"><u>[Updated] Expert Advice on Flawless iPad Screen Captures</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-hot-off-the-tiktok-menu-top-dishes-and-challenges/"><u>[Updated] Hot Off the TikTok Menu Top Dishes & Challenges</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-mastering-media-making-filmoras-edge-over-democreator/"><u>[Updated] In 2024, Mastering Media Making Filmora's Edge Over Democreator</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-say-no-to-unsolicited-content-on-insta/"><u>[Updated] In 2024, Say No to Unsolicited Content on Insta</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-ad-revenue-and-affiliate-opportunities-on-youtube/"><u>Deciphering Ad Revenue and Affiliate Opportunities on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/decoding-the-mechanics-of-subscriber-tracking/"><u>Decoding the Mechanics of Subscriber Tracking</u></a></li>
-<li><a href="https://windows11.techidaily.com/essential-tips-to-resolve-powerpoint-print-issues-on-windows-os/"><u>Essential Tips to Resolve PowerPoint Print Issues on Windows OS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>In 2024, Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pioneering-the-perfect-playlist-for-youtube-music-enthusiasts/"><u>Pioneering the Perfect Playlist for YouTube Music Enthusiasts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-on-repairing-your-pc-with-help-from-chatgpt/"><u>Step-by-Step Guide on Repairing Your PC with Help From ChatGPT</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-fixes-how-to-restore-voice-communication-in-call-of-duty-modern-warfare/"><u>Troubleshooting Fixes: How to Restore Voice Communication in Call of Duty Modern Warfare</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-banner-size-and-channel-art-dimension-the-ultimate-guide/"><u>[New] Best YouTube Banner Size and Channel Art Dimension (The Ultimate Guide)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-beyondsharex-evaluating-the-best-options/"><u>[New] BeyondShareX - Evaluating the Best Options</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-diverse-designs-at-your-fingertips-from-these-6-websites/"><u>[New] Diverse Designs at Your Fingertips From These 6 Websites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-brand-consistency-in-action-inserting-logoswatermarks-into-videos/"><u>[Updated] 2024 Approved Brand Consistency in Action Inserting Logos/Watermarks Into Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-ultimate-guide-to-zoom-engagement-unlocking-communication-success/"><u>[Updated] The Ultimate Guide to Zoom Engagement Unlocking Communication Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-examining-the-impact-of-stabilized-photos-in-adobe/"><u>2024 Approved Examining the Impact of Stabilized Photos in Adobe</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/6-solutions-why-your-pc-doesnt-recognize-your-steam-vr-setup/"><u>6 Solutions: Why Your PC Doesn't Recognize Your Steam VR Setup</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>In 2024, Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-itel-p55-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Itel P55? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mending-service-installation-errors-in-inf-file/"><u>Mending Service Installation Errors in INF File</u></a></li>
 </ul></div>
 

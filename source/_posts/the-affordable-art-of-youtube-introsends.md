@@ -1,7 +1,7 @@
 ---
 title: "The Affordable Art of YouTube Intros/Ends"
-date: 2024-08-10T05:12:55.841Z
-updated: 2024-08-11T05:12:55.841Z
+date: 2024-10-11T23:27:03.747Z
+updated: 2024-10-12T22:37:07.984Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbc
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/8873a1de6b737b1bdaf613e6b23cabb06e207ebbc
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,11 +132,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/pause-button-interpreting-instagrams-advocacy-for-social-media-sabbaths/"><u>'Pause Button': Interpreting Instagram's Advocacy for Social Media Sabbaths</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-captivating-online-media-summaries/"><u>[New] 2024 Approved Building Captivating Online Media Summaries</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-hot-tiktok-gadgets-and-goodies-available-at-amazon/"><u>[New] In 2024, Hot TikTok Gadgets & Goodies Available at Amazon</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-pros-guide-to-exceptional-cameras-and-lenses-in-4k/"><u>[Updated] The Pro's Guide to Exceptional Cameras and Lenses in 4K</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-hidden-threat-illegitimate-support-on-digital-platforms/"><u>2024 Approved The Hidden Threat Illegitimate Support on Digital Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/downloading-youtubes-iconic-icons-via-web-windowsmac-methods-for-2024/"><u>Downloading YouTube's Iconic Icons via Web, Windows/Mac Methods for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make-in-2024/"><u>Earning Big on Youtube Shorts What You Need & How Much Can You Make, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earnings-demystified-youtube-shorts-revenue-split-explained-for-2024/"><u>Earnings Demystified YouTube Shorts Revenue Split Explained for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/easy-ways-to-add-music-to-imovie-from-youtube-for-2024/"><u>Easy Ways to Add Music to iMovie From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-engagement-finding-your-youtube-segment/"><u>Elevating Engagement Finding Your YouTube Segment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques/"><u>Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-force-youtube-cc-to-stay-on-and-get-more-views/"><u>How to Force YouTube CC to Stay On and Get More Views</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/master-video-conversion-for-portable-gaming-systems-pspps3-compatible-solutions/"><u>Master Video Conversion for Portable Gaming Systems - PSP/PS3 Compatible Solutions</u></a></li>
+<li><a href="https://win11.techidaily.com/tips-to-secure-windows-sound-level-adjustments/"><u>Tips to Secure Windows Sound Level Adjustments</u></a></li>
+</ul></div>
+

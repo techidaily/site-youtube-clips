@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Roadmap to YouTube Traffic Success"
-date: 2024-10-02T16:09:46.050Z
-updated: 2024-10-06T22:27:10.717Z
+date: 2024-10-06T23:20:55.700Z
+updated: 2024-10-12T20:15:37.794Z
 tags:
   - ai video
   - ai youtube
@@ -157,10 +157,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Make The Best Darn Video Possible
@@ -198,10 +198,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Who knows, who will respond.
@@ -214,6 +214,13 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -221,13 +228,6 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -242,13 +242,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -278,6 +271,13 @@ Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -293,24 +293,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-best-writers-workshop-online/"><u>[New] Best Writer’s Workshop Online</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cut-beyond-youtube-unveiling-the-top-5-video-editor-options/"><u>[New] Cut Beyond Youtube Unveiling the Top 5 Video Editor Options</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-top-ten-unforgettable-youtube-vr-videos/"><u>[New] Discover Top Ten Unforgettable YouTube VR Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-preserving-sims-4-moments-effective-strategies-for-recording-playthroughs/"><u>[Updated] 2024 Approved Preserving Sims 4 Moments Effective Strategies for Recording Playthroughs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-dissecting-the-livestream-battlefield-twitch-vs-youtube-for-2024/"><u>[Updated] Dissecting the Livestream Battlefield Twitch vs YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-convert-mobile-social-media-watch-to-home-tv/"><u>[Updated] In 2024, Convert Mobile Social Media Watch to Home TV</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-breakdown-of-popular-elements-in-youtube-shorts/"><u>2024 Approved Breakdown of Popular Elements in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-branding-101-brainstorm-techniques/"><u>2024 Approved Channel Branding 101 Brainstorm Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>2024 Approved Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-stepwise-approach-to-designing-powerful-edu-vids-on-social-media-for-2024/"><u>A Stepwise Approach to Designing Powerful Edu-Vids on Social Media for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-footage-to-frame-crafting-youtube-thumbnails-on-mobile-devices/"><u>From Footage to Frame Crafting YouTube Thumbnails on Mobile Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/o-convert-youtube-to-mp4-safely-for-2024/"><u>How to Convert YouTube to MP4 Safely for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-find-deleted-phone-numbers-on-android/"><u>How to Find Deleted Phone Numbers on Android</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-arctic-accolades-top-athletes-and-events/"><u>In 2024, Arctic Accolades Top Athletes & Events</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audiovisual-alchemy-formulating-your-youtube-playlist/"><u>In 2024, Audiovisual Alchemy Formulating Your YouTube Playlist</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-the-earnings-algorithm-of-tseries-online-channel/"><u>In 2024, Decoding the Earnings Algorithm of TSeries Online Channel</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-infinix-zero-5g-2023-turbo-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Infinix Zero 5G 2023 Turbo Phone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastery-in-purchasing-pristine-stock-images-for-2024/"><u>Mastery in Purchasing Pristine Stock Images for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tier-performance-evaluation-of-the-huion-inspiroy-g10t-pro-drawing-pad-for-digital-artists/"><u>Top-Tier Performance Evaluation of the Huion Inspiroy G10T Pro Drawing Pad for Digital Artists</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-canva-creative-editor-exploration/"><u>[New] Canva Creative Editor Exploration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-best-video-apps-review-youtube-iphones-and-androids/"><u>[Updated] Best Video Apps Review YouTube iPhones & Androids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>Designing Youtube Ads That Grab Attention A Compreeher Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dish-on-titles-creative-concepts-for-cookery-vids/"><u>Dish on Titles Creative Concepts for Cookery Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-storytelling-free-soundtrack-options-available/"><u>Elevate Storytelling - Free Soundtrack Options Available</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enrich-viewers-experience-a-comprehensive-guide-to-youtube-end-screens/"><u>Enrich Viewers' Experience A Comprehensive Guide to Youtube End Screens</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/entering-the-fullscreen-realm-choosing-a-cms-for-2024/"><u>Entering the Fullscreen Realm Choosing a CMS for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/get-premium-minecraft-channel-graphics/"><u>Get Premium Minecraft Channel Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-adding-visual-time-indicators-to-your-youtube-links/"><u>In 2024, Adding Visual Time Indicators to Your YouTube Links</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-advanced-techniques-using-jump-cuts-effectively/"><u>In 2024, Advanced Techniques Using Jump Cuts Effectively</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>In 2024, Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-reddits-hidden-gems-6-tactics-that-transform-beginners-into-titans/"><u>In 2024, Reddit's Hidden Gems 6 Tactics That Transform Beginners Into Titans</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-stepwise-approach-to-implementing-youtube-cards-and-annotations/"><u>In 2024, Stepwise Approach to Implementing YouTube Cards & Annotations</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/microsoft-reveals-enhanced-surface-pro-10-and-laptop-similar-seo-titles/"><u>Microsoft Reveals Enhanced Surface Pro 10 & Laptop # Similar SEO Titles</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/playtime-pathways-video-games-resembling-gta-v/"><u>Playtime Pathways Video Games Resembling GTA V</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-5-hd-cameras-for-big-game-capture/"><u>Top 5 HD Cameras for Big Game Capture</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ultimate-tutorial-how-to-enhance-drone-videos-with-background-music/"><u>Ultimate Tutorial: How To Enhance Drone Videos with Background Music</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/wma-to-mp32024/"><u>WMA to MP3変換簡単方法：2024年リリースの最適ソフトウェア選びと使い方</u></a></li>
 </ul></div>
 

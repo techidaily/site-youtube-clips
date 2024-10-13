@@ -1,7 +1,7 @@
 ---
 title: "The Power of Politeness in Growing Your Audience"
-date: 2024-10-04T20:23:25.519Z
-updated: 2024-10-06T23:12:15.054Z
+date: 2024-10-09T23:51:16.736Z
+updated: 2024-10-12T19:26:44.720Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -60,6 +60,13 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
 
@@ -74,10 +81,10 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -91,22 +98,15 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,17 +123,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-copycat-cinema-steps-for-satirical-video-making/"><u>[New] Copycat Cinema Steps for Satirical Video Making</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-basic-techniques-for-effective-color-grading-in-ps/"><u>2024 Approved Basic Techniques for Effective Color Grading in PS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-engaging-video-teasers-for-youtube-success/"><u>2024 Approved Crafting Engaging Video Teasers for YouTube Success</u></a></li>
-<li><a href="https://program-issues.techidaily.com/assassins-creed-valhalla-resolved-pc-performance-hiccups-and-smooth-playback-tips/"><u>Assassin's Creed Valhalla - Resolved PC Performance Hiccups and Smooth Playback Tips</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-tips-for-fixing-a-non-functional-ps4-headset-mic/"><u>Comprehensive Tips for Fixing a Non-Functional PS4 Headset Mic</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/custom-youtube-video-speed-control-desktopmobile/"><u>Custom YouTube Video Speed Control (Desktop/Mobile)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-auditory-interface-excellence-for-podcasters/"><u>In 2024, Auditory Interface Excellence For Podcasters</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/mastering-communication-in-cs2-troubleshooting-and-correcting-microphone-issues/"><u>Mastering Communication in CS2: Troubleshooting and Correcting Microphone Issues</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/monetization-mastery-guide-choosing-the-right-platform/"><u>Monetization Mastery Guide Choosing the Right Platform</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prime-top-10-free-transcript-harvesters-for-videos/"><u>Prime Top 10 Free Transcript Harvesters for Videos</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-troubleshooting-when-bootmgr-goes-missing/"><u>Step-by-Step Troubleshooting: When Bootmgr Goes Missing</u></a></li>
-<li><a href="https://discover-community.techidaily.com/top-reliable-kodi-repository-sources-for-optimal-performance-on-versions-18-and-19-including-premium-addons/"><u>Top Reliable Kodi Repository Sources for Optimal Performance on Versions 18 & 19, Including Premium Addons</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-innovative-image-caption-manipulation/"><u>[New] 2024 Approved Innovative Image Caption Manipulation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-quintessential-guide-to-selecting-video-apps-for-reels/"><u>[New] 2024 Approved The Quintessential Guide to Selecting Video Apps for Reels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>[New] Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-size-your-videos-youtubes-best-practices-unveiled-for-2024/"><u>[New] How to Size Your Videos YouTube's Best Practices Unveiled for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-professional-photographers-top-10-best-4k-cameras-for-2024/"><u>[New] Professional Photographers' Top 10 Best 4K Cameras for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-poco-f5-5g-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Poco F5 5G by Name | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/expertly-curated-9-best-video-conferencing-software-for-smartphones-and-tablets/"><u>Expertly Curated 9 Best Video Conferencing Software for Smartphones & Tablets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ensuring-legitimacy-of-your-youtube-sign-in/"><u>In 2024, Ensuring Legitimacy of Your YouTube Sign-In</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-strategies-for-viewing-your-subscribers/"><u>In 2024, Essential Strategies for Viewing Your Subscribers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-brand-visuals-the-ultimate-creation-guide/"><u>Mastering YouTube Brand Visuals The Ultimate Creation Guide</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-filmora-watermark-how-to-bypass-or-remove-it-permanently-for-2024/"><u>New Filmora Watermark How to Bypass or Remove It Permanently for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pivotal-processes-for-privacy-preserving-photography/"><u>Pivotal Processes for Privacy-Preserving Photography</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-blueprint-for-producing-high-impact-youtube-videos/"><u>The Blueprint for Producing High-Impact YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/troubleshooting-lag-in-nier-blue-ruin-top-solutions-explored/"><u>Troubleshooting Lag in Nier: Blue Ruin - Top Solutions Explored</u></a></li>
 </ul></div>
 

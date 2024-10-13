@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Video Setup Must-Haves\""
-date: 2024-10-03T00:52:13.423Z
-updated: 2024-10-06T20:34:24.485Z
+date: 2024-10-09T23:57:21.487Z
+updated: 2024-10-12T19:43:02.244Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,13 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -82,16 +89,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -102,30 +109,29 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,24 +149,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-boost-call-quality-and-creativity-learn-to-apply-filters-in-zoom/"><u>[New] 2024 Approved Boost Call Quality & Creativity Learn to Apply Filters in Zoom</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-name-inspiration-strategies-for-success/"><u>[New] Channel Name Inspiration Strategies for Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] Creating a Multimedia Guide Adding Videos to Text Articles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-finest-cameras-for-filming-inspiring-music-videos-4k-hd-next-year/"><u>[New] The Finest Cameras for Filming Inspiring Music Videos (4K HD) Next Year</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boosting-your-youtube-earnings-strategies-for-monetizing-short-videos/"><u>[Updated] Boosting Your YouTube Earnings Strategies for Monetizing Short Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-laugh-out-loud-meme-making-techniques/"><u>[Updated] Laugh Out Loud Meme-Making Techniques</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-spark-creativity-get-to-know-windows-11s-movie-maker-app/"><u>2024 Approved Spark Creativity Get to Know Windows 11'S Movie Maker App</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-smart-filmmakers-guide-to-instagram-videography-size/"><u>2024 Approved The Smart Filmmaker’s Guide to Instagram Videography Size</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/7-free-apps-to-get-emojis-on-android-and-iphone/"><u>7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/enjoy-whole-audio-on-twitch-addressing-muted-segments-now-for-2024/"><u>Enjoy Whole Audio on Twitch Addressing Muted Segments Now for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-eac-error-message-steps-to-install-easy-anti-cheat/"><u>Fixing the EAC Error Message: Steps to Install Easy Anti-Cheat</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-meme-makers-playbook-for-widespread-impact/"><u>In 2024, Meme Makers' Playbook for Widespread Impact</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-the-build-toms-authoritative-hardware-wisdom/"><u>Mastering the Build: Tom's Authoritative Hardware Wisdom</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/professional-tools-to-elevate-your-video-openings/"><u>Professional Tools to Elevate Your Video Openings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-android-users-discover-the-top-youtube-video-clips/"><u>[New] Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-customize-your-youtube-view-adjust-speed-settings/"><u>[New] Customize Your YouTube View Adjust Speed Settings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-build-your-personal-brand-on-youtube/"><u>[Updated] 2024 Approved How to Build Your Personal Brand on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-webcam-visuals-uncluttered-remove-obscurants/"><u>[Updated] 2024 Approved Webcam Visuals Uncluttered Remove Obscurants</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-success-with-these-15-youtube-introduction-plans/"><u>[Updated] Crafting Success with These 15 YouTube Introduction Plans</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-complete-insight-into-sierras-icloud-file-management/"><u>2024 Approved Complete Insight Into Sierra’s iCloud File Management</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-your-online-presence-conquer-10-key-smm-steps-today/"><u>Elevate Your Online Presence Conquer 10 Key SMM Steps Today</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475832881-fix-your-iphones-qr-code-reader-top-10-effective-tricks/"><u>Fix Your iPhone's QR Code Reader: Top 10 Effective Tricks!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-dell-wd19-hard-drive-drivers-here/"><u>Get the Latest Dell WD19 Hard Drive Drivers Here!</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/gratis-und-effizientes-cloud-backup-mit-aomei-backupper/"><u>Gratis Und Effizientes Cloud-Backup Mit AOMEI Backupper</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-creating-and-sharing-voice-memos-on-your-iphone-device/"><u>Guide to Creating and Sharing Voice Memos on Your iPhone Device</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/locating-your-own-melodic-treasure-trove-in-youtubes-vault/"><u>Locating Your Own Melodic Treasure Trove in YouTube's Vault</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-pick-the-most-versatile-gif-software/"><u>Top Pick The Most Versatile GIF Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/trick-automated-audiences-into-authentic-engagement/"><u>Trick Automated Audiences Into Authentic Engagement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-video-shooting-equipment-list-what-you-need-to-start-recording-videos/"><u>YouTube Video Shooting Equipment List What You Need to Start Recording Videos</u></a></li>
 </ul></div>
 

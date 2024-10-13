@@ -1,7 +1,7 @@
 ---
 title: "Snappy Fortnite Visuals in No Time"
-date: 2024-08-10T05:12:58.113Z
-updated: 2024-08-11T05:12:58.113Z
+date: 2024-10-10T16:28:05.351Z
+updated: 2024-10-12T22:33:02.656Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/00e1438c22966a36d893eecd9042143ec66d34204
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -35,10 +32,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
@@ -71,23 +64,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
@@ -96,32 +72,20 @@ Key features:
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 #### Conclusion
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -130,11 +94,40 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-howtos.techidaily.com/solved-radeon-settings-are-currently-not-available/"><u>[SOLVED] Radeon Settings Are Currently Not Available</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>2024 Approved 7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-youtube-success-by-uploading-from-twitch-streams/"><u>2024 Approved Crafting YouTube Success by Uploading From Twitch Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cultivating-cash-by-critiquing-consumer-commodities-online/"><u>2024 Approved Cultivating Cash by Critiquing Consumer Commodities Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-engagement-top-12-tactics-for-youtube-success/"><u>2024 Approved Enhance Engagement Top 12 Tactics for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>2024 Approved Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-dynamo-craft-your-content-empire-for-2024/"><u>Channel Dynamo Craft Your Content Empire for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clip-conquest-top-tags-for-dominating-video-trends-on-social-media/"><u>Clip Conquest Top Tags for Dominating Video Trends on Social Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/commanding-the-screen-top-10-women-gamers-yt/"><u>Commanding the Screen Top 10 Women Gamers YT</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/corsair-h115i-and-windows-8-11-overcoming-common-driver-challenges/"><u>Corsair H115i and Windows 8-11: Overcoming Common Driver Challenges</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-resolve-compiling-shaders-hiccup-in-call-of-duty-black-ops-cold-war/"><u>How to Resolve 'Compiling Shaders' Hiccup in Call of Duty: Black Ops Cold War</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-lava-blaze-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Lava Blaze Pro 5G Phones with/without a PC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-aerial-photography-with-dji-mavic-air-2s-a-detailed-expert-assessment/"><u>Mastering Aerial Photography with DJI Mavic Air 2S: A Detailed Expert Assessment</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/methodes-pour-recuperer-des-fichiers-effaces-sur-lenregistreur-vocale-olympus/"><u>Méthodes Pour Récupérer Des Fichiers Effacés Sur L'Enregistreur Vocale Olympus</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-gaming-fixes-how-to-address-crashing-relink-features-in-granblue-fantasy/"><u>PC Gaming Fixes: How to Address Crashing ReLink Features in Granblue Fantasy</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/pioneers-of-possibilities-the-leading-6-in-artistic-realms-for-2024/"><u>Pioneers of Possibilities The Leading 6 in Artistic Realms for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-excessive-disk-space-consumption-by-microsoft-compatibility-telemetry-on-windows-11/"><u>Resolving Excessive Disk Space Consumption by Microsoft Compatibility Telemetry on Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-premium-membership-on-linkedin-wins-over-free-access/"><u>Why Premium Membership on LinkedIn Wins Over Free Access</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

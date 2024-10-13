@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Channel Surge Strategy  Using YouTube Outros for Rapid Expansion\""
-date: 2024-08-10T05:14:03.167Z
-updated: 2024-08-11T05:14:03.167Z
+date: 2024-10-10T22:28:03.058Z
+updated: 2024-10-12T19:32:23.544Z
 tags:
   - ai video
   - ai youtube
@@ -35,9 +35,6 @@ A good outro will prompt viewers to keep watching related content from you inste
 3. [How to Use YouTube’s End Screen Feature](#howto)
 4. [How YouTube Outros/End Screens Can Help You Grow on YouTube](#grow)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Part 1: YouTube Outro Basics
 
 _From the video above we can see that it features video recommendations and a prominent subscribe button._
@@ -58,9 +55,6 @@ You may also want to include **social icons and handles** for your accounts on s
 
 Here are 4 sites where you can download templates for YouTube Outros:
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tube Arsenal Outro template](https://images.wondershare.com/filmora/article-images/tubearsenal-outro-template.jpg)
 
 **Tube Arsenal:** this site has a good selection of customizable outros with moving backgrounds. On the Tube Arsenal site, before you download, you can adjust the colors and text included in your outro and even load in your own logo.
@@ -71,11 +65,25 @@ Outros on Tube Arsenal cost $9 for 720P or $13 for 1080p.
 
 ![Outro Maker Templates](https://images.wondershare.com/filmora/article-images/outro-maker-template.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Outro Maker:** you can get animated end screens/outros from Outro Maker for $2.99 a month (or, if you just need one outro, you can probably finish it during your 7-day free trial).
 
 Outro Maker uses the content already uploaded onto your channel to create your outro, so you will need to link the service with your channel.
 
 ![Biteable Outro Template](https://images.wondershare.com/filmora/article-images/biteable-outro-maker-template.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Biteable:** the templates you can customize on Biteable are not specifically designed to be YouTube Outros and will not have slots for your end screen elements. The videos start out a lot longer than you’ll want for an end screen (an end screen can’t last longer than 20 seconds), but you can shorten them by deleting all the ‘scenes’ you don’t need and keeping just the one or two you want.
 
@@ -83,10 +91,6 @@ The clips you can get from Biteable look great, and their process for changing t
 
 You can create 5 free projects every month with Biteable, but you’ll need to upgrade to their paid service to download them. It’s $30 for one month.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Velosofy Outro Template](https://images.wondershare.com/filmora/article-images/velosofy-outro-maker-template.jpg)
 
 **Velosofy:** this site has a decent selection of templates you can download for free. However, the downloads are all project files for programs like Adobe Photoshop or After Effects. You’ll need to have the program that goes with your download in order to customize your outro.
@@ -98,8 +102,12 @@ Besides downloading outro templates from the website, you can also create it wit
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Use YouTube’s End Screen Feature
 
 Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
@@ -113,9 +121,6 @@ Here’s how you add an End Screen:
 5. Drag the elements to where you want them and adjust the timing using the timeline.
 6. Click **Save** when you’re done.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
 
 One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
@@ -136,10 +141,20 @@ You don’t have to change every screen individually, YouTube lets you link to y
 
 Are you using a YouTube outro? What elements do you include, and how do you think it’s helped the growth of your channel?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,11 +162,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-driving-engagement-and-growth-the-role-of-brand-in-youtube-success-for-2024/"><u>[New] Driving Engagement and Growth The Role of Brand in YouTube Success for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-best-of-the-brainless-top-zombie-game-sweepstakes/"><u>[New] The Best of the Brainless Top Zombie Game Sweepstakes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-delving-into-historical-masterpieces-without-copyrights/"><u>[Updated] Delving Into Historical Masterpieces without Copyrights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/10-strategies-for-educators-starting-their-own-youtube-series/"><u>10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-video-discoverability-with-strategic-tagging-on-youtube/"><u>2024 Approved Elevating Video Discoverability with Strategic Tagging on Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-ultimate-list-of-youtube-production-tools-for-2024/"><u>Beginner's Ultimate List of YouTube Production Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/characters-that-convert-ideal-story-strategies/"><u>Characters That Convert Ideal Story Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-does-atandt-handle-international-call-roaming/"><u>How Does AT&T Handle International Call Roaming?</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-future-in-your-hands-choosing-a-premium-360-camera-today/"><u>In 2024, Future in Your Hands Choosing a Premium 360 Camera Today</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-cautionary-tale-of-artificial-intelligence-in-therapy-top-9-dangers-to-consider/"><u>The Cautionary Tale of Artificial Intelligence in Therapy: Top 9 Dangers to Consider</u></a></li>
+</ul></div>
+

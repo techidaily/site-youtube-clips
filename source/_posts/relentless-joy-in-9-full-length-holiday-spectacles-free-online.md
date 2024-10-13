@@ -1,7 +1,7 @@
 ---
 title: "\"Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-10-03T01:50:53.729Z
-updated: 2024-10-07T04:36:12.287Z
+date: 2024-10-07T21:12:49.074Z
+updated: 2024-10-12T21:11:50.592Z
 tags:
   - ai video
   - ai youtube
@@ -38,65 +38,53 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -119,17 +107,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-video-watchlist-activate-av1-on-youtube/"><u>[New] 2024 Approved Elevate Your Video Watchlist - Activate AV1 on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-analyzing-the-post-upload-process-in-youtubes-ecosystem/"><u>[New] Analyzing the Post-Upload Process in YouTube's Ecosystem</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-direct-entry-into-your-channel-simplifying-the-follow-button-creation/"><u>[New] Direct Entry Into Your Channel Simplifying the Follow Button Creation</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-digital-cutting-edge-streamlined-strategies-for-editing-videos-on-vimeo/"><u>[Updated] 2024 Approved Digital Cutting Edge Streamlined Strategies for Editing Videos on Vimeo</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-efficiently-delete-unwanted-video-feedback/"><u>[Updated] How to Efficiently Delete Unwanted Video Feedback</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-when-is-the-best-time-to-post-on-instagram-the-ultimate-guide/"><u>[Updated] In 2024, When Is The Best Time to Post on Instagram - The Ultimate Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-explore-extravagance-best-terrafirma-mapping/"><u>2024 Approved Explore Extravagance Best Terrafirma Mapping</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/audio-visual-synopsis-creator/"><u>Audio Visual Synopsis Creator</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-verifying-your-youtube-profile/"><u>The Essential Guide to Verifying Your YouTube Profile</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-4-ways-for-apple-iphone-14-pro-max-to-mac-mirroring-drfone-by-drfone-ios/"><u>Top 4 Ways for Apple iPhone 14 Pro Max to Mac Mirroring | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-xiaomi-14-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Xiaomi 14 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-how-to-find-the-best-spots-on-the-internet-to-download-high-quality-ding-sounds-2023-compilation/"><u>Updated 2024 Approved How to Find the Best Spots on the Internet to Download High-Quality Ding Sounds (2023 Compilation)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-expansion-techniques-for-30plus-online-platforms/"><u>[New] Channel Expansion Techniques for 30+ Online Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-download-premium-video-covers-free-fast-and-easy/"><u>[New] Download Premium Video Covers - Free, Fast & Easy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mirrorless-mastery-10-best-stabilizing-choices/"><u>[Updated] 2024 Approved Mirrorless Mastery 10 Best Stabilizing Choices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>[Updated] A Trailblazer’s Guide YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/adding-captions-to-videos-using-microsoft-photos-windows-11-for-2024/"><u>Adding Captions to Videos Using Microsoft Photos (Windows 11) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/download-our-free-m2ts-to-mp4-converter-and-stream-on-your-mobile/"><u>Download Our Free M2TS-to-MP4 Converter and Stream on Your Mobile!</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-fixing-the-critical-process-died-error-error-code-0x00000005/"><u>Expert Tips: Fixing the Critical Process Died Error (Error Code 0X00000005)</u></a></li>
+<li><a href="https://win-able.techidaily.com/garrys-mod-suddenly-closes-discover-top-strategies-for-fixes-in-2e4/"><u>Garry's Mod Suddenly Closes? Discover Top Strategies for Fixes in 2E4</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-create-a-negative-like-image-look-for-2024/"><u>How to Create a Negative-Like Image Look for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-apple-iphone-xs-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On Apple iPhone XS?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-x7b-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor X7b</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cultivating-a-community-building-followers-on-youtube-without-spending/"><u>In 2024, Cultivating a Community Building Followers on YouTube Without Spending</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enthralling-epics-essential-channel-building-tactics/"><u>In 2024, Enthralling Epics Essential Channel-Building Tactics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-how-to-add-edit-and-optimize-youtube-tagstitledescription-for-more-views/"><u>In 2024, How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/turn-views-into-earnings-monetize-with-more-than-500-subscribers/"><u>Turn Views Into Earnings Monetize with More than 500 Subscribers</u></a></li>
+<li><a href="https://win-answers.techidaily.com/44k544oq44o844oi44k444oj5oof5acxic0g44kv44oq44od44ox44gu44g44ks5l244gj44gm44cb6ycf44gp44gm57ch5y2y44gq5yuv55s757eo6zug/"><u>スリーモジャ情報 - クリップのみを使って、速くて簡単な動画編集</u></a></li>
 </ul></div>
 

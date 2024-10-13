@@ -1,7 +1,7 @@
 ---
 title: "Instant Designing Techniques for Fortnite Images"
-date: 2024-08-10T05:16:38.720Z
-updated: 2024-08-11T05:16:38.720Z
+date: 2024-10-11T21:36:34.054Z
+updated: 2024-10-12T23:35:38.331Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -51,16 +48,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 05:** Drag and drop the screenshot into the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
@@ -69,16 +60,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
@@ -87,22 +72,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
@@ -121,11 +94,44 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-converting-youtube-to-gif-a-comprehensive-online-process/"><u>[New] Converting YouTube to GIF A Comprehensive Online Process</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-diving-into-youtube-creation-and-making-it-monetary/"><u>[New] Diving Into YouTube Creation & Making It Monetary</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>[New] Thriving in Digital Realms The Power of Well-Planned Backlinks</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatai-breakdown-enhancing-crypto-exchanges-with-gpt/"><u>ChatAI Breakdown: Enhancing Crypto Exchanges with GPT</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/confirmation-techniques-for-youtube-accounts/"><u>Confirmation Techniques for Youtube Accounts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1725289207969-dvd-dvd/"><u>DVDへのビデオ変換ガイド: DVDプレイヤー向け動画書き出し手順集紹介</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-seamlessly-integrate-captions-into-youtube-videos/"><u>How to Seamlessly Integrate Captions Into YouTube Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-c12-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-breaking-even-on-youtube-key-view-figures-explored/"><u>In 2024, Breaking Even on YouTube Key View Figures Explored</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>In 2024, Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-elite-road-warriors-game-list/"><u>In 2024, Elite Road Warriors' Game List</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-xiaomi-redmi-k70-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/join-forces-for-victory-winning-at-two-player-minecraft-on-switch/"><u>Join Forces for Victory! Winning at Two-Player Minecraft on Switch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-youtubes-features-to-improve-visuals/"><u>Leveraging YouTube's Features to Improve Visuals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-guide-ripping-your-favorite-christmas-movies-from-dvd-onto-windows-11/"><u>Step-by-Step Guide: Ripping Your Favorite Christmas Movies From DVD Onto Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-policies-versus-creative-commons-a-comparative-study/"><u>Youtube Policies Versus Creative Commons A Comparative Study</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

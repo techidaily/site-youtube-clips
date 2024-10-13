@@ -1,7 +1,7 @@
 ---
 title: "Thrifty Approaches to YouTube Video Card Production"
-date: 2024-08-10T05:15:13.121Z
-updated: 2024-08-11T05:15:13.121Z
+date: 2024-10-11T19:15:15.553Z
+updated: 2024-10-12T23:06:41.352Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,11 +132,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>[New] Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-follower-dilemrancy-guide/"><u>[Updated] 2024 Approved The Instagram Follower Dilemrancy Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boost-visibility-with-a-bespoke-youtube-channel-url/"><u>[Updated] Boost Visibility with a Bespoke YouTube Channel URL</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-your-youtube-content-for-specific-crowds/"><u>[Updated] In 2024, Crafting Your YouTube Content for Specific Crowds</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-perfecting-online-presence-key-to-knowing-and-using-fb-video-ratios/"><u>[Updated] In 2024, Perfecting Online Presence Key to Knowing and Using FB Video Ratios</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2023s-samsung-bd-j5900-a-detailed-look/"><u>2023'S Samsung BD-J5900 A Detailed Look</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/achieving-success-in-your-youtube-endeavours-a-step-by-step-blueprint-for-2024/"><u>Achieving Success in Your YouTube Endeavours A Step-by-Step Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/craft-and-share-360-videos-to-youtube-an-essential-guide-for-creators-for-2024/"><u>Craft and Share 360 Videos to YouTube An Essential Guide for Creators for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-11x-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Realme 11X 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-stellar-video-beginnings-with-free-tools/"><u>In 2024, Crafting Stellar Video Beginnings with Free Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>In 2024, Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-videos-impact-with-customizable-youtube-thumbnails/"><u>In 2024, Elevate Your Video's Impact with Customizable YouTube Thumbnails</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-nubia-z50-ultra-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-irresistible-article-announcer/"><u>In 2024, Irresistible Article Announcer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-pc-printer-link-fixes/"><u>Mastering PC Printer Link Fixes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essentials-of-monetization-youtube-policy-update/"><u>The Essentials of Monetization YouTube Policy Update</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-to-stop-thaumaturge-from-freezing-your-pc-during-gameplay/"><u>Troubleshooting Tips to Stop Thaumaturge From Freezing Your PC During Gameplay</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/verifying-ad-revenue-for-channels/"><u>Verifying Ad Revenue for Channels</u></a></li>
+</ul></div>
+

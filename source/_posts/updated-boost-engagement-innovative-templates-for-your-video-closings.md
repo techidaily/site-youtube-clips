@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Engagement  Innovative Templates for Your Video Closings\""
-date: 2024-10-03T19:51:06.378Z
-updated: 2024-10-07T00:45:38.515Z
+date: 2024-10-10T20:10:38.083Z
+updated: 2024-10-12T23:43:48.030Z
 tags:
   - ai video
   - ai youtube
@@ -86,10 +86,16 @@ Here’s one for the Minecraft fans:
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -103,10 +109,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -114,13 +120,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -134,6 +133,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -142,14 +148,14 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,20 +172,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-capturing-attention-from-content-creation-to-commerce/"><u>[New] Capturing Attention From Content Creation to Commerce</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unlock-humor-pay-nothing-easymeme-tools-guide/"><u>[New] In 2024, Unlock Humor, Pay Nothing EasyMeme Tools Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-discover-the-best-4k-capture-software-for-live-recording/"><u>[Updated] 2024 Approved Discover the Best 4K Capture Software for Live Recording</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-youtube-video-trailers-with-filmoras-guide/"><u>[Updated] Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-instant-screen-grabber-for-chromebooks/"><u>[Updated] Instant Screen Grabber for Chromebooks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/advanced-techniques-using-jump-cuts-effectively-for-2024/"><u>Advanced Techniques Using Jump Cuts Effectively for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/convert-video-formats-for-free-with-movavi-transform-mp4-into-avi-directly-in-browser/"><u>Convert Video Formats for Free with Movavi - Transform MP4 Into AVI Directly in Browser</u></a></li>
-<li><a href="https://driver-install.techidaily.com/efficiently-update-windows-11-devices-with-fresh-drivers/"><u>Efficiently Update Windows 11 Devices with Fresh Drivers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elite-collective-photo-music-plus-visual-creation-fusion/"><u>Elite Collective Photo, Music + Visual Creation Fusion</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhance-your-profile-with-free-imagery-for-2024/"><u>Enhance Your Profile with Free Imagery for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-officejet-pro-8610-driver-download-for-windows-operating-systems-win1187xpvista/"><u>HP Officejet Pro 8610 Driver Download for Windows Operating Systems (Win11/8/7/XP/Vista)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-xiaomi-civi-3-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Xiaomi Civi 3 Phone?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/mastering-bings-conversational-assistant-the-ultimate-guide-to-navigating-microsofts-innovative-ai-chat-feature/"><u>Mastering Bing's Conversational Assistant: The Ultimate Guide to Navigating Microsoft’s Innovative AI Chat Feature</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastery-guide-on-the-world-of-voice-recordings-for-2024/"><u>Mastery Guide on the World of Voice Recordings for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/post-publish-editing-elevating-your-youtube-content/"><u>Post-Publish Editing Elevating Your YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>[New] Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-bidding-adieu-to-instagram-your-complete-deletion-manual-for-2024/"><u>[New] Bidding Adieu to Instagram Your Complete Deletion Manual for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-branding-excellence-youtube-naming-masterclass/"><u>[New] Branding Excellence YouTube Naming Masterclass</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-how-to-shoot-hdr-photos-with-iphone-for-2024/"><u>[Updated] How to Shoot HDR Photos with iPhone for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cha-cha-chickadees/"><u>2024 Approved Cha-Cha Chickadees</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/apple-iphone-14-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 14 Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oppo-f25-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Oppo F25 Pro 5G Devices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/innovation-unleashed-cutting-edge-ar-games-for-2024/"><u>Innovation Unleashed Cutting-Edge AR Games for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unveiling-the-eight-best-free-video-editing-software-for-social-media/"><u>Unveiling the Eight Best FREE Video Editing Software for Social Media</u></a></li>
 </ul></div>
 
