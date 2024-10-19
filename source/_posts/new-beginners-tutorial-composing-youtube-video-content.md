@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2024-10-06T23:07:49.261Z
-updated: 2024-10-12T17:28:19.583Z
+date: 2024-10-11T19:35:42.242Z
+updated: 2024-10-18T19:55:07.248Z
 tags:
   - ai video
   - ai youtube
@@ -39,22 +39,15 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
@@ -73,16 +66,16 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -106,13 +99,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -125,7 +111,21 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,16 +142,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-arcade-avenue-a-million-paths-in-play-for-2024/"><u>[New] Arcade Avenue A Million Paths in Play for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earning-hacks-for-youtube-short-creators-for-2024/"><u>Earning Hacks for YouTube Short Creators for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-video-popularity-12-key-strategies-unveiled/"><u>Elevate Video Popularity 12 Key Strategies Unveiled</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/elevate-your-bookkeeping-accuracy-using-abbeys-smart-document-recognition-solutions/"><u>Elevate Your Bookkeeping Accuracy Using ABBEY’s Smart Document Recognition Solutions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/explore-elite-gaming-opening-tutorials-free-and-premium-alternatives/"><u>Explore Elite Gaming Opening Tutorials Free & Premium Alternatives</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/has-oversight-over-chatgpt-slipped-from-openais-hands/"><u>Has Oversight Over ChatGPT Slipped From OpenAI's Hands?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-achieve-professional-aesthetics-embedding-watermarks-and-branding-in-videos/"><u>In 2024, Achieve Professional Aesthetics Embedding Watermarks & Branding in Videos</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/leading-identity-stamp-eliminator-apps-for-mobile-media/"><u>Leading Identity Stamp Eliminator Apps for Mobile Media</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/prime-video-creation-software-for-smartphone-users-for-2024/"><u>Prime Video Creation Software for Smartphone Users for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/your-videos-right-top-tools-uncovered-for-youtube-success-for-2024/"><u>Rank Your Videos Right - Top Tools Uncovered for YouTube Success for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-xiaomi-redmi-note-13-proplus-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Xiaomi Redmi Note 13 Pro+ 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-stepwise-approach-to-youtube-caption-addition/"><u>[New] A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-charting-the-course-for-your-youtube-music-narrative/"><u>[New] Charting the Course for Your YouTube Music Narrative</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-detecting-block-status-recognizing-on-snapchat-silence/"><u>[Updated] 2024 Approved Detecting Block Status Recognizing On-Snapchat Silence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cross-media-content-flow-from-youtube-to-thirtyplus-others/"><u>[Updated] Cross-Media Content Flow From YouTube to Thirty+ Others</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-electrical-upgrades/"><u>[Updated] Electrical Upgrades</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-quick-methods-for-preserving-chat-recordings-for-2024/"><u>[Updated] Quick Methods for Preserving Chat Recordings for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-selective-complementary-items-for-outstanding-gopros/"><u>[Updated] Selective Complementary Items for Outstanding GoPros</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>2024 Approved AdSense Profits on YouTube Earnings per Thousand Video Watchers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-from-beginner-to-pro-mastering-mi-11-screen-captures/"><u>2024 Approved From Beginner to Pro Mastering Mi 11 Screen Captures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-turn-on-av1-settings-on-youtube-and-why-you-should-do-it/"><u>2024 Approved How to Turn on AV1 Settings on YouTube and Why You Should Do It</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-tecno-phantom-v-flip-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Tecno Phantom V Flip to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-7-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 7 To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ace-the-art-of-online-fame-trending-on-youtube/"><u>In 2024, Ace the Art of Online Fame Trending on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-screen-reporter-toolkit-for-youtube-streamers/"><u>In 2024, Best Screen Reporter Toolkit for YouTube Streamers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-strategic-sound-shifts-winning-with-words-in-free-fire/"><u>In 2024, Strategic Sound Shifts Winning with Words in Free Fire</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-unified-tint-harmonizer/"><u>In 2024, Unified Tint Harmonizer</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/into-another-realm-the-vr-timeline-for-2024/"><u>Into Another Realm The VR Timeline for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-overcoming-ies-webpage-display-issues/"><u>Resolved: Overcoming IE's Webpage Display Issues</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/swift-systems-for-rearranging-youtube-video-lineup/"><u>Swift Systems for Rearranging YouTube Video Lineup</u></a></li>
 </ul></div>
 

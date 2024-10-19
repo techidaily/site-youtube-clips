@@ -1,7 +1,7 @@
 ---
 title: "\"Maximizing YouTube Earnings  Master the Art with 500 Subscribers\""
-date: 2024-10-11T22:00:07.980Z
-updated: 2024-10-12T20:03:57.325Z
+date: 2024-10-13T23:10:40.402Z
+updated: 2024-10-18T20:22:55.674Z
 tags:
   - ai video
   - ai youtube
@@ -39,15 +39,22 @@ The eligibility criteria for the YPP program are now easier and more achievable 
 
 The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Know If You are Eligible**
@@ -57,10 +64,10 @@ As a creator, you will want to know if you are eligible for the YouTube monetiza
 ![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **What You Need to Join Expanded YPP**
@@ -84,15 +91,22 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 2Click Earn in the left menu
 
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step 3Click Apply Now to review and Accept the base terms
@@ -102,13 +116,6 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 ##### Step 4Click Start to set up an AdSense account
 
 ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **On Android, iPhone and iPad**
 
@@ -120,13 +127,6 @@ Applying for YouTube monetization on your mobile devices follows the same proces
 * Set up an AdSense account as requested, or link an existing active one.
 
 Once you complete these steps on your computer or mobile, In Progress status will surface in the Get Reviewed step. This means that YouTube will review your channel and provide feedback within a month.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **What Monetization Review Entails**
 
@@ -166,6 +166,13 @@ Filmora offers creators fantastic editing features to create better Shorts. Let�
 
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. [**Split Screen Video Editor**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
@@ -174,22 +181,21 @@ YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is qui
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. [**Speed Ramping**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -209,21 +215,24 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-achieve-high-rankings-on-youtube-with-top-seo-tips-1-11/"><u>[New] Achieve High Rankings on YouTube with Top SEO Tips (1-11)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-gameplay-narratives-6-compelling-ways-to-document-your-virtual-worlds/"><u>[New] In 2024, Gameplay Narratives 6 Compelling Ways to Document Your Virtual Worlds</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-superior-mp4-channel-updater/"><u>[New] In 2024, Superior MP4 Channel Updater</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-7-high-impact-workout-videos-that-engage-and-energize-audiences/"><u>[Updated] 7 High-Impact Workout Videos That Engage and Energize Audiences</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-bite-sized-urls-essential-tools-for-youtubers-to-streamline-sharing/"><u>[Updated] Bite-Sized URLs Essential Tools for Youtubers to Streamline Sharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-charting-social-media-trends-with-data-graphics/"><u>[Updated] Charting Social Media Trends with Data Graphics</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-enhancing-follows-into-genuine-subscriptions-for-2024/"><u>[Updated] Enhancing Follows Into Genuine Subscriptions for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726026984692-youtube/"><u>「高解像度保存に最適化されたYouTubeビデオのダウンロード手順」</u></a></li>
-<li><a href="https://games-able.techidaily.com/choose-game-pass-ultimate-for-endless-gaming-joy/"><u>Choose Game Pass Ultimate for Endless Gaming Joy</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-honor-magic-6-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Honor Magic 6 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/instantaneous-youtube-profit-projections/"><u>Instantaneous YouTube Profit Projections</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/macbook-showdown-discovering-what-sets-the-macbook-air-apart-from-the-pro/"><u>MacBook Showdown: Discovering What Sets the MacBook Air Apart From the Pro</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/optimize-performance-tracking-improving-system-tray-usage-reports/"><u>Optimize Performance Tracking: Improving System Tray Usage Reports</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/removing-essential-requirements-error-in-win10win11/"><u>Removing 'Essential Requirements' Error in Win10/Win11</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/turn-the-clock-back-reverse-video-mastery-in-instagram-for-2024/"><u>Turn the Clock Back Reverse Video Mastery in Instagram for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/understanding-youtube-revenue-models-today/"><u>Understanding YouTube Revenue Models Today</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-top-online-platforms-for-youtube-media-growth/"><u>[New] 2024 Approved Top Online Platforms for YouTube Media Growth</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-focal-flares-amplifying-your-footage-visually/"><u>[New] Focal Flares Amplifying Your Footage Visually</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-platform-precision-examining-obs-against-twitch-hub/"><u>[New] In 2024, Platform Precision Examining OBS Against Twitch Hub</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unleash-creative-potential-with-top-tips-for-gopro-timelapses/"><u>[New] Unleash Creative Potential with Top Tips for GoPro Timelapses</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-evolutionary-path-of-roguelike-games/"><u>[Updated] In 2024, The Evolutionary Path of Roguelike Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-identity-constructing-memorable-templates-for-gamers/"><u>2024 Approved Channel Identity Constructing Memorable Templates for Gamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-simplify-broadcasting-merge-obs-and-streamlabs-mac/"><u>2024 Approved Simplify Broadcasting Merge OBS and Streamlabs (Mac)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/animators-playground-building-your-own-visual-treats/"><u>Animator’s Playground Building Your Own Visual Treats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-and-compositing-for-youtube-videos-using-premiere-pro-for-2024/"><u>Cutting and Compositing for YouTube Videos Using Premiere Pro for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-your-mobile-and-pc-pictures-with-focused-image-soften/"><u>Enhance Your Mobile & PC Pictures with Focused Image Soften</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-lava-blaze-2-5g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Lava Blaze 2 5G Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-advanced-hd-screen-capture-gadgets/"><u>In 2024, Advanced HD Screen Capture Gadgets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-your-youtube-earnings-on-mobile-devices-a-comprehensive-guide/"><u>In 2024, Boosting Your YouTube Earnings on Mobile Devices - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-efficient-mac-video-resizing-to-fixed-ratio/"><u>In 2024, Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-tv-broadcasts-with-seamless-video-loops-from-youtube/"><u>In 2024, Enhance TV Broadcasts with Seamless Video Loops From YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-video-editing-for-youtube-creators/"><u>Navigating the World of Video Editing for YouTube Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimizing-youtube-auditory-experience-for-viewers/"><u>Optimizing YouTube Auditory Experience for Viewers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/realme-narzo-60-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Realme Narzo 60 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-browsing-with-these-7-android-centric-adblockers/"><u>Streamline Your Browsing with These 7 Android-Centric AdBlockers</u></a></li>
 </ul></div>
 

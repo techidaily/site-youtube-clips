@@ -1,7 +1,7 @@
 ---
 title: Mending Service Installation Errors in INF File
-date: 2024-08-10T05:11:50.583Z
-updated: 2024-08-11T05:11:50.583Z
+date: 2024-10-12T18:49:37.240Z
+updated: 2024-10-18T17:54:30.938Z
 tags:
   - win11
   - win10
@@ -15,19 +15,12 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 
 ## Mending Service Installation Errors in INF File
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/a-service-installation-section-in-this-inf-is-invalid.jpg)
 
  Fix a Service Installation Section in this INF is Invalid issue. Follow the steps in this article.
 
  After you connect your Android device to your computer, you find you can’t use the device and don’t see it on your computer. Then you go to Device Manager to check for the driver status. In Device Manager, you see a MTP USB device with a yellow exclamation mark under the category “Portable Devices” (In some cases, Unknown Devices under Other Devices). When you try to update the driver via Windows Update, you get this error message: _**A service installation section in this INF is invalid**_  . You have no idea how to fix this problem. That’s why you come to this post, right? Don’t worry. You can fix the problem easily with one of the solutions here.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a6866fadc093.jpg)
 
  The problem occurs probably due to missing or corrupted USB driver files. Windows has built-in USB drivers, which allow you to connect USB devices to your PC without installing the drivers manually. But if the drivers are missing or having problems, after connecting the USB devices to your computer, you can’t use it directly. In this case, you need to install the drivers manually. There are different reasons causing driver files missing or corrupted. You’re likely to get this error especially if you’re using the streamlined system or upgraded the system to Windows 10.
@@ -48,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 
  2) Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2023/03/Driver-Easy-download-needed-1200x900.jpg)
 
  3) Click the **Update** button next to a flagged MTP USB driver to automatically download and install the correct version of this driver (you can do this with the FREE version).
@@ -79,21 +69,22 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 
  5) In Device Manager, if you see the device shown as MTP USB device. You’ll see**MTP USB Device** listed in the list.**Highlight** it then click**Next** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a687724c3ed9.jpg)
 
  If you see the device shown as Unknown Device. You’ll see an Android phone or Android device in the long list.**Highlight** it and click**Next** then select**MTP USB device** .
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a68796507b2b.png)
 
  6) The driver will install automatically. You just need to wait for a while until the installation completes.
 
  7) Reconnect your Andriod device to your computer and check to see if the problem is resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Solution 3: Install the missing driver files manually
 
@@ -105,12 +96,29 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a687fa525406.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) On the same computer, locate file**usbser.sys** in**C:\\Windows\\System32\\drivers.** Copy and save this file to an external drive.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2018/01/img_5a68804b214be.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  3) Connect the external drive to the computer with this problem. Copy file**mdmcpq.inf** to **C:\\Windows\\INF** and copy file **usbser.sys** to **C:\\Windows\\System32\\drivers** .
 
@@ -130,8 +138,6 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +145,22 @@ thumbnail: https://thmb.techidaily.com/5e5b9ce0dc07e3f4c01f086c082ef2c0bbdb4ea2b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-savvy.techidaily.com/6-innovative-ways-to-utilize-chatgpt-for-job-seekers-and-workers/"><u>6 Innovative Ways to Utilize ChatGPT for Job Seekers & Workers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-the-basics-advanced-techniques-for-improved-recordings-for-2024/"><u>Beyond the Basics Advanced Techniques for Improved Recordings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-subscribers-on-a-shoestring-budget-for-2024/"><u>Boost Your Channel's Subscribers on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-and-economical-the-best-free-youtube-name-generators-for-2024/"><u>Effortless & Economical The Best Free YouTube Name Generators for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-brand-with-ai-enhanced-naming-solutions-for-2024/"><u>Elevate Your Brand with AI-Enhanced Naming Solutions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-drivers-with-windows-device-manager-in-windows-1110-by-drivereasy-guide/"><u>How to identify malfunctioning drivers with Windows Device Manager in Windows 11/10</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-youtube-masterpieces-with-powerful-hashtag-strategies/"><u>In 2024, Crafting YouTube Masterpieces with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-pace-youtube-via-desktops-and-phones/"><u>In 2024, Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-asus-rog-gt-ac5300-evaluation-a-dream-for-gamers-and-tech-professionals/"><u>In-Depth Asus ROG GT-AC5300 Evaluation: A Dream for Gamers & Tech Professionals</u></a></li>
+<li><a href="https://extra-information.techidaily.com/step-by-step-instructions-for-picking-background-scores-for-vlogs/"><u>Step-by-Step Instructions for Picking Background Scores for Vlogs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/steps-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>Steps to Prevent Youtube Channels Mobile and Desktop Methods</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-t2-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo T2 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719334227097-windows-transcends-platforms-iphoneipadmacpc-compatibility-announced/"><u>Windows Transcends Platforms: IPhone/iPad/Mac/PC Compatibility Announced!</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/1726027881562-1080p/"><u>ビリビリで美しい画質を！1080Pフルハイビジョンに変換するダウンロードガイド</u></a></li>
+</ul></div>
 

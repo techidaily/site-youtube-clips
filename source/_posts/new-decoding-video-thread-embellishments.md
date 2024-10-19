@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding Video Thread Embellishments"
-date: 2024-09-29T17:56:52.502Z
-updated: 2024-10-06T20:43:42.711Z
+date: 2024-10-11T22:26:47.484Z
+updated: 2024-10-18T21:57:07.604Z
 tags:
   - ai video
   - ai youtube
@@ -54,29 +54,29 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -94,13 +94,20 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -110,13 +117,6 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -177,22 +177,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-ideal-watchlist-for-asmr-fans/"><u>[New] 2024 Approved Ideal Watchlist for ASMR Fans</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-gadgets-for-elite-gamers/"><u>[New] Cutting-Edge Gadgets for Elite Gamers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-eliminate-camera-sway-no-tripods-allowed/"><u>[New] Eliminate Camera Sway No Tripods, Allowed</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-top-10-gratis-video-chat-solutions-for-corporate-and-schools-for-2024/"><u>[New] Top 10 Gratis Video Chat Solutions for Corporate & Schools for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-quick-start-mastering-ez-grabbers-downloading-and-usage/"><u>[Updated] 2024 Approved Quick Start Mastering EZ Grabber's Downloading & Usage</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>2024 Approved Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-the-future-with-a-lifetime-subscription-to-mondly-pro-at-discounted-prices/"><u>Embrace the Future with a Lifetime Subscription to Mondly Pro at Discounted Prices!</u></a></li>
-<li><a href="https://driver-error.techidaily.com/error-48-cleared-from-device-hub/"><u>Error 48 Cleared From Device Hub</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-live-chat-to-large-screen-upload-twitch-streams-to-youtube/"><u>From Live Chat to Large Screen Upload Twitch Streams to YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/guidance-to-youtube-music-mix/"><u>Guidance to YouTube Music Mix</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-exit-recovery-mode-on-iphone-6s-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>In 2024, Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/smart-money-making-on-youtube-shorts/"><u>Smart Money-Making on Youtube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-doubt-into-action-channeling-vlogger-excellence/"><u>Transforming Doubt Into Action Channeling Vlogger Excellence</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-color-secrets-master-the-craft-with-our-tutorial-series-for-2024/"><u>Unveiling Color Secrets - Master the Craft with Our Tutorial Series for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-vivo-v30-lite-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo V30 Lite 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/windows-nt-let-you-burn-dvds-quick-fixes-and-tips-for-the-windows-10-disc-writing-glitch/"><u>Windows N't Let You Burn DVDs? Quick Fixes and Tips for the Windows 10 Disc Writing Glitch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-chasing-profit-on-platforms-youtube-partner-application-steps/"><u>[New] Chasing Profit on Platforms YouTube Partner Application Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dial-in-the-perfect-moment-youtube-optimal-posting/"><u>[New] Dial in the Perfect Moment YouTube Optimal Posting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-shine-up-advanced-setups-to-make-your-clips-pop/"><u>[New] In 2024, Shine Up Advanced Setups to Make Your Clips Pop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/analyzing-view-count-to-cash-out-on-youtube-for-2024/"><u>Analyzing View Count to Cash Out on YouTube for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhancing-visual-storytelling-with-premiere-text-styles/"><u>Enhancing Visual Storytelling with Premiere Text Styles</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-honor-magic-6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/growth-strategies-for-youtube-videos-6-effortless-approaches/"><u>Growth Strategies for YouTube Videos 6 Effortless Approaches</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-illness-with-immersive-systems/"><u>In 2024, Navigating Illness with Immersive Systems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-content-discovery-with-powerful-title-and-tag-use/"><u>Mastering Content Discovery with Powerful Title & Tag Use</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/troubleshooting-screenshots-on-windows-fixing-problems-with-hidden-annotation-and-webcam-footage-in-recordings/"><u>Troubleshooting Screenshots on Windows: Fixing Problems with Hidden Annotation and Webcam Footage in Recordings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleashing-potential-in-a-small-package-four-gigabit-lan-ports-complement-the-intel-raptor-cpu-inside-energy-efficient-msis-ms-c90/"><u>Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90</u></a></li>
 </ul></div>
 

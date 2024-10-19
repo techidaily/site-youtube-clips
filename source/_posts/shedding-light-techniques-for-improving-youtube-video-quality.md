@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality\""
-date: 2024-10-07T00:38:24.303Z
-updated: 2024-10-12T19:52:21.312Z
+date: 2024-10-11T22:02:52.601Z
+updated: 2024-10-18T19:16:24.682Z
 tags:
   - ai video
   - ai youtube
@@ -47,14 +47,14 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -76,31 +76,11 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -117,10 +97,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -129,7 +109,21 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,22 +140,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-watching-facebook-live-events/"><u>[New] 2024 Approved Step-by-Step Guide to Watching Facebook Live Events</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-building-a-channel-team-up-videography-guide/"><u>[New] Building a Channel Team-Up Videography Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-comprehensive-motion-dynamics-review/"><u>[New] Comprehensive Motion Dynamics Review</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>[New] Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-budget-friendly-flight-machines-the-cheapest-drone-list/"><u>[Updated] Budget-Friendly Flight Machines The Cheapest Drone List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-building-a-stronger-presence-with-effective-youtube-pairings/"><u>[Updated] Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-deciphering-youtubes-processing-after-uploading/"><u>[Updated] Deciphering YouTube's Processing After Uploading</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-future-of-fb-ads-predictions/"><u>[Updated] Future of FB Ads Predictions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-revenue-with-youtubes-mobile-monetization-features-for-creators/"><u>[Updated] Streamlining Revenue with YouTube's Mobile Monetization Features for Creators</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-transforming-skincare-secrets-into-social-stardom/"><u>[Updated] Transforming Skincare Secrets Into Social Stardom</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>In 2024, Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cracking-the-code-calculating-your-income-from-youtubes-cpm/"><u>In 2024, Cracking the Code Calculating Your Income From YouTube's CPM</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-the-best-12-cameras-to-elevate-your-vlogs/"><u>In 2024, Discover the Best 12 Cameras to Elevate Your Vlogs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-the-net-top-tags-for-eye-catching-gamer-content/"><u>Navigating the Net Top Tags for Eye-Catching Gamer Content</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/snapshot-salvage-by-stellar-the-new-era-begins/"><u>Snapshot Salvage by Stellar: The New Era Begins</u></a></li>
-<li><a href="https://article-files.techidaily.com/unveiling-the-secrets-of-m1-max-clips-for-2024/"><u>Unveiling the Secrets of M1 Max Clips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-your-videos-final-impression/"><u>[New] 2024 Approved Enhancing Your Video's Final Impression</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>[New] In 2024, Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-fast-lane-to-excellent-captioning-a-guide-to-impressive-fb-media-posts/"><u>[Updated] In 2024, The Fast Lane to Excellent Captioning A Guide to Impressive FB Media Posts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-quick-guide-to-moving-videos-from-youtube-to-dailymotion-for-2024/"><u>A Quick Guide to Moving Videos From YouTube to Dailymotion for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/drive-sales-automatically-using-cookiebot-technology/"><u>Drive Sales Automatically Using Cookiebot Technology</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-craft-eye-catching-youtubes-end-titles/"><u>How to Craft Eye-Catching YouTubes End Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boost-your-videos-impact-with-top-ranking-software-solutions/"><u>In 2024, Boost Your Videos' Impact with Top-Ranking Software Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-editing-essentials-your-go-to-guide-for-beginner-vloggers/"><u>In 2024, Editing Essentials Your Go-To Guide for Beginner Vloggers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mysterious-rotation-of-videos-on-the-social-app/"><u>In 2024, Mysterious Rotation of Videos on the Social App</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/seamless-transactions-at-a-glance-the-ultimate-how-to-for-apple-pay-integration-on-apple-wearables/"><u>Seamless Transactions at a Glance: The Ultimate How-To for Apple Pay Integration on Apple Wearables</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-10-yt-tickets-most-watched-videos-hour-by-hour/"><u>Top 10 YT Tickets Most Watched Videos, Hour by Hour</u></a></li>
 </ul></div>
 

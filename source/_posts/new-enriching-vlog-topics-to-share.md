@@ -1,7 +1,7 @@
 ---
 title: "[New] Enriching Vlog Topics to Share"
-date: 2024-08-10T05:12:02.218Z
-updated: 2024-08-11T05:12:02.218Z
+date: 2024-10-13T21:31:55.284Z
+updated: 2024-10-18T20:42:46.560Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,10 +32,6 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -52,9 +45,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -77,6 +67,13 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -94,27 +91,39 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -122,11 +131,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/appli-gratuite-de-camera-wi-fi-la-plus-efficace-top-selection/"><u>« Appli Gratuite De Caméra Wi-Fi La Plus Efficace - Top Sélection »</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fix-slowly-loading-youtube-content-on-mobile/"><u>[New] 2024 Approved Fix Slowly Loading YouTube Content on Mobile</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-building-business-via-beauty-vlogs/"><u>[New] Building Business via Beauty Vlogs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamlining-video-conferences-with-snap-camera-functions/"><u>[Updated] In 2024, Streamlining Video Conferences with Snap Camera Functions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-snap-shots-in-google-meet-a-quick-guide-for-2024/"><u>[Updated] Mastering Snap Shots in Google Meet A Quick Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-androids-ultimate-fix-for-frustratingly-slow-vids/"><u>2024 Approved Android's Ultimate Fix for Frustratingly Slow Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-the-visual-language-of-live-videos-on-youtube/"><u>2024 Approved Decoding the Visual Language of Live Videos on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-device-transcending-entry-editor-leader-of-2023/"><u>2024 Approved Device-Transcending Entry Editor Leader of 2023</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-gamers-sound-showdown-the-top-5-headset-list/"><u>2024 Approved Gamers' Sound Showdown The Top 5 Headset List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-views-optimal-hashtags-for-video-success/"><u>Boost Your Views Optimal Hashtags for Video Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/culinary-carousel-swirling-up-top-food-network-names-for-2024/"><u>Culinary Carousel Swirling Up Top Food Network Names for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-chuckle-factory-designing-7-video-ideas-for-humorists/"><u>In 2024, Chuckle Factory Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/secrets-unveiled-perfect-your-360-youtube-live-experience/"><u>Secrets Unveiled Perfect Your 360° YouTube Live Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722970818344-speed-up-your-usb-cam-connectivity-secure-reliable-drivers-available-now/"><u>Speed-Up Your USB Cam Connectivity – Secure, Reliable Drivers Available Now</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-solution-to-fix-missing-or-corrupted-msodll-errors-in-office-suite/"><u>Step-by-Step Solution to Fix Missing or Corrupted mso.dll Errors in Office Suite</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Video's Visibility with Perfect Thumbnail Sizing"
-date: 2024-10-10T16:34:18.276Z
-updated: 2024-10-12T20:50:05.748Z
+date: 2024-10-15T18:05:22.797Z
+updated: 2024-10-18T17:17:26.569Z
 tags:
   - ai video
   - ai youtube
@@ -73,16 +73,16 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -99,17 +99,10 @@ To change the thumbnail on an already uploaded video you need to follow these st
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -119,6 +112,13 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -127,6 +127,13 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -139,13 +146,6 @@ Wondershare Filmora is an outstanding tool if you want to make a perfect thumbna
 Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
@@ -166,10 +166,10 @@ YouTube thumbnail plays an important part for the audience's first impression on
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -187,24 +187,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-youtube-shorts-video-editor-tools-for-ios-and-android-devices/"><u>[Updated] Best YouTube Shorts Video Editor Tools for iOS & Android Devices</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-zoom-streaming-tutorial-on-youtube/"><u>[Updated] Comprehensive Zoom Streaming Tutorial on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-video-content-for-a-fanbase-boom/"><u>[Updated] Elevating Your Video Content for a Fanbase Boom</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1715860445454-updated-employing-inbuilt-screen-recording-tools-on-mate-p-models-p20-p10/"><u>[Updated] Employing Inbuilt Screen Recording Tools on Mate, P Models (P20, P10).</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-the-top-12-low-cost-video-apps-for-devices-everywhere/"><u>[Updated] In 2024, Unveiling the Top 12 Low-Cost Video Apps for Devices Everywhere</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-infographic-8-ways-to-make-money-on-youtube-for-beginners/"><u>[Updated] Infographic - 8 Ways to Make Money on YouTube for Beginners</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/aerial-photography-revolution-with-mavic-pro-for-2024/"><u>Aerial Photography Revolution with Mavic Pro for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/discovering-the-forgotten-chronicles-a-guide-to-past-facebook-stories-on-tech-devices-for-2024/"><u>Discovering The Forgotten Chronicles A Guide to Past Facebook Stories on Tech Devices for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-disrupted-beats-best-mobile-music-distortors/"><u>In 2024, Disrupted Beats Best Mobile Music Distortors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-download-youtube-icons-quickly-web-os-specific-options-explained/"><u>In 2024, Download YouTube Icons Quickly Web, OS-Specific Options Explained</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-effortlessly-replay-videos-on-iphone/"><u>In 2024, Effortlessly Replay Videos on iPhone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/innovating-with-obs-studio-on-android-systems-for-2024/"><u>Innovating with OBS Studio on Android Systems for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/integrating-interactive-features-for-enhanced-viewers-experience-on-youtube/"><u>Integrating Interactive Features for Enhanced Viewers' Experience on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/rapid-fortnite-tile-making-hacks/"><u>Rapid Fortnite Tile-Making Hacks</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/resolve-your-iphone-xs-max-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your iPhone XS Max Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/the-top-12-tycoon-games-where-strategies-thrive-and-profits-peak/"><u>The Top 12 Tycoon Games - Where Strategies Thrive and Profits Peak</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-100-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ultimate-screen-companionship-the-right-cms-guidebook/"><u>Ultimate Screen Companionship The Right CMS Guidebook</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-realme-c53-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Realme C53 Phone Network-Ready</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-discover-the-best-11-waterproof-cams-ideal-for-young-vloggers/"><u>[New] In 2024, Discover The Best 11 Waterproof Cams Ideal for Young Vloggers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-mov-storage-solutions-maximizing-capacity-on-windows/"><u>[Updated] .mov Storage Solutions Maximizing Capacity on Windows</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>[Updated] Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-impact-the-quintessential-five-youtube-marketing-approaches/"><u>[Updated] Crafting Impact The Quintessential Five YouTube Marketing Approaches</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>2024 Approved Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/character-choreography-compendiums/"><u>Character Choreography Compendiums</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-14-pro-max-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone 14 Pro Max The Right Way</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-exploring-your-choices-with-youtube-tv-plans/"><u>In 2024, Exploring Your Choices with YouTube TV Plans</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists/"><u>Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Fix for Broken Headphone Connection in Windows 10 Devices
-date: 2024-10-05T23:36:32.954Z
-updated: 2024-10-06T20:07:49.176Z
+date: 2024-10-14T19:44:03.314Z
+updated: 2024-10-18T22:31:07.330Z
 tags:
   - win11
   - win10
@@ -30,32 +30,54 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 5. [**Disable audio enhancements**](https://tools.techidaily.com/drivereasy/download/)
 6. [**Restart audio services**](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Check cable and volumes
 
  If you don’t hear sound from your external audio devices, like speakers and headphones, you can check if their cable is broken. You can plug them to in another computer and see if they work in another computer. If they work in another computer, the problem is probably caused by the cable.
 
  If the audio device has been muted, you won’t hear sound from it. Check if your speaker or headphone has been muted by accident.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Check your speaker settings
 
 1. Right-click the sound icon at the bottom right corner of your desktop and click **Playback devices** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2016/04/img_570b4f3700616.png)
 2. In the**Playback** tab, ensure there’s a green tick on**Speakers** . This indicates that your speakers are the default playback device.  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Default speaker ticked Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Default-speaker-ticked-Windows10.png)  
 
  If your Speakers are NOT already set as the default, this is doubtless your problem. To fix, just click them, click**Set Default** , then click **OK** and test whether you have sound.  
 ![Set default speakers Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Set-default-speakers-Windows-10.png)  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If your Speakers are set as the default playback device, and you’re still not hearing any sound, you should experiment with different sound formats. To do this, click**Speakers** then **Properties** .  
 ![Change speaker sound format Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Change-speaker-sound-format-Windows-10.png)
 3. Go to the **Advanced** tab, and in the**Default Format** section, select a different sample rate and bit depth, then click**Test** . Repeat this process until you find a format that works, then click**OK** . If you don’t find a format that works, proceed to[Method 2](https://tools.techidaily.com/drivereasy/download/) below.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Test speaker sound format Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Test-speaker-sound-format-Windows-10.png)
 
@@ -72,13 +94,6 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/05/img_57355165cc4c9.png)
 4. If you’re asked to confirm the uninstall, check the**Delete the driver software for this device** box and click**OK** .  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/05/img_573551f5c1434.png)
 5. Restart your computer and check to see if the problem is resolved. If it’s not, move on to[Method 3](https://tools.techidaily.com/drivereasy/download/) below.
@@ -99,16 +114,23 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 3. Click the **Update** button next to a flagged audio driver to automatically download and install the correct version of this driver (you can do this with the FREE version of Driver Easy).  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/06/img_5949d31484e2f.jpg)  
  Or click **Update All**  to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **Pro** version which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 4. Restart your computer and check to see if you now have sound.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 5: Disable audio enhancements
 
@@ -122,25 +144,11 @@ To do so, follow these steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-272.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Select one**Default Device** and select**Properties** .
 
 In the example below, the default device is Speakers / Headphones.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-275.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) On the**Enhancements** tab,**select** the**Disable all enhancements** check box. Then click**OK** .
 
@@ -149,13 +157,6 @@ In the example below, the default device is Speakers / Headphones.
 5) Check to see if the sound issue is resolved.
 
 **Note** if you have multiple default devices, you may need to repeat the steps above for each default device until the sound issue is resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 6: Restart audio services
 
@@ -168,10 +169,10 @@ Follow these steps to restart audio services.
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-278.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Right-click on**Windows Audio** service and select**Restart** .
@@ -200,22 +201,21 @@ Follow these steps to restart audio services.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/1716463666774-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>__Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly.</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-seeking-speed-identifying-the-top-5-racer-games/"><u>[New] In 2024, Seeking Speed Identifying the Top 5 Racer Games</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-unlocking-the-secrets-of-successful-google-meet-engagement/"><u>[New] Unlocking the Secrets of Successful Google Meet Engagement</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-building-an-impressive-instagram-network-for-2024/"><u>[Updated] Building an Impressive Instagram Network for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-instagrams-qanda-sticker-usage-for-2024/"><u>[Updated] Mastering Instagram's Q&A Sticker Usage for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-alternative-classics-new-filmmaking-titles-to-love/"><u>2024 Approved Alternative Classics New Filmmaking Titles to Love</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-convert-youtube-to-mp4-safely/"><u>2024 Approved How to Convert YouTube to MP4 Safely?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/sba-pppblue-prism85000/"><u>中小企業救済：銀行でSBA PPPローンをBlue Prismが自動化して85,000件以上の雇用保護に成功</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/audiovisual-quality-its-significance-in-video-ranking-for-2024/"><u>Audiovisual Quality Its Significance in Video Ranking for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/avoiding-the-crowd-stand-out-with-unique-youtube-persona-for-2024/"><u>Avoiding the Crowd Stand Out with Unique YouTube Persona for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>Expert Tips for YouTube Channel Aesthetics Finding Optimal Sizes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719294305886-ignite-performance-gains-in-winoutlook-today/"><u>Ignite Performance Gains in WinOutlook, Today</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/kids-on-steroids-ryans-incredible-journey-from-child-to-ceo/"><u>Kids on Steroids Ryan’s Incredible Journey From Child to CEO</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamlining-multiple-youtube-videos-into-one/"><u>Streamlining Multiple YouTube Videos Into One</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-must-know-about-youtube-shorts-explained/"><u>The Must-Know About YouTube Shorts Explained</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-poco-c50-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Poco C50 Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-ranking-top-10-timeless-disney-pixar-masterpieces/"><u>The Ultimate Ranking: Top 10 Timeless Disney Pixar Masterpieces</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-amplify-audience-connection-best-creative-reacting-techniques/"><u>[New] Amplify Audience Connection Best Creative Reacting Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>[New] Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-craft-your-online-identity-with-customized-youtube-urls/"><u>[New] Craft Your Online Identity with Customized YouTube URLs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>[Updated] Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-guide-to-nikon-d500-4k-performance/"><u>[Updated] The Ultimate Guide to Nikon D500 4K Performance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-accessing-your-curated-music-lists-on-youtube/"><u>2024 Approved Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-audiovisual-excellence-the-premier-video-formats-for-youtube/"><u>2024 Approved Audiovisual Excellence The Premier Video Formats for YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transformative-notetaking-the-mematic-way/"><u>2024 Approved Transformative Notetaking The Mematic Way</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-guide-to-the-best-makeup-tutorials-on-youtube/"><u>A Comprehensive Guide to the Best Makeup Tutorials on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube/"><u>A Comprehensive Walkthrough Setting Up Your First WireCast Livestream to Youtube</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-escort-max-t-360-analysis-advanced-radar-and-gps-detector-unveiled/"><u>Comprehensive Escort Max T 360 Analysis - Advanced Radar & GPS Detector Unveiled</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-11-pro-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 11 Pro in Lost Mode</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solve-the-repaired-dazzling-display-how-to-fix-screen-flicker/"><u>Solve the [REPAIRED] Dazzling Display: How to Fix Screen Flicker</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/supreme-session-naming-service-for-2024/"><u>Supreme Session Naming Service for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-s-top-video-editing-apps-for-iphone-a-comprehensive-guide/"><u>Updated 2024 Approved S Top Video Editing Apps for iPhone A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-persistent-social-media-advice-is-inevitable/"><u>Why Persistent Social Media Advice Is Inevitable?</u></a></li>
 </ul></div>
 

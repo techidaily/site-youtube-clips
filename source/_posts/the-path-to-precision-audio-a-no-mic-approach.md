@@ -1,7 +1,7 @@
 ---
 title: "\"The Path to Precision Audio  A No-Mic Approach\""
-date: 2024-08-10T05:12:12.392Z
-updated: 2024-08-11T05:12:12.392Z
+date: 2024-10-14T20:57:14.073Z
+updated: 2024-10-19T00:05:47.720Z
 tags:
   - ai video
   - ai youtube
@@ -48,13 +48,24 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -64,9 +75,6 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -81,13 +89,17 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -96,9 +108,6 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -111,14 +120,15 @@ _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -127,11 +137,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-earning-hacks-for-youtube-short-creators/"><u>[New] 2024 Approved Earning Hacks for YouTube Short Creators</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-master-the-art-of-meeting-management-the-finest-10-free-recorders-for-slack/"><u>[New] In 2024, Master the Art of Meeting Management The Finest 10 Free Recorders for Slack</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-infusing-action-into-photos-using-illustrators-features/"><u>[New] Infusing Action Into Photos Using Illustrator's Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-2023-streamline-facebook-vids-to-smooth-mp3/"><u>[Updated] 2024 Approved 2023 Streamline Facebook Vids to Smooth MP3</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-mr-beasts-monetary-milestones/"><u>[Updated] 2024 Approved Mr. Beast’s Monetary Milestones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-apples-mobile-posting-playbook-for-youtube-success/"><u>2024 Approved Apple's Mobile Posting Playbook for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-designing-an-editorial-epilogue/"><u>2024 Approved Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-experts-choice-gimbals-top-ranked-for-4k-cameras/"><u>2024 Approved Expert's Choice Gimbals Top-Ranked For 4K Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adjust-privacy-settings-for-secure-online-viewing/"><u>Adjust Privacy Settings for Secure Online Viewing</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211232561-bypassing-blocked-filefolder-alerts-in-windows-effective-solutions-inside/"><u>Bypassing Blocked File/Folder Alerts in Windows – Effective Solutions Inside!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-music-reactions-the-youtube-enthusiasts-blueprint-for-2024/"><u>Crafting Engaging Music Reactions The YouTube Enthusiast's Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-domain-decision-which-platform-for-your-videos-in-2024/"><u>Digital Domain Decision Which Platform for Your Videos, In 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-v29-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo V29 to iPad | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/instant-tutorial-green-screen-techniques-unveiled/"><u>Instant Tutorial Green Screen Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/making-the-most-out-of-creative-commons-licenses/"><u>Making the Most Out of Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/prime-sound-alteration-apps-for-vloggers/"><u>Prime Sound Alteration Apps for Vloggers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y17s-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo Y17s Phone</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Embracing Constructive Feedback, Ignoring the Rest"
-date: 2024-08-03T03:23:47.604Z
-updated: 2024-08-04T03:23:47.604Z
+date: 2024-10-12T18:04:43.369Z
+updated: 2024-10-18T22:22:30.665Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,11 +60,35 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-fix-chrome-error-with-fb-videos-for-2024/"><u>[New] Fix Chrome Error with FB Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-tier-gaming-live-broadcast-tools/"><u>[New] Top-Tier Gaming Live Broadcast Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-income-understanding-critical-view-thresholds/"><u>Boost Your Channel's Income Understanding Critical View Thresholds</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/experience-the-virtual-reality-frontier-on-youtube/"><u>Experience the Virtual Reality Frontier on Youtube</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gratisk-online-converteer-naar-mpeg-convertereer-je-wav-afbeeldingen-in-mpeg-met-movavi/"><u>Gratisk Online Converteer Naar MPEG - Convertereer Je WAV-Afbeeldingen in MPEG Met Movavi</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smart-tips-for-creating-time-lapses-on-samsung-devices/"><u>In 2024, Smart Tips for Creating Time-Lapses on Samsung Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlock-free-youtube-introend-customization/"><u>In 2024, Unlock Free YouTube Intro/End Customization</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-8-image-collections-for-macbook-screens/"><u>Innovative 8 Image Collections for MacBook Screens</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailoring-youtube-shorts-thumbnails-made-simple/"><u>Tailoring Youtube Shorts Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-smart-guide-for-streaming-and-saving-on-idevices-to-youtube-platform/"><u>The Smart Guide for Streaming and Saving on iDevices to YouTube Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/viewer-recognition-the-play-button-reward-ribbon/"><u>Viewer Recognition The Play Button Reward Ribbon</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/warmth-amidst-cold-selecting-perfect-winter-backdrops/"><u>Warmth Amidst Cold Selecting Perfect Winter Backdrops</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

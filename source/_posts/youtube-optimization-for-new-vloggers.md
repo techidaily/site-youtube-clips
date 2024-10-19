@@ -1,7 +1,7 @@
 ---
 title: "YouTube Optimization for New Vloggers"
-date: 2024-10-05T22:32:05.917Z
-updated: 2024-10-12T18:31:18.892Z
+date: 2024-10-15T19:34:09.552Z
+updated: 2024-10-18T21:40:48.800Z
 tags:
   - ai video
   - ai youtube
@@ -157,16 +157,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Make The Best Darn Video Possible
@@ -203,6 +197,13 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -213,13 +214,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -227,13 +221,6 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -248,6 +235,13 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -274,10 +268,10 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -299,19 +293,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>[New] Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-insiders-guide-to-authentic-instagram-imagery/"><u>[New] In 2024, The Insider’s Guide to Authentic Instagram Imagery</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-transcoding-vimeo-to-mp3-audio-file/"><u>[New] In 2024, Transcoding Vimeo to MP3 Audio File</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-aspect-ratios-decoded-youtube-edition-a-quick-reference-guide/"><u>[Updated] Aspect Ratios Decoded YouTube Edition – A Quick Reference Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[Updated] Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-designing-short-trailers-that-tell-a-story/"><u>[Updated] Designing Short Trailers That Tell a Story</u></a></li>
-<li><a href="https://extra-information.techidaily.com/aerial-robotics-simplified-how-drones-fly-talk-and-work/"><u>Aerial Robotics Simplified How Drones Fly, Talk & Work</u></a></li>
-<li><a href="https://win11.techidaily.com/assigning-custom-codes-to-windows-software/"><u>Assigning Custom Codes to Windows Software</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-of-breed-pages-for-sparkling-3d-text-for-2024/"><u>Best of Breed Pages for Sparkling 3D Text for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/1723006804201-cyberpunk-2077-performance-optimized-no-more-lag-or-stutter/"><u>Cyberpunk 2077 Performance Optimized: No More Lag or Stutter!</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-scrolling-to-serenity-the-top-10-reasons-to-leave-the-facebook-journey/"><u>From Scrolling to Serenity: The Top 10 Reasons to Leave the Facebook Journey</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-self-assured-vlogging-channeling-youtube-stars/"><u>Mastering Self-Assured Vlogging Channeling YouTube Stars</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-from-beginner-to-pro-the-best-vlog-video-editing-software-for-every-level/"><u>New 2024 Approved From Beginner to Pro The Best Vlog Video Editing Software for Every Level</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-fix-for-frostpunk-game-crashes-steps-and-strategies/"><u>Ultimate Fix for Frostpunk Game Crashes: Steps & Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boosting-your-youtube-earnings-strategies-for-monetizing-short-videos/"><u>[Updated] Boosting Your YouTube Earnings Strategies for Monetizing Short Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-fix-confirmed-shorts-are-showing-up/"><u>[Updated] Fix Confirmed Shorts Are Showing Up</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>Best Hashtags for YouTube To Get Your Views to 6 Figures</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/bloodborne-review/"><u>Bloodborne Review</u></a></li>
+<li><a href="https://blog-min.techidaily.com/comprehensive-guide-to-format-shifting-and-drm-removal-in-e-book-creation/"><u>Comprehensive Guide to Format Shifting & DRM Removal in E-Book Creation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effective-techniques-for-blocking-advanced-ai-crawling-on-your-domain/"><u>Effective Techniques for Blocking Advanced AI Crawling on Your Domain</u></a></li>
+<li><a href="https://win-premium.techidaily.com/errore-risolto-spazio-non-allocato-trovato-in-disco-clonato-piu-grande/"><u>Errore Risolto: Spazio Non Allocato Trovato in Disco Clonato Più Grande</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-idea-to-interaction-steps-for-crafting-a-successful-product-evaluation-vlog/"><u>In 2024, From Idea to Interaction Steps for Crafting a Successful Product Evaluation Vlog</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pivoting-careers-from-novice-to-industry-veteran/"><u>Pivoting Careers From Novice to Industry Veteran</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/professional-tools-to-elevate-your-video-openings/"><u>Professional Tools to Elevate Your Video Openings</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/sequential-enjoyment-how-to-properly-arrange-and-watch-the-matrix-films/"><u>Sequential Enjoyment: How to Properly Arrange and Watch The Matrix Films</u></a></li>
 </ul></div>
 

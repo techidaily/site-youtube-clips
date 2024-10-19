@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Animation  Dynamic, Bouncy Text Techniques\""
-date: 2024-10-04T22:48:09.490Z
-updated: 2024-10-07T04:08:09.004Z
+date: 2024-10-15T17:59:46.397Z
+updated: 2024-10-19T00:16:02.328Z
 tags:
   - ai video
   - ai youtube
@@ -71,10 +71,10 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -90,10 +90,16 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -123,10 +129,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -144,10 +150,10 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -165,22 +171,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unlocking-instagrams-soundscape-feature/"><u>[New] 2024 Approved Unlocking Instagram’s Soundscape Feature</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>[New] Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-accessing-your-curated-music-lists-on-youtube/"><u>2024 Approved Accessing Your Curated Music Lists on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-audiovisual-excellence-the-premier-video-formats-for-youtube/"><u>2024 Approved Audiovisual Excellence The Premier Video Formats for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-audiovisual-improvement-voice-changing-apps-reviewed/"><u>2024 Approved Audiovisual Improvement Voice Changing Apps Reviewed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-crafting-captivating-storytelling-with-a-soundtrack-on-instagram/"><u>2024 Approved Crafting Captivating Storytelling with a Soundtrack on Instagram</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-guide-to-the-best-makeup-tutorials-on-youtube/"><u>A Comprehensive Guide to the Best Makeup Tutorials on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube/"><u>A Comprehensive Walkthrough Setting Up Your First WireCast Livestream to Youtube</u></a></li>
-<li><a href="https://win11.techidaily.com/boost-playnites-capabilities-with-windows-compatible-emulators/"><u>Boost Playnite's Capabilities with Windows-Compatible Emulators</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-samsung-galaxy-m14-4g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Samsung Galaxy M14 4G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/essential-recording-advice-macbooks-camera-insights/"><u>Essential Recording Advice MacBook's Camera Insights</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-roblox-not-opening-error-with-expert-tips-from-2022/"><u>Fixing the Roblox Not Opening Error with Expert Tips From 2022</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-10-best-youtube-music-reaction-video-and-how-to-make-one/"><u>In 2024, 10 Best YouTube Music Reaction Video & How to Make One</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streaming-to-profit-youtube-policy-changes/"><u>Streaming to Profit YouTube Policy Changes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-7-video-enhancement-cameras-to-skyrocket-your-blogging-for-2024/"><u>Top 7 Video Enhancement Cameras To Skyrocket Your Blogging for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transforming-physical-training-through-gpt-interaction/"><u>Transforming Physical Training Through GPT Interaction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-deciphering-how-t-series-earns-via-youtube/"><u>[New] Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-directing-your-camera-roll-a-step-by-step-snapchat-integration/"><u>[New] In 2024, Directing Your Camera Roll A Step-by-Step Snapchat Integration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-game-plan-for-creating-a-hit-youtube-introduction-trailer/"><u>[Updated] 2024 Approved The Game Plan for Creating a Hit YouTube Introduction Trailer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-practices-for-designing-an-engaging-youtube-teaser-for-2024/"><u>[Updated] Best Practices for Designing an Engaging YouTube Teaser for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>[Updated] Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-hunt-best-historical-youtubes-that-every-student-should-watch/"><u>[Updated] Channel Hunt Best Historical YouTubes That Every Student Should Watch</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-elevating-gameplay-tips-for-using-the-steam-switch-controller-for-2024/"><u>[Updated] Elevating Gameplay Tips for Using the Steam Switch Controller for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-enhance-media-creation-the-ultimate-list-of-top-8-montage-apps/"><u>[Updated] Enhance Media Creation The Ultimate List of Top 8 Montage Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/20plus-hashes-to-skyrocket-your-short-films-popularity-for-2024/"><u>20+ Hashes to Skyrocket Your Short Film's Popularity for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-201n-amazon-kindle-quality-reading-on-a-shoestring/"><u>Comprehensive Guide to the 201N Amazon Kindle - Quality Reading on a Shoestring</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-top-6-short-video-download-sites-free/"><u>Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flash-forward-quick-youtube-playlists-distribution/"><u>Flash Forward Quick Youtube Playlists Distribution</u></a></li>
+<li><a href="https://article-tips.techidaily.com/guide-to-mass-downloading-a-complete-look-at-tiktok-archives-for-2024/"><u>Guide to Mass Downloading A Complete Look at TikTok Archives for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>In 2024, Charting Your Course in YouTubing Dodge These Top 8 Common Missteps</u></a></li>
+<li><a href="https://win-trending.techidaily.com/iphone-emulators-available-at-no-cost-for-windows-users-works-with-ios-versions-15-through-11/"><u>IPhone Emulators Available at No Cost for Windows Users: Works with iOS Versions 15 Through 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/microsoft-windows-bluetooth-drivers-latest-downloads-and-updates-for-versions-11-8-and-7/"><u>Microsoft Windows Bluetooth Drivers: Latest Downloads and Updates for Versions 11, 8, and 7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailoring-a-triad-of-topical-youtube-tracks/"><u>Tailoring a Triad of Topical YouTube Tracks</u></a></li>
 </ul></div>
 

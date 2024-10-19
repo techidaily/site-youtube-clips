@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Engagement  Innovative Templates for Your Video Closings\""
-date: 2024-10-10T20:10:38.083Z
-updated: 2024-10-12T23:43:48.030Z
+date: 2024-10-11T21:50:49.946Z
+updated: 2024-10-18T18:43:52.300Z
 tags:
   - ai video
   - ai youtube
@@ -85,35 +85,28 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -125,6 +118,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
@@ -133,16 +133,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -151,10 +151,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -172,15 +172,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>[New] Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-bidding-adieu-to-instagram-your-complete-deletion-manual-for-2024/"><u>[New] Bidding Adieu to Instagram Your Complete Deletion Manual for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-branding-excellence-youtube-naming-masterclass/"><u>[New] Branding Excellence YouTube Naming Masterclass</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-how-to-shoot-hdr-photos-with-iphone-for-2024/"><u>[Updated] How to Shoot HDR Photos with iPhone for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-cha-cha-chickadees/"><u>2024 Approved Cha-Cha Chickadees</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/apple-iphone-14-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 14 Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oppo-f25-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Oppo F25 Pro 5G Devices</u></a></li>
-<li><a href="https://fox-access.techidaily.com/innovation-unleashed-cutting-edge-ar-games-for-2024/"><u>Innovation Unleashed Cutting-Edge AR Games for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unveiling-the-eight-best-free-video-editing-software-for-social-media/"><u>Unveiling the Eight Best FREE Video Editing Software for Social Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-practices-for-youtube-to-igtv-transformation/"><u>[New] Best Practices for YouTube to IGTV Transformation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-efficiently-add-youtube-playlists-to-your-website-interface/"><u>2024 Approved Efficiently Add YouTube Playlists to Your Website Interface</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-filmfusion-studio-win8/"><u>2024 Approved FilmFusion Studio Win8</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diagnosing-the-silent-phone-effective-remedies-to-restore-your-iphones-ringtones/"><u>Diagnosing the 'Silent Phone': Effective Remedies to Restore Your iPhone's Ringtones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/does-instant-subscription-strategy-improve-user-engagement-in-2024/"><u>Does Instant Subscription Strategy Improve User Engagement, In 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-14-pro-max-location-on-twitter-drfone-by-drfone-virtual-ios/"><u>How to Change your Apple iPhone 14 Pro Max Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-youtube-viewership-6-proven-methods/"><u>Mastering the Art of YouTube Viewership 6 Proven Methods</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/meet-the-team-at-movavi-learn-more-about-us/"><u>Meet the Team at Movavi - Learn More About Us</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-through-gopros-burst-recording-options-for-2024/"><u>Navigating Through GoPro's Burst Recording Options for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-the-power-of-sony-vegas-to-enhance-your-youtube-channel/"><u>Unlock the Power of Sony Vegas to Enhance Your YouTube Channel</u></a></li>
 </ul></div>
 

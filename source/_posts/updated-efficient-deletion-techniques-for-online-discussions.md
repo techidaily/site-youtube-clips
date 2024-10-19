@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-10-07T17:06:44.977Z
-updated: 2024-10-12T22:52:57.789Z
+date: 2024-10-17T22:16:55.921Z
+updated: 2024-10-18T16:53:04.375Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -69,13 +76,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -89,6 +89,19 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -111,10 +124,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -126,13 +139,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -141,6 +147,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -148,13 +161,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,22 +177,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-boost-your-youtube-earnings-with-effective-adsense-use/"><u>[New] Boost Your YouTube Earnings with Effective AdSense Use</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[New] Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-progression-reach-and-maintain-10k-viewer-threshold/"><u>[New] Channel Progression Reach and Maintain 10K Viewer Threshold</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-select-the-superior-a-guide-to-8-outstanding-free-android-mp3-downloaders/"><u>[New] Select the Superior A Guide to 8 Outstanding Free Android MP3 Downloaders</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>[Updated] Boosting Your Content Quality Essential Tips for YouTube Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[Updated] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-endless-entertainment-loop-youtube-videos-for-continuous-tv-viewing/"><u>[Updated] Endless Entertainment Loop YouTube Videos for Continuous TV Viewing</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-youtube-end-screen-templates-for-content-makers/"><u>[Updated] In 2024, Essential YouTube End Screen Templates for Content Makers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-social-metaverse-titles-top-10-multiplayer-classics/"><u>2024 Approved Social Metaverse Titles Top 10 Multiplayer Classics</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-windows-10-ultimate-screen-capture-tool/"><u>2024 Approved Windows 10 Ultimate Screen Capture Tool</u></a></li>
-<li><a href="https://win11.techidaily.com/fixing-internet-connections-a-guide-for-steam-on-windows/"><u>Fixing Internet Connections: A Guide for Steam on Windows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oppo-find-x7-ultra-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Oppo Find X7 Ultra without App | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/rallying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>Rallying Towards Partnership Reach the Critical 10K View Target Quickly</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>Streamline Video Analytics A Guide to YouTube Statistics with Social Blade</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-techniques-to-solve-overwatch-2-not-working-problem/"><u>Top Techniques to Solve 'Overwatch 2 Not Working' Problem</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/youtube-to-mp4-get-free-hd1080p-from-facebook-vids-for-2024/"><u>YouTube-to-MP4 Get Free HD/1080P From Facebook Vids for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>[New] A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[New] In 2024, Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-the-payment-structure-on-youtube/"><u>2024 Approved Decoding the Payment Structure on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-change-youtube-video-playback-speed-desktopmobile/"><u>2024 Approved How to Change YouTube Video Playback Speed [Desktop/Mobile]</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engaging-subjects-for-consistent-vlogging/"><u>Engaging Subjects for Consistent Vlogging</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-windows-unhandled-exception-a-step-by-step-process/"><u>Fixing Windows 'Unhandled Exception': A Step-by-Step Process</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-the-nuances-zooming-in-on-roblox-for-2024/"><u>Navigating the Nuances Zooming In on Roblox for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722980330154-troubleshoot-and-resolve-pc-issues-in-assassins-creed-odyssey-no-sweat/"><u>Troubleshoot and Resolve PC Issues in Assassin's Creed Odyssey - No Sweat!</u></a></li>
 </ul></div>
 

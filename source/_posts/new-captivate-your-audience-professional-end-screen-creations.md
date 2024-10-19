@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivate Your Audience  Professional End Screen Creations\""
-date: 2024-10-11T20:45:36.024Z
-updated: 2024-10-13T00:14:38.486Z
+date: 2024-10-11T17:37:59.997Z
+updated: 2024-10-18T22:59:28.463Z
 tags:
   - ai video
   - ai youtube
@@ -91,16 +91,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -116,20 +116,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
-
-![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 <!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
@@ -138,18 +134,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 <img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
+
+![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -166,24 +166,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>[New] 7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elevate-vlogging-effective-use-of-jump-cuts/"><u>[New] Elevate Vlogging Effective Use of Jump Cuts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-5-quick-filming-diy-hacks-to-try-at-home-for-2024/"><u>[New] Top 5 Quick Filming DIY Hacks to Try at Home for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-10-volume-elevators-for-windows-ios-and-android/"><u>[Updated] Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comparing-profits-from-high-ranking-youtube-videos/"><u>[Updated] Comparing Profits From High-Ranking YouTube Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-safeguarding-your-snaps-secure-backup-from-phone-to-snapchat/"><u>2024 Approved Safeguarding Your Snaps Secure Backup From Phone to Snapchat</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-guide-to-transforming-your-youtube-channel-via-wirecast/"><u>2024 Approved The Ultimate Guide to Transforming Your Youtube Channel via WireCast</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/banishing-lag-issues-for-a-smoother-outriders-gaming-experience/"><u>Banishing Lag Issues for a Smoother Outriders Gaming Experience</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-microsoft-sound-card-driver-download-for-windows-pcs/"><u>Free Microsoft Sound Card Driver Download for Windows PCs</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-14-plus-with-imei-code-by-drfone-ios/"><u>How to Unlock iPhone 14 Plus with IMEI Code?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-youtubes-creative-commons-framework-effectively/"><u>Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-how-to-use-korean-to-english-video-translators-for-creators/"><u>New In 2024, How To Use Korean to English Video Translators for Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essence-of-youtubes-new-shorts-investment-scheme/"><u>The Essence of YouTube's New Shorts Investment Scheme</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/turn-backwards-youtube-content-inversion-tips/"><u>Turn Backwards YouTube Content Inversion Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-vs-dailymotion-key-platform-distinctions/"><u>YouTube Vs. Dailymotion Key Platform Distinctions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[New] Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-drift-specter-snapshot-analysis/"><u>[New] In 2024, Drift Specter Snapshot Analysis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamline-and-supercharge-your-ps3-gameplay-recording-experience/"><u>[Updated] Streamline and Supercharge Your PS3 Gameplay Recording Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-samsung-galaxy-s23-ultra-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Samsung Galaxy S23 Ultra Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/analyzing-ownership-rights-in-youtube-vs-freedom-of-use-in-cc/"><u>Analyzing Ownership Rights in Youtube Vs. Freedom Of Use In CC</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/background-excision-tool-affinity-photo/"><u>Background Excision Tool Affinity Photo</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-successfully-navigating-and-fixing-launch-issues-in-rocket-league/"><u>Expert Advice: Successfully Navigating and Fixing Launch Issues in Rocket League</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/leading-gallery-archive-services-for-2024/"><u>Leading Gallery Archive Services for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-design-selecting-ideal-dimensions-for-yt-branding/"><u>Mastering the Art of Design Selecting Ideal Dimensions for YT Branding</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/streaming-the-threads-an-all-inclusive-2023-vlog-series/"><u>Streaming the Threads An All-Inclusive 2023 Vlog Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/use-social-blade-for-youtube-analytics-stats-and-how-to-use-them/"><u>Use Social Blade for YouTube Analytics - Stats & How to Use Them</u></a></li>
 </ul></div>
 

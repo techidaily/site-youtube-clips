@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-09T16:50:31.237Z
-updated: 2024-10-12T20:06:07.406Z
+date: 2024-10-12T23:54:28.106Z
+updated: 2024-10-18T18:02:02.955Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,19 +141,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-design-channels-get-free-visuals-now/"><u>[New] Design Channels - Get Free Visuals Now</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-new-heights-top-10-adventure-channels/"><u>[New] Discover New Heights Top 10 Adventure Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-pathway-to-instagrams-elite-circle-expanding-your-audience-with-key-tips-for-2024/"><u>[Updated] The Pathway to Instagram's Elite Circle Expanding Your Audience with Key Tips for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-convert-waters-10-tips-for-youtube-to-mp4mpeg/"><u>2024 Approved Navigating the Convert Waters 10 Tips for YouTube to MP4/MPEG</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-troubleshoot-black-screen-woes-in-youtube-playback/"><u>2024 Approved Troubleshoot Black Screen Woes in Youtube Playback</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/re-the-essence-of-your-favorite-series-with-these-extractors/"><u>Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-covert-content-creation-how-to-invisibly-alter-videos/"><u>In 2024, Covert Content Creation How to Invisibly Alter Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-engagement-with-these-10-premier-youtube-seo-instruments/"><u>In 2024, Elevate Engagement with These 10 Premier YouTube SEO Instruments</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Find X6? | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/navigating-keyword-strategies-for-youtube-success-for-2024/"><u>Navigating Keyword Strategies for YouTube Success for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcome-madden-nfl-22s-load-screen-delays-quick-fixes-and-expert-advice/"><u>Overcome Madden NFL 22'S Load Screen Delays - Quick Fixes and Expert Advice</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-fix-for-broken-headphone-connection-in-windows-10-devices/"><u>The Ultimate Fix for Broken Headphone Connection in Windows 10 Devices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-an-easy-guide-to-embedding-mp3-files-into-presentations/"><u>[New] An Easy Guide to Embedding MP3 Files Into Presentations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-ecological-architecture-merging-nature-and-city-planning/"><u>[New] Ecological Architecture Merging Nature and City Planning</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-frame-by-frame-findings-insightful-recorder-analysis/"><u>[New] Frame by Frame Findings Insightful Recorder Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-achieve-stellar-clickthrough-rates-via-thumbnail-enlargement-on-youtube/"><u>[Updated] Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[Updated] Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-asus-proart-4k-ultra-a-pro-artists-dream-display/"><u>2024 Approved ASUS ProArt 4K Ultra A Pro Artist's Dream Display</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/artificial-intelligence-and-trust-issues-understanding-6-major-red-flags/"><u>Artificial Intelligence and Trust Issues: Understanding 6 Major Red Flags</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bridging-linguistic-gaps-with-chatgpt-assistance/"><u>Bridging Linguistic Gaps with ChatGPT Assistance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-your-way-to-frequent-payments-from-youtube/"><u>Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deciphering-the-differences-between-youtubes-and-dailymentions/"><u>Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flash-share-sharing-playlists-in-a-snap/"><u>Flash-Share Sharing Playlists in a Snap</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-phone-pics-to-professional-videos-selecting-the-top-9-enhancers/"><u>From Phone Pics to Professional Videos Selecting the Top 9 Enhancers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/installing-the-official-epson-es-400-scanning-drivers-for-windows-computers/"><u>Installing the Official Epson ES-400 Scanning Drivers for Windows Computers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-itel-a70-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/your-complete-guide-to-chatgpt/"><u>Your Complete Guide to ChatGPT</u></a></li>
 </ul></div>
 

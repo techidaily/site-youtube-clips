@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Roadmap to YouTube Traffic Success"
-date: 2024-10-06T23:20:55.700Z
-updated: 2024-10-12T20:15:37.794Z
+date: 2024-10-11T17:02:28.280Z
+updated: 2024-10-18T21:20:11.485Z
 tags:
   - ai video
   - ai youtube
@@ -156,13 +156,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -198,10 +191,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Who knows, who will respond.
@@ -215,10 +208,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -229,11 +222,25 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -271,13 +278,6 @@ Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -293,24 +293,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-canva-creative-editor-exploration/"><u>[New] Canva Creative Editor Exploration</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-best-video-apps-review-youtube-iphones-and-androids/"><u>[Updated] Best Video Apps Review YouTube iPhones & Androids</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>Designing Youtube Ads That Grab Attention A Compreeher Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dish-on-titles-creative-concepts-for-cookery-vids/"><u>Dish on Titles Creative Concepts for Cookery Vids</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-storytelling-free-soundtrack-options-available/"><u>Elevate Storytelling - Free Soundtrack Options Available</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enrich-viewers-experience-a-comprehensive-guide-to-youtube-end-screens/"><u>Enrich Viewers' Experience A Comprehensive Guide to Youtube End Screens</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/entering-the-fullscreen-realm-choosing-a-cms-for-2024/"><u>Entering the Fullscreen Realm Choosing a CMS for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/get-premium-minecraft-channel-graphics/"><u>Get Premium Minecraft Channel Graphics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-adding-visual-time-indicators-to-your-youtube-links/"><u>In 2024, Adding Visual Time Indicators to Your YouTube Links</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-advanced-techniques-using-jump-cuts-effectively/"><u>In 2024, Advanced Techniques Using Jump Cuts Effectively</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>In 2024, Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-reddits-hidden-gems-6-tactics-that-transform-beginners-into-titans/"><u>In 2024, Reddit's Hidden Gems 6 Tactics That Transform Beginners Into Titans</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-stepwise-approach-to-implementing-youtube-cards-and-annotations/"><u>In 2024, Stepwise Approach to Implementing YouTube Cards & Annotations</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/microsoft-reveals-enhanced-surface-pro-10-and-laptop-similar-seo-titles/"><u>Microsoft Reveals Enhanced Surface Pro 10 & Laptop # Similar SEO Titles</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/playtime-pathways-video-games-resembling-gta-v/"><u>Playtime Pathways Video Games Resembling GTA V</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-5-hd-cameras-for-big-game-capture/"><u>Top 5 HD Cameras for Big Game Capture</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/ultimate-tutorial-how-to-enhance-drone-videos-with-background-music/"><u>Ultimate Tutorial: How To Enhance Drone Videos with Background Music</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/wma-to-mp32024/"><u>WMA to MP3変換簡単方法：2024年リリースの最適ソフトウェア選びと使い方</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-10-game-changing-techniques-to-amplify-your-facebook-presence/"><u>[New] In 2024, 10 Game-Changing Techniques to Amplify Your Facebook Presence</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unveiling-top-win11-videography-software-selections/"><u>[Updated] 2024 Approved Unveiling Top Win11 Videography Software Selections</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-youtube-beauty-mastering-video-color-dynamics/"><u>[Updated] Enhancing YouTube Beauty Mastering Video Color Dynamics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channeling-success-the-personal-brand-strategy-for-youtubers/"><u>2024 Approved Channeling Success The Personal Brand Strategy for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-create-a-youtube-music-playlist-on-web-and-mobile-a-detailed-guidance/"><u>2024 Approved Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>2024 Approved Unlimited Christmas Classics 9 Films Available for No Charge</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earths-highest-paid-online-video-personality/"><u>Earth's Highest-Paid Online Video Personality</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-listening-pleasure-constructing-a-youtube-playlist-for-2024/"><u>Enhance Listening Pleasure Constructing a YouTube Playlist for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/hosting-youtube-webinars-for-no-charge/"><u>Hosting YouTube Webinars for No Charge</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-y100i-power-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo Y100i Power 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-clearing-process-for-youtubes-pending-video-list/"><u>In 2024, Clearing Process for YouTube's Pending Video List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/key-youtube-policies-every-channel-owner-must-understand/"><u>Key YouTube Policies Every Channel Owner Must Understand</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-a-closer-look-at-vn-video-editor-apk-features-pricing-and-more/"><u>New 2024 Approved A Closer Look at VN Video Editor APK Features, Pricing, and More</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/retro-revelry-on-snapchat-camera-roll-insights/"><u>Retro Revelry on Snapchat Camera Roll Insights</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-7-best-ai-prompt-marketplaces/"><u>The 7 Best AI Prompt Marketplaces</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing/"><u>Transforming YouTube Content Advanced Strategies to Perfect Videos After Publishing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unleash-the-power-of-artificial-intelligence-setting-up-nvidias-rtx-chatbot-for-your-pc-use/"><u>Unleash the Power of Artificial Intelligence: Setting Up NVIDIA's RTX Chatbot for Your PC Use</u></a></li>
 </ul></div>
 

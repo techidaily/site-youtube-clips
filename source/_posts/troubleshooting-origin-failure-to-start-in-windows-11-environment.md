@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2024-10-06T00:33:23.609Z
-updated: 2024-10-06T20:43:38.084Z
+date: 2024-10-14T17:01:11.408Z
+updated: 2024-10-18T17:32:36.184Z
 tags:
   - win11
   - win10
@@ -40,19 +40,6 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1: Relog into your account
 
  Re-logging to your desktop is one of the easiest workarounds for you to try. If your Start menu was only gone occasionally, you should go with this option. Here is how you relog into your account:
@@ -77,15 +64,28 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
@@ -93,10 +93,16 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  4) In PowerShell window, copy and paste in the following command and press the**Enter** key on your keyboard:
@@ -155,13 +161,6 @@ net user newusername newpassword /add
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4: Disable or uninstall third-party antivirus programs
 
  If you’ve installed antivirus or anti-malware programs such as Norton, Kaspersky, AVG, Avast Behavior Shield or Malwarebytes, you should **temporarily**   turn them off or disable them to see if they’re causing your Start menu not working problem. If your computer’s Start menu returns to normal when they’re off, you should contact the vendor of the software to see if they can provide some help.
@@ -179,6 +178,19 @@ net user newusername newpassword /add
  1) On your keyboard, press the**Windows logo key** and**R**  at the same time, type**control** in and press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) View by**Category** , then click**Uninstall a program** .
 
@@ -210,24 +222,51 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4) Type**sfc /scannow** in and press the**Enter** key on your keyboard. Wait for a while for the process to complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b9c44015d6.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If the result you see is the same with the screen shot above, your system files are all right, and you should move on and run another test. 5) Copy and paste the following command in, and press the Enter key on your keyboard. Still, it could take a while, wait with patience.
 
@@ -238,13 +277,6 @@ DISM /Online /Cleanup-Image /RestoreHealth
 6) When these two tests finishes, check if your Start menu is back.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8: Reinstall Cortana
 
@@ -262,26 +294,12 @@ DISM /Online /Cleanup-Image /RestoreHealth
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Copy and paste the following command in and press the **Enter** key on your keyboard.
 
 Get-AppXPackage -Name Microsoft.Windows.Cortana | Foreach {Add-AppxPackage -DisableDevelopmentMo  
 de -Register "$($_.InstallLocation)\AppXManifest.xml"}
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b9cce6260c.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If this command is not working in your case, try the following command instead:
 
@@ -312,18 +330,19 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-solo-stream-triumph-strategies-for-clear-consistent-broadcasts/"><u>[New] 2024 Approved Solo Stream Triumph Strategies for Clear, Consistent Broadcasts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-compilation-of-top-10-free-youtube-spaces-for-digital-illustrators/"><u>[New] 2024 Approved The Ultimate Compilation of Top 10 Free YouTube Spaces for Digital Illustrators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-a-beginners-guide-to-sony-vegas-and-youtube-cutting/"><u>[New] A Beginner's Guide to Sony Vegas and YouTube Cutting</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-deep-dive-into-the-features-of-lgs-ultrafine-4k-display/"><u>[New] In 2024, Deep Dive Into the Features of LG's UltraFine 4K Display</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-inshot-audio-techniques-for-professional-editors/"><u>[New] InShot Audio Techniques for Professional Editors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enrich-viewers-experience-a-comprehensive-guide-to-youtube-end-screens/"><u>[Updated] Enrich Viewers' Experience A Comprehensive Guide to Youtube End Screens</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/compreran-yoga-moves-check-out-top-10-youtube-channels-for-2024/"><u>Compreran Yoga Moves? Check Out Top 10 YouTube Channels for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/diverse-voices-all-african-languages-unveiled/"><u>Diverse Voices: All African Languages Unveiled</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/gamers-signature-look-essential-template-tips-for-channels/"><u>Gamers' Signature Look Essential Template Tips for Channels</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722999638756-immortals-of-the-fenyx-series-release-obstacles-overcome-and-launch-achieved/"><u>Immortals of the Fenyx Series – Release Obstacles Overcome & Launch Achieved!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/order-matters-a-step-by-step-guide-to-enjoy-every-star-trek-film/"><u>Order Matters: A Step-by-Step Guide to Enjoy Every Star Trek Film</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-to-friendly-metaverse-gaming/"><u>The Ultimate Guide to Friendly Metaverse Gaming</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshoot-and-resolve-control-application-errors-swiftly-and-effectively/"><u>Troubleshoot & Resolve Control Application Errors Swiftly & Effectively!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uto-play-youtube-keep-it-hidden-stay-connected/"><u>[New] Auto-Play YouTube - Keep It Hidden, Stay Connected</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-boosting-engagement-joint-video-strategies-for-growth/"><u>[New] Boosting Engagement Joint Video Strategies for Growth</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-apples-silicon-spectrum-comparing-m1-pro-and-the-powerhouse-m1-max/"><u>[Updated] Apple's Silicon Spectrum Comparing M1 Pro and the Powerhouse M1 Max</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-video-format-for-youtube-uploading/"><u>[Updated] Best Video Format for YouTube Uploading</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-charting-the-future-essential-online-stock-yts-for-2024/"><u>[Updated] Charting the Future Essential Online Stock YTs for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>[Updated] The Ultimate Guide Key Drone Upgrades & Supplies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-10-highest-performing-business-youtube-platforms-explained/"><u>2024 Approved 10 Highest Performing Business YouTube Platforms Explained</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cultivating-connection-not-compulsion-in-subscriptions-for-2024/"><u>Cultivating Connection, Not Compulsion in Subscriptions for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/easy-steps-for-seamless-mov-conversion-from-dvd/"><u>Easy Steps for Seamless MOV Conversion From DVD</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts-for-2024/"><u>Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-itel-phone-by-drfone-android/"><u>How to Unlock a Network Locked Itel Phone?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-12-pro-max-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone 12 Pro Max Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/innovations-in-youtube-shorts-templates-latest-trends-and-tips/"><u>Innovations in YouTube Shorts Templates Latest Trends & Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-footage-the-ultimate-guide-to-youtube-video-editing/"><u>Transforming Footage The Ultimate Guide to YouTube Video Editing</u></a></li>
 </ul></div>
 

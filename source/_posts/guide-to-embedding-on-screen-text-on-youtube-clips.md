@@ -1,7 +1,7 @@
 ---
 title: "\"Guide to Embedding On-Screen Text on YouTube Clips\""
-date: 2024-08-03T03:22:44.635Z
-updated: 2024-08-04T03:22:44.635Z
+date: 2024-10-12T16:47:31.076Z
+updated: 2024-10-18T19:00:01.449Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ Before uploading the video to YouTube, it is recommended to add text to the vide
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
@@ -49,9 +46,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 * To change the color of your text, go into the **Customize**  menu. You will find it near the top left of your screen. While you are in **Customize** there will be a section called **Fill**. This is where you select the color of your text. You can even change the fill type to ‘gradient fill’ and have your text transition between two colors.
 * All of Filmora’s text options are animated – they fade, move around the screen, or perform some other type of action as they appear and disappear. To change the animation of your text select **Animation** next to **Customize**. A selection of different animations will appear. Double click on the one you want to apply to your text.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -92,6 +86,13 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -102,18 +103,19 @@ Of course, you can only add and edit texts and captions to the video under your 
 * Click the **Video Manager** tab and in Videos section you will see all your videos uploaded to YouTube. Select the video that you want to add captions to and then select **Subtitles/CC** after clicking Edit button.
 * Add Captions/Subtitles
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
 **Upload a file:** upload a text transcript or timed subtitles file.
@@ -133,8 +135,12 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -155,10 +161,14 @@ Text is a great tool for making something stand out. However, if you try to use 
 
 Try to use text to emphasize only the most important things you say.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -168,11 +178,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>[New] Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dodge-digital-duplicates-to-increase-youtube-exposure/"><u>[New] Dodge Digital Duplicates to Increase YouTube Exposure</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-teaching-trends-top-10-innovative-audio-visual-recording-tools/"><u>[New] Teaching Trends Top 10 Innovative Audio-Visual Recording Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-mastering-access-to-royalty-free-design-tools-for-2024/"><u>[Updated] Mastering Access to Royalty-Free Design Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-earn-online-via-youtube-how-reaching-500-subscribers-pays-off/"><u>2024 Approved Earn Online via YouTube How Reaching 500 Subscribers Pays Off</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-prowess-in-color-correction-the-ultimate-11-tutorials/"><u>2024 Approved Prowess in Color Correction The Ultimate 11 Tutorials</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/creer-un-planificateur-dexecution-preprogramme-avec-synctoy-sur-windows-10/"><u>Créer Un Planificateur D'Exécution Préprogrammé Avec Synctoy Sur Windows 10</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-your-channels-ranking-simple-strategies-unveiled/"><u>Elevating Your Channel's Ranking Simple Strategies Unveiled</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/excel-range-calculation-secrets-learn-how-to-easily-identify-cell-ranges/"><u>Excel Range Calculation Secrets - Learn How To Easily Identify Cell Ranges</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-epic-playlist-over-a-hundred-top-tier-titles/"><u>In 2024, Epic Playlist Over a Hundred Top-Tier Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/innovator-of-cinematic-soundscapes-and-imagery/"><u>Innovator of Cinematic Soundscapes & Imagery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagrams-hidden-gems-how-to-upload-large-amounts-of-content/"><u>Instagram's Hidden Gems How to Upload Large Amounts of Content</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-itel-s23-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Itel S23 Device</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-the-nuances-of-borders-in-images-using-canva/"><u>Navigating the Nuances of Borders in Images Using Canva</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-blueprint-to-tally-your-youtube-growth-and-income/"><u>The Complete Blueprint to Tally Your YouTube Growth and Income</u></a></li>
+<li><a href="https://media-tips.techidaily.com/troubleshooting-made-simple-learn-to-connect-detach-and-reinitialize-your-apple-tv-remote-controller-instructions/"><u>Troubleshooting Made Simple: Learn to Connect, Detach & Reinitialize Your Apple TV Remote Controller Instructions.</u></a></li>
+</ul></div>
+
