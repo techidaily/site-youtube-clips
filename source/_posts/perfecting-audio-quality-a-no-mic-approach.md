@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-10-14T18:41:16.819Z
-updated: 2024-10-18T16:00:54.843Z
+date: 2024-10-18T16:37:09.257Z
+updated: 2024-10-24T16:16:48.711Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -79,13 +86,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -93,13 +93,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -110,10 +103,10 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -122,13 +115,20 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,24 +146,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-earning-at-age-ten-the-extraordinary-financial-rise-of-ryan-kaji/"><u>[New] Earning at Age Ten The Extraordinary Financial Rise of Ryan Kaji</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-strategies-for-effective-content-management-in-creator-studio/"><u>[New] Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-studio-audit-earnings-review/"><u>[New] YouTube Studio Audit Earnings Review</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/accelerate-your-laptops-performance-by-quickly-updating-synaptics-touchpad-drivers/"><u>Accelerate Your Laptop's Performance by Quickly Updating Synaptics Touchpad Drivers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/access-creative-banners-for-video-makers-at-zero-price/"><u>Access Creative Banners for Video Makers at Zero Price</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/amazon-prime-guide-restoring-proper-functionality-to-missing-or-broken-subtitles/"><u>Amazon Prime Guide: Restoring Proper Functionality to Missing or Broken Subtitles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/average-gain-for-youtubers-per-ad-exposure-for-2024/"><u>Average Gain for YouTubers per Ad Exposure for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/bespoke-urls-for-youtube-channels-an-easy-way/"><u>Bespoke URLs for YouTube Channels An Easy Way</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels-for-2024/"><u>Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/evaluating-the-credibility-of-chatgpt-a-look-into-its-propensity-for-honesty/"><u>Evaluating the Credibility of ChatGPT: A Look Into Its Propensity for Honesty</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-the-visual-language-of-live-videos-on-youtube/"><u>In 2024, Decoding the Visual Language of Live Videos on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-earning-potential-unveiled-youtube-adsense-earning-per-thousand-video-observations/"><u>In 2024, Earning Potential Unveiled YouTube AdSense Earning per Thousand Video Observations</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-the-full-spectrum-of-sound-best-apps-for-music-videos/"><u>In 2024, Unleash the Full Spectrum of Sound Best Apps for Music Videos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/no-delay-restore-logilda-dll/"><u>No Delay: Restore LogiLDA DLL</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pretending-playfulness-making-mocks-and-laughs/"><u>Pretending Playfulness Making Mocks and Laughs</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-not-responsive-spotify-error-in-windows-oses/"><u>Resolving Not Responsive Spotify Error in Windows OSes</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-for-transforming-gif-images-into-mov-format-across-pc-and-mac-devices/"><u>Step-by-Step Tutorial for Transforming GIF Images Into Mov Format Across PC and Mac Devices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-nokia-150-2023-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Nokia 150 (2023) for Parents | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-steps-dealing-with-binkw32dll-file-absent-errors-easily/"><u>Troubleshooting Steps: Dealing With binkw32.dll File Absent Errors Easily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-balancing-viral-potential-with-long-term-traction-in-videos/"><u>[New] Balancing Viral Potential with Long-Term Traction in Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-broadcast-your-google-meet-directly-to-youtubes-stage/"><u>[Updated] Broadcast Your Google Meet Directly to YouTube's Stage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-narrative-flow-expert-tips-on-using-jump-cuts/"><u>[Updated] Elevate Narrative Flow Expert Tips on Using Jump Cuts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-entering-income-territory-with-a-thousand-followers/"><u>[Updated] Entering Income Territory with a Thousand Followers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-premier-ai-for-stunning-photo-creation/"><u>[Updated] In 2024, Premier AI for Stunning Photo Creation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-updated-conversation-strategies-for-podcast-growth/"><u>2024 Approved Updated Conversation Strategies for Podcast Growth</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-comical-voyage-analyzing-the-goofy-escapade-for-2024/"><u>A Comical Voyage Analyzing 'The Goofy Escapade' For 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/as-5-melhores-tecnicas-de-criacao-de-colagens-em-2024-um-guia-completo/"><u>As 5 Melhores Técnicas De Criação De Colagens Em 2024: Um Guia Completo</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bargain-alert-key-enthusiasts-snag-612lifetime-windows-11-deal-today-only/"><u>Bargain Alert: Key Enthusiasts Snag $6.12/Lifetime Windows 11 Deal Today Only</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-13-mini-activation-lock-without-previous-owner-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 13 mini activation lock without previous owner</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/explore-the-past-study-better-student-approved-historical-youtube-channels/"><u>Explore the Past, Study Better Student-Approved Historical YouTube Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-adsense-profits-on-youtube-revenue-per-kv-watched/"><u>In 2024, Deciphering AdSense Profits on YouTube Revenue per KV Watched</u></a></li>
+<li><a href="https://windows11.techidaily.com/initiating-windows-11s-concealed-query-engine/"><u>Initiating Windows 11'S Concealed Query Engine</u></a></li>
+<li><a href="https://techidaily.com/tecno-data-recovery-recover-lost-data-from-tecno-spark-20-proplus-by-fonelab-android-recover-data/"><u>Tecno Data Recovery – recover lost data from Tecno Spark 20 Pro+</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/understanding-legality-in-screenshots-from-youtube/"><u>Understanding Legality in Screenshots From YouTube</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unstick-windows-keyboard-step-by-step-guide-for-a-smooth-typing-experience/"><u>Unstick Windows Keyboard: Step-by-Step Guide for a Smooth Typing Experience</u></a></li>
 </ul></div>
 

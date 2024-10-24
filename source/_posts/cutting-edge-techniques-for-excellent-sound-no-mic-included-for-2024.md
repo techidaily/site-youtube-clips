@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Techniques for Excellent Sound, No Mic Included for 2024\""
-date: 2024-08-03T03:21:35.834Z
-updated: 2024-08-04T03:21:35.834Z
+date: 2024-10-18T16:52:46.025Z
+updated: 2024-10-24T17:00:37.122Z
 tags:
   - ai video
   - ai youtube
@@ -47,18 +47,12 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Pick a Good Room
 
 There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
@@ -86,8 +80,18 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -95,6 +99,13 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -105,22 +116,26 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,11 +143,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-crime-consortium-top-titles-echoing-gta-v-for-2024/"><u>[New] Crime Consortium Top Titles Echoing GTA V for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-new-laptop-features-with-m1-max-clips/"><u>[New] In 2024, Navigating New Laptop Features with M1 Max Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-3-part-blueprint-to-monitor-and-maximize-your-youtube-profits/"><u>[Updated] 3-Part Blueprint to Monitor and Maximize Your YouTube Profits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-craft-engaging-videos-insights-into-youtube-movie-maker/"><u>[Updated] Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-adopt-the-best-practices-of-live-streaming-with-google-meet-youtube/"><u>2024 Approved Adopt the Best Practices of Live Streaming with Google Meet Youtube</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/comment-transformer-en-complementaire-gratuit-de-h264-a-h265-pour-une-diminution-despace-sans-compromettre-la-qualite/"><u>Comment Transformer en Complémentaire Gratuit - De H.264 À H.265 Pour Une Diminution D'Espace Sans Compromettre La Qualité</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-speaker-change-devices-for-youtube-gurus/"><u>Expert Speaker Change Devices for YouTube Gurus</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/how-to-save-your-favorite-skillmeup-lessons-as-high-quality-video-files/"><u>How To Save Your Favorite SkillMeup Lessons as High-Quality Video Files</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cross-media-content-flow-from-youtube-to-thirtyplus-others/"><u>In 2024, Cross-Media Content Flow From YouTube to Thirty+ Others</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-5-iphone-backdrop-modification-programs/"><u>In 2024, Leading 5 iPhone Backdrop Modification Programs</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-ultimate-tiktok-video-locker-free-and-clear/"><u>In 2024, The Ultimate TikTok Video Locker - FREE & Clear</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-cleanshot-for-windows-free-version-available-now-optimize-your-pc/"><u>Movavi CleanShot for Windows: Free Version Available Now - Optimize Your PC</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/screen-spectrum-your-gateway-to-gameplay/"><u>Screen Spectrum Your Gateway to Gameplay</u></a></li>
+<li><a href="https://win-bits.techidaily.com/step-by-step-guide-to-retrieving-lost-pictures-on-a-usb-stick-with-ease/"><u>Step-by-Step Guide to Retrieving Lost Pictures on a USB Stick with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-shorts-dividing-profits-among-making-crew/"><u>YouTube Shorts Dividing Profits Among Making Crew</u></a></li>
+</ul></div>
+

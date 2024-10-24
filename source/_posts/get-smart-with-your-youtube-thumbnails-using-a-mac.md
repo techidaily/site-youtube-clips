@@ -1,7 +1,7 @@
 ---
 title: "Get Smart with Your YouTube Thumbnails, Using a Mac"
-date: 2024-08-03T03:16:29.986Z
-updated: 2024-08-04T03:16:29.986Z
+date: 2024-10-22T17:31:40.745Z
+updated: 2024-10-24T16:52:09.356Z
 tags:
   - ai video
   - ai youtube
@@ -30,19 +30,8 @@ As a Youtuber, the first thing you would want is to achieve is a high number of 
 
 However, if you are wondering how that can be achieved then fret no longer for this article will explain the simple process of creating youtube thumbnails easily. All you need is a capable thumbnail maker like [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) that can do it all for you in one automagical flourish!
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube thumbnail mac](https://images.wondershare.com/filmora/Mac-articles/youtube-thumbnail-mac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is a Youtube Thumbnail?
 
 A youtube thumbnail is a smaller version of the video, a snapshot that you choose as a preview of your video. A Thumbnail is extremely important because it is essentially the outer packaging of your video; its front cover.
@@ -53,21 +42,29 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -76,23 +73,30 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -108,9 +112,6 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -119,11 +120,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-advanced-techniques-for-preserving-lol-skirmishes/"><u>[New] 2024 Approved Advanced Techniques for Preserving LOL Skirmishes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-beyond-vidcon-top-50-youtube-celebrations/"><u>[New] Beyond VidCon Top 50 YouTube Celebrations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>[New] Enhance Your Channel's Image Adding Watermarks & Logos to Video Posts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfecting-color-the-top-15-gopro-luts-for-filmmaking/"><u>[New] Perfecting Color The Top 15 GoPro LUTs for Filmmaking</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-access-to-high-definition-facebook-videos/"><u>[New] Unlocking Access to High-Definition Facebook Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-evaluating-the-skys-new-kid-on-the-block-syma-x5c-review/"><u>[Updated] 2024 Approved Evaluating the Sky's New Kid on the Block – Syma X5C Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[Updated] Creating Cash Flow on YouTube An Ad-Free Blueprint for Income</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-list-of-serene-pc-gaming/"><u>2024 Approved The Ultimate List of Serene PC Gaming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-creatives-making-marvel-virtual-worlds-vivid/"><u>In 2024, Creatives Making Marvel Virtual Worlds Vivid</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-defining-your-digital-dna-a-guide-to-youtubing-personal-branding/"><u>In 2024, Defining Your Digital DNA A Guide to YouTubing Personal Branding</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/installing-nvme-drivers-on-windows-a-comprehensive-tutorial-guide/"><u>Installing NVMe Drivers on Windows: A Comprehensive Tutorial Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-honor-x9b-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Honor X9b Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/refine-and-revamp-your-youtube-clips-using-wm-maker/"><u>Refine and Revamp Your YouTube Clips Using WM Maker</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/spreading-beauty-wisdom-setting-up-your-vloggers-virtual-space/"><u>Spreading Beauty Wisdom Setting Up Your Vlogger's Virtual Space</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-the-new-amazon-echo-show-10-gen-3-smart-interactions-and-portable-designs/"><u>The Ultimate Guide to the New Amazon Echo Show 10 - Gen 3: Smart Interactions and Portable Designs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transform-videos-into-attractors-try-these-7-thumbnail-makers/"><u>Transform Videos Into Attractors - Try These 7 Thumbnail Makers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/windows-11mov/"><u>Windows 11で動画再生がうまくいかない？最新MOVプレーヤーソリューションを見つけよう！</u></a></li>
+</ul></div>
+

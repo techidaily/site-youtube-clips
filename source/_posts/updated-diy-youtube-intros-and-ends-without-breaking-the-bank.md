@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-12T23:54:28.106Z
-updated: 2024-10-18T18:02:02.955Z
+date: 2024-10-19T17:35:09.083Z
+updated: 2024-10-24T17:30:57.815Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +126,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,20 +147,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-an-easy-guide-to-embedding-mp3-files-into-presentations/"><u>[New] An Easy Guide to Embedding MP3 Files Into Presentations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-ecological-architecture-merging-nature-and-city-planning/"><u>[New] Ecological Architecture Merging Nature and City Planning</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-frame-by-frame-findings-insightful-recorder-analysis/"><u>[New] Frame by Frame Findings Insightful Recorder Analysis</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieve-stellar-clickthrough-rates-via-thumbnail-enlargement-on-youtube/"><u>[Updated] Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>[Updated] Elevate Your Channel Techniques for Logo Insertion in Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-asus-proart-4k-ultra-a-pro-artists-dream-display/"><u>2024 Approved ASUS ProArt 4K Ultra A Pro Artist's Dream Display</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/artificial-intelligence-and-trust-issues-understanding-6-major-red-flags/"><u>Artificial Intelligence and Trust Issues: Understanding 6 Major Red Flags</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/bridging-linguistic-gaps-with-chatgpt-assistance/"><u>Bridging Linguistic Gaps with ChatGPT Assistance</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-your-way-to-frequent-payments-from-youtube/"><u>Charting Your Way to Frequent Payments From YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-the-differences-between-youtubes-and-dailymentions/"><u>Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/flash-share-sharing-playlists-in-a-snap/"><u>Flash-Share Sharing Playlists in a Snap</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-phone-pics-to-professional-videos-selecting-the-top-9-enhancers/"><u>From Phone Pics to Professional Videos Selecting the Top 9 Enhancers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/installing-the-official-epson-es-400-scanning-drivers-for-windows-computers/"><u>Installing the Official Epson ES-400 Scanning Drivers for Windows Computers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-itel-a70-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/your-complete-guide-to-chatgpt/"><u>Your Complete Guide to ChatGPT</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-ace-your-viewing-experience-onboarding-av1-in-youtube/"><u>[New] Ace Your Viewing Experience Onboarding AV1 in YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>[New] Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-into-the-virtual-vortex-mastering-techniques-of-gameplay-recording/"><u>[New] Into the Virtual Vortex Mastering Techniques of Gameplay Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-access-free-photographic-treasures-through-favored-4-youtube-clips/"><u>[Updated] Access Free Photographic Treasures Through Favored 4 Youtube Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-content-with-professional-end-screen-templates/"><u>2024 Approved Elevate Your Content with Professional End Screen Templates</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-itel-a70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/best-ios-data-recovery-tools-of-2024-top-picks-with-ios-17-compatibility/"><u>Best iOS Data Recovery Tools of 2024: Top Picks with iOS 17 Compatibility</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-tube-the-premier-spots-for-online-video-sharing/"><u>Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/download-youtube-audio-safely-and-legally-in-3-ways-for-2024/"><u>Download Youtube Audio Safely & Legally in 3 Ways for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a2-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A2 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-download-hp-deskjet-2755e-printer-drivers-for-windows-pcs/"><u>Free Download: HP DeskJet 2755E Printer Drivers for Windows PCs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-incorporating-captions-into-instagrams-video-platform/"><u>In 2024, Incorporating Captions Into Instagram's Video Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/integrating-chroma-keying-into-your-edit-suite/"><u>Integrating Chroma Keying Into Your Edit Suite</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/rendre-gratuite-la-conversion-dun-fichier-ppm-en-bmp-en-ligne-avec-moveavi-un-guide-simple-pour-des-resultats-rapides/"><u>Rendre Gratuite La Conversion D'un Fichier PPM en BMP en Ligne Avec MoveAVI – Un Guide Simple Pour Des Résultats Rapides</u></a></li>
 </ul></div>
 

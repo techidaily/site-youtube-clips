@@ -1,7 +1,7 @@
 ---
 title: "The Unseen Factors in Determining a Video’s View Count on YouTube"
-date: 2024-10-16T17:52:26.696Z
-updated: 2024-10-18T19:27:14.418Z
+date: 2024-10-18T17:54:29.578Z
+updated: 2024-10-24T16:46:57.558Z
 tags:
   - ai video
   - ai youtube
@@ -42,18 +42,18 @@ After you have created your YouTube channel, do you want to edit videos and uplo
 
 You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Not Everyone Who Clicks Adds to Your View Count
 
 YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
 
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. How Does YouTube Count Views?
 
@@ -65,13 +65,6 @@ At times, your view count can even be frozen temporarily until the algorithm can
 
 You May Also Like:
 [ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. How Does YouTube’s View Count Algorithm Work?
 
@@ -90,10 +83,10 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
@@ -103,13 +96,6 @@ Something else that can affect whether a view is counted is the behavior of the 
 One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
 
 Any bot-like action will result in an account’s views do not be added to your view count.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. The Skip & Skim
 
@@ -129,6 +115,13 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
@@ -136,6 +129,13 @@ In short, we know YouTube expects a viewer to watch a video for around 30 second
 If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -154,17 +154,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-content-masterpieces-with-these-essential-youtube-tips/"><u>[New] Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-how-to-transcribe-live-broadcasts-into-digital-format/"><u>[Updated] In 2024, How to Transcribe Live Broadcasts Into Digital Format</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-apex-creative-workspace-report-in-depth-studio-analysis-2023/"><u>2024 Approved Apex Creative Workspace Report In-Depth Studio Analysis, 2023</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/best-video-makers-with-music-and-photos/"><u>Best Video Makers with Music and Photos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/budget-friendly-methods-for-youtube-card-creation/"><u>Budget-Friendly Methods for YouTube Card Creation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>Bypassing YouTube's Copyright Strike Legal Strategies and Precautions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/conquer-zooms-unnerving-black-screens-a-user-friendly-repair-manual-for-pc/"><u>Conquer Zoom's Unnerving Black Screens: A User-Friendly Repair Manual for PC</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-infinix-hot-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-dissecting-revenue-allocation-for-shortform-content-makers/"><u>In 2024, Dissecting Revenue Allocation for Shortform Content Makers</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/navigating-the-igtv-landscape-a-beginners-roadmap-for-2024/"><u>Navigating the IGTV Landscape A Beginner's Roadmap for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/no-cost-memes-made-simple-our-meme-kit-for-2024/"><u>No-Cost Memes Made Simple Our Meme Kit for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-the-self-play-feature-in-facebook-videos/"><u>[Updated] 2024 Approved Mastering the Self-Play Feature in Facebook Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-content-creators-preferences-vimeo-or-youtube-in-2024/"><u>[Updated] Content Creators' Preferences Vimeo or YouTube, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-youtube-presence-with-audio/"><u>[Updated] Elevate Your Youtube Presence with Audio</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-archive-aesthetics-merge-infinite-gratis-storage-with-elite-subscriptions/"><u>2024 Approved Archive Aesthetics Merge Infinite, Gratis Storage with Elite Subscriptions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-through-the-clutter-how-to-stream-top-notch-upside-down-content-on-youtube-for-2024/"><u>Cutting Through the Clutter How to Stream Top-Notch Upside-Down Content on Youtube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-the-ring-spotlight-cam-pro-exceeded-expectations-a-detailed-review-on-zdnet/"><u>How the Ring Spotlight Cam Pro Exceeded Expectations - A Detailed Review on ZDNet</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/maximizing-harvests-with-ideal-valheim-seeds-for-2024/"><u>Maximizing Harvests with Ideal Valheim Seeds for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximizing-impact-with-every-second-in-a-youtube-short/"><u>Maximizing Impact with Every Second in a YouTube Short</u></a></li>
+<li><a href="https://driver-download.techidaily.com/the-ultimate-guide-to-installing-new-software-on-your-logitech-m510/"><u>The Ultimate Guide to Installing New Software on Your Logitech M510</u></a></li>
 </ul></div>
 

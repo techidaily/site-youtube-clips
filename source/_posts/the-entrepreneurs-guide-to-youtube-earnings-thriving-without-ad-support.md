@@ -1,7 +1,7 @@
 ---
 title: "\"The Entrepreneur’s Guide to YouTube Earnings  Thriving Without Ad Support\""
-date: 2024-10-11T18:45:14.437Z
-updated: 2024-10-18T20:51:42.263Z
+date: 2024-10-18T17:36:30.883Z
+updated: 2024-10-24T17:57:26.998Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -88,13 +95,6 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -109,13 +109,6 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -129,6 +122,13 @@ Here is how you should go about selling your product or service on YouTube:
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
@@ -152,13 +152,6 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
@@ -166,10 +159,10 @@ You can add one or multiple cards to direct viewers to your website or to anothe
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
@@ -185,10 +178,16 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Affiliate Marketing:**
@@ -202,6 +201,13 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
@@ -241,13 +247,6 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -285,6 +284,13 @@ Steps to getting a brand deal:
 
 ##  
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Crowdfunding:**
 
 If you are creating valuable content and have a loyal following, you can start thinking about crowdfunding. It doesn’t take stardom to start asking for donations, pledge, or support from your fans. There is a demand for quality content and if you are creating something of value, even on a free service like YouTube, people will happily pay to support it.
@@ -320,10 +326,10 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Key Takeaways:**
@@ -354,19 +360,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-transforming-your-instagram-video-into-a-social-sensation/"><u>[New] 2024 Approved Transforming Your Instagram Video Into a Social Sensation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-youtube-presence-with-studio-insights/"><u>[New] Elevate Your YouTube Presence with Studio Insights</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-streamlining-social-media-multiplying-instagram-posts-via-photos-and-videos/"><u>[New] In 2024, Streamlining Social Media Multiplying Instagram Posts via Photos & Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-uplifting-daily-existence-videos-for-2024/"><u>[New] Mastering the Art of Uplifting Daily Existence Videos for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-next-gen-content-craze-2024/"><u>[New] Next-Gen Content Craze 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-heart-of-video-editing-filmoras-favorites/"><u>[Updated] The Heart of Video Editing Filmora's Favorites</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>2024 Approved Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-humor-making-funny-parody-videos-for-2024/"><u>Creating Humor Making Funny Parody Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discovering-artistic-expression-top-film-tips-on-youtube/"><u>Discovering Artistic Expression Top Film Tips on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-unconfident-to-impactful-embracing-youtube-blogging/"><u>From Unconfident to Impactful Embracing YouTube Blogging</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/high-quality-video-capture-for-tech-enthusiasts/"><u>High-Quality Video Capture for Tech Enthusiasts</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-pro-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 Pro without Passcode or Face ID</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-past-perspectives-unencumbered-visual-splendors/"><u>In 2024, Past Perspectives Unencumbered Visual Splendors</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/innovative-recorder-options-without-latency-anxiety/"><u>Innovative Recorder Options Without Latency Anxiety</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-analyzing-the-core-disparities-between-metaverse-and-multiplemetaverse/"><u>[New] Analyzing the Core Disparities Between Metaverse and MultipleMetaverse</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-hefty-helpers-airborne-lifting-titans-unveiled/"><u>[New] Hefty Helpers Airborne Lifting Titans Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-daily-dharma-the-best-yoga-channels-for-self-growth/"><u>[Updated] Daily Dharma The Best Yoga Channels for Self-Growth</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cutting-edge-the-top-8-digital-photomixer/"><u>Cutting-Edge The Top 8 Digital Photomixer</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deep-dive-into-rank-tracker-software-optimize-your-channels-success-for-2024/"><u>Deep Dive Into Rank Tracker Software - Optimize Your Channel's Success for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-advice-for-embedding-youtube-playlists-with-ease/"><u>Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-realme-11-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Realme 11 5G</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/ignite-your-narratives-complimentary-fb-apps-for-everyday-users-for-2024/"><u>Ignite Your Narratives Complimentary FB Apps for Everyday Users for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/"><u>In 2024, Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Fixing Foneazy MockGo Not Working On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-your-youtube-tracks-a-sound-guide/"><u>Streamlining Your YouTube Tracks A Sound Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/troubleshoot-black-screen-woes-in-youtube-playback/"><u>Troubleshoot Black Screen Woes in Youtube Playback</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-iphone-sound-issues-making-calls-audible-again/"><u>Troubleshooting iPhone Sound Issues: Making Calls Audible Again</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ultimate-list-of-web-toolkits-to-elevate-your-skills-in-prompt-engineering/"><u>Ultimate List of Web Toolkits to Elevate Your Skills in Prompt Engineering</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-10-11T19:58:43.618Z
-updated: 2024-10-18T18:03:38.306Z
+date: 2024-10-22T16:33:01.143Z
+updated: 2024-10-24T18:00:27.222Z
 tags:
   - ai video
   - ai youtube
@@ -34,13 +34,6 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
@@ -49,22 +42,15 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
@@ -75,15 +61,22 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
@@ -91,6 +84,19 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -107,22 +113,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[Updated] Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-contemplating-if-video-selfies-need-validation-on-instagram/"><u>[Updated] Contemplating if Video Selfies Need Validation On Instagram</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-one-ear-beats-troubleshoot-guide/"><u>[Updated] One-Ear Beats Troubleshoot Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-reimagining-teams-background-beforeafter-conversations-for-2024/"><u>[Updated] Reimagining Teams' Background Before/After Conversations for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-accelerate-channels-youtubes-top-collaborative-growth-tips/"><u>2024 Approved Accelerate Channels YouTube's Top Collaborative Growth Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-youtubes-revenue-model-for-video-clips/"><u>2024 Approved Decoding YouTube's Revenue Model for Video Clips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-exploring-the-reasons-behind-blue-icons-in-facebooks-chat-communication/"><u>2024 Approved Exploring the Reasons Behind Blue Icons in Facebook’s Chat Communication</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-overcoming-biometric-blockades-in-iphone-x-fixing-face-id/"><u>2024 Approved Overcoming Biometric Blockades in iPhone X - Fixing Face ID</u></a></li>
-<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/command-the-stage-of-youtube-with-studio-skills-for-2024/"><u>Command the Stage of YouTube with Studio Skills for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-a-simplified-youtube-auto-subscribe-url/"><u>Crafting a Simplified YouTube Auto-Subscribe URL</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/eco-friendly-cities-redefining-urban-spaces-for-nature-for-2024/"><u>Eco-Friendly Cities Redefining Urban Spaces for Nature for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/il-libro-rosso-dei-trimmers-video-liberi-per-windowsmac-scopri-come-tagliare-le-sequenze-indesiderate-in-modo-efficiente/"><u>Il Libro Rosso Dei Trimmers Video Liberi per Windows/Mac - Scopri Come Tagliare Le Sequenze Indesiderate in Modo Efficiente!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-craft-your-study-of-the-past-with-these-top-10-channels/"><u>In 2024, Craft Your Study of the Past with These Top 10 Channels</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60x-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo 60x 5G Phone without Google Account?</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-not-working-on-lava-blaze-curve-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Lava Blaze Curve 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/precise-video-queue-a-step-by-step-guide-to-creating-an-effective-playlist-on-youtube/"><u>Precise Video Queue A Step-by-Step Guide to Creating an Effective Playlist on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-navigating-ppt-presentations-successfully-in-google-meet/"><u>[New] 2024 Approved Navigating PPT Presentations Successfully in Google Meet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-highest-resolution-elevating-quality-with-drone-edits/"><u>[New] The Highest Resolution Elevating Quality with Drone Edits</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-a-loyal-following-with-respectful-requests/"><u>Building a Loyal Following with Respectful Requests</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cool-climates-with-a-warm-twist-selecting-video-bgs/"><u>Cool Climates with a Warm Twist Selecting Video Bg's</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-youtube-videos-using-finalcut-pro-expertise/"><u>Crafting Engaging YouTube Videos Using FinalCut Pro Expertise</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/eco-filmmaking-simplified-youtubes-green-screen-wonders-for-2024/"><u>Eco-Filmmaking Simplified YouTube's Green Screen Wonders for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-new-realms-a-detailed-jaunt-vr-review/"><u>Exploring New Realms A Detailed Jaunt VR Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722997520889-fall-guys-startup-woes-solve-your-games-unexpected-shutdown-dilemma-now/"><u>Fall Guys Startup Woes? Solve Your Game's Unexpected Shutdown Dilemma Now!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fast-and-easy-installation-of-intel-chipset-drivers-get-them-now/"><u>Fast and Easy Installation of Intel Chipset Drivers - Get Them Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-student-focused-historical-yt-series/"><u>In 2024, Best Student-Focused Historical YT Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beyond-tube-the-premier-spots-for-online-video-sharing/"><u>In 2024, Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/stellar-restoration-at-breakneck-speed-for-missing-files/"><u>Stellar Restoration at Breakneck Speed for Missing Files</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-guide-to-making-a-hit-youtuber-short/"><u>Step-by-Step Guide to Making a Hit Youtuber Short</u></a></li>
+<li><a href="https://fox-within.techidaily.com/ultimate-guide-to-setting-up-alarms-on-android-phones-and-tablets/"><u>Ultimate Guide to Setting Up Alarms on Android Phones and Tablets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unpacking-youtubes-social-media-code-of-conduct/"><u>Unpacking YouTube's Social Media Code of Conduct</u></a></li>
 </ul></div>
 

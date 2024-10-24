@@ -1,7 +1,7 @@
 ---
 title: "How to Swiftly Excise Your Youtube Comment Spam"
-date: 2024-08-03T03:20:09.699Z
-updated: 2024-08-04T03:20:09.699Z
+date: 2024-10-20T16:45:25.450Z
+updated: 2024-10-24T16:24:55.976Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/ca553c30ee84db192e99fa5840738c6a29a319bf3
 
 # Deleting YouTube Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,9 +36,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -55,8 +48,12 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -80,8 +77,18 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -114,15 +121,15 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -131,6 +138,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -154,11 +168,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-aesthetic-alchemy-transforming-youtube-videos/"><u>[New] Aesthetic Alchemy Transforming YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-budget-friendly-designs-for-youtube-content-creators/"><u>[New] Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-the-visionaries-behind-video-content-six-intriguing-youtube-categorization-challenges/"><u>[New] Discover the Visionaries Behind Video Content Six Intriguing YouTube Categorization Challenges</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lobal-youtube-elite-earnings-leader/"><u>[New] Global YouTube Elite Earnings Leader</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-how-to-edit-youtube-videos-in-adobe-premiere/"><u>[New] How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-image-intervention-how-to-use-the-eraser-in-photoshop/"><u>[New] Image Intervention How to Use the Eraser in Photoshop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-immediate-flagging-of-insta-de-following-events/"><u>[New] Immediate Flagging of Insta De-Following Events</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-choosing-youtube-premium-what-makes-it-worth-the-price/"><u>[Updated] Choosing YouTube Premium What Makes It Worth the Price?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-tips-installing-apple-podcasts-app-successfully/"><u>[Updated] Essential Tips Installing Apple Podcasts App Successfully</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-igtv-broadcasts-to-facebook-explained/"><u>[Updated] In 2024, IGTV Broadcasts to Facebook Explained</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-amplify-video-messages-top-5-ways-to-craft-powerful-tiktok-captions/"><u>2024 Approved Amplify Video Messages Top 5 Ways to Craft Powerful TikTok Captions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/boosting-sound-levels-in-windows-11-a-step-by-step-guide/"><u>Boosting Sound Levels in Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/direct-youtube-stream-of-google-meet-step-by-step-instructions-for-2024/"><u>Direct YouTube Stream of Google Meet - Step-by-Step Instructions for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-view-facebook-stories-anonymously-for-2024/"><u>How to View Facebook Stories Anonymously for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721448968355-iphone-screen-woes-recover-lost-or-missing-app-icons-with-these-fixes/"><u>IPhone Screen Woes: Recover Lost or Missing App Icons with These Fixes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/monetizing-video-content-8-essentials-for-novices/"><u>Monetizing Video Content - 8 Essentials for Novices</u></a></li>
+<li><a href="https://win11.techidaily.com/ultimate-guide-toggling-scroll-lock-feature-onoff-within-ms-excel/"><u>Ultimate Guide: Toggling Scroll Lock Feature On/Off Within MS Excel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unveiling-the-secrets-to-supervised-simultaneous-streams/"><u>Unveiling the Secrets to Supervised Simultaneous Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/viral-video-potential-analyzing-dslr-and-mirrorless-cameras/"><u>Viral Video Potential Analyzing DSLR and Mirrorless Cameras</u></a></li>
+</ul></div>
+

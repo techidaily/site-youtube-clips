@@ -1,7 +1,7 @@
 ---
 title: "Find Friends in Fandom's Forums"
-date: 2024-08-03T03:22:13.018Z
-updated: 2024-08-04T03:22:13.018Z
+date: 2024-10-23T16:23:46.072Z
+updated: 2024-10-24T16:33:29.378Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/76bc2de184e61e693dbac8bc5f62288cf6610a7d1
 
 # Best Free YouTube Comment Finder You Should Try
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,9 +32,6 @@ Now, YouTube has not yet come up with a complete comment modification kit. With 
 
 This thread is a guide for selecting the best YouTube comment finder and a tutorial to use existing YouTube tools to control comments.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Best Free YouTube Comments Finder
 
 YouTube Comment Finder is an SEO feature that allows you to look at the best catchphrases for any mainstream YouTube video. Here are some of the best apps that offer the feature.
@@ -66,9 +60,6 @@ Although YouTube has settings to know about the first comment in a video, that i
 * Paste the URL of your YouTube video in the search box. Click on the FIND There you go! The name of the first commenter of the video will come right in front of you, and you can even see what the comment is and the date of commenting.
 * **Unique Feature:** This website comes with a tutorial and you can find out the first comment of the YouTube quickly with it. However, the feature of this tool is limited.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Hadzy
 
 It is one of the most user-friendly and ad-free random comment pickers available for YouTube. Hadzy is quick and can handle more comments than other sites. Hadzy YouTube comment picker is popular among most of the Tubers.
@@ -77,15 +68,18 @@ It is one of the most user-friendly and ad-free random comment pickers available
 * Simply copy and paste the YouTube video's URL into the homepage's search bar.
 * A pop-up will appear with all the details about the video. You just need to click on Load Data.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
@@ -98,14 +92,24 @@ Everything you have to do now follows the steps below. For the following methods
 * Go to the homepage of YouTube. At the top left corner, Click on the three-lined icon. Click on History next. You will be redirected to your account's history section.
 * At the right corner, choose History type as 'community.' Below that, click on the 'Comments' option. Finally, a new tab would open with all your YouTube comment history.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
@@ -125,8 +129,12 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -135,6 +143,13 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -155,11 +170,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-collaborative-listening-made-simple-on-youtube/"><u>[New] Collaborative Listening Made Simple on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-step-by-step-guide-for-pcmac-movie-recording/"><u>[Updated] 2024 Approved Step-by-Step Guide for PC/Mac Movie Recording</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-reclaim-lively-sounds-in-muted-video-tweets/"><u>[Updated] Reclaim Lively Sounds in Muted Video Tweets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-best-photography-enhancers-for-ios-and-android-guide/"><u>2024 Approved The Best Photography Enhancers for iOS & Android Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audiences-take-gopro-hero5-footage-for-2024/"><u>Audience's Take GoPro Hero5 Footage for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comprehensive-guide-your-shorts-hidden-thumbnails-for-2024/"><u>Comprehensive Guide Your Shorts' Hidden Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/direct-pathway-transferring-youtube-content-to-dailymotion/"><u>Direct Pathway Transferring YouTube Content to Dailymotion</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/elevating-presentations-with-adobe-captivate-skills-for-2024/"><u>Elevating Presentations with Adobe Captivate Skills for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/illuminating-insight-the-ultimate-guide-to-choosing-a-stunning-4k-screen/"><u>Illuminating Insight The Ultimate Guide to Choosing a Stunning 4K Screen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/switch-off-guide-instagrams-igtv/"><u>Switch-Off Guide Instagram's IGTV</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-insiders-guide-to-youtube-money-minimum-video-views-needed/"><u>The Insider's Guide to YouTube Money Minimum Video Views Needed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-vs-power-showdown-how-the-hp-omen-obelisk-reigns-supreme-for-gamers/"><u>Value Vs. Power Showdown: How the HP Omen Obelisk Reigns Supreme for Gamers</u></a></li>
+</ul></div>
+

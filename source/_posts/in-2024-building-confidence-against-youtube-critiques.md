@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Building Confidence Against YouTube Critiques"
-date: 2024-08-03T03:20:36.735Z
-updated: 2024-08-04T03:20:36.735Z
+date: 2024-10-22T16:28:14.504Z
+updated: 2024-10-24T17:41:19.681Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/ea90fc8c45e04f560568c92780cb489093bd55fc4
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,11 +60,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-content-discovery-via-thumbnails/"><u>[New] Enhancing Content Discovery via Thumbnails</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-definitive-guide-making-memorable-youtube-music-videos/"><u>[New] The Definitive Guide Making Memorable YouTube Music Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>2024 Approved Channeling Changes Transition to YouTube's Updated Membership Model</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-eliminating-grey-edges-on-video-a-youtube-fix-guide/"><u>2024 Approved Eliminating Grey Edges on Video A YouTube Fix Guide</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/1726027674765-5/"><u>最新の編集機能が搭載されたビデオ作成アプリ5つ:ご紹介</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-a-broken-windows-store-cache-top-methods-explored/"><u>How to Repair a Broken Windows Store Cache – Top Methods Explored</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channel-success-story-turning-budget-into-brands/"><u>In 2024, Channel Success Story Turning Budget Into Brands</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-concept-to-creation-youtube-trailer-production-via-filmora/"><u>In 2024, From Concept to Creation YouTube Trailer Production via Filmora</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/intel-nvme-driver-updates-simple-and-quick-download-processes-revealed/"><u>Intel NVMe Driver Updates: Simple and Quick Download Processes Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/seamlessly-retrieve-tags-list-of-7-premium-free-youtube-extractors/"><u>Seamlessly Retrieve Tags List of 7 Premium Free YouTube Extractors</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

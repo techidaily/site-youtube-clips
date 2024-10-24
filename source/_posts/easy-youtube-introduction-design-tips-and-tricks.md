@@ -1,7 +1,7 @@
 ---
 title: "\"Easy YouTube Introduction Design  Tips and Tricks\""
-date: 2024-08-03T03:17:41.758Z
-updated: 2024-08-04T03:17:41.758Z
+date: 2024-10-17T16:20:19.418Z
+updated: 2024-10-24T16:44:36.685Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -87,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,19 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -142,11 +132,28 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-learn-to-prevent-persistent-commercials-in-digital-platforms/"><u>[Updated] 2024 Approved Learn to Prevent Persistent Commercials in Digital Platforms</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-often-to-post-a-guide-to-youtube-video-upload-patterns-for-success-for-2024/"><u>[Updated] How Often to Post A Guide to YouTube Video Upload Patterns for Success for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adding-tunes-to-your-ios-clips-three-no-cost-ways-explored-for-2024/"><u>Adding Tunes to Your iOS Clips – Three No-Cost Ways Explored for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/complete-walkthrough-configuring-and-launching-hyper-v-on-your-windows-11-pc/"><u>Complete Walkthrough: Configuring and Launching Hyper-V on Your Windows 11 PC</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-openings-at-no-cost-the-best-youtube-intro-makers-for-2024/"><u>Cutting-Edge Openings at No Cost The Best YouTube Intro Makers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/design-revolutionaries-discovering-6-icon-and-logo-banks-online-for-2024/"><u>Design Revolutionaries Discovering 6 Icon & Logo Banks Online for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dynamic-and-simple-building-a-subscriber-button-for-youtube-using-filmora/"><u>Dynamic and Simple Building a Subscriber Button for YouTube Using Filmora</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fostering-relationships-not-just-viewers-a-guide-to-subscriptions/"><u>Fostering Relationships, Not Just Viewers A Guide to Subscriptions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/game-jams-and-indie-project-highlights/"><u>Game Jams and Indie Project Highlights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-itel-easily-by-drfone-android/"><u>In 2024, How To Unlock a Itel Easily?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-idea-capture-via-mematic-software/"><u>In 2024, Transformative Idea Capture via Mematic Software</u></a></li>
+<li><a href="https://video-capture.techidaily.com/journey-through-the-maze-old-vs-innovative-rpgs/"><u>Journey Through the Maze Old Vs. Innovative RPGs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mastering-the-art-of-laptop-video-capturing/"><u>Mastering the Art of Laptop Video Capturing</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-samsung-galaxy-m34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+</ul></div>
+

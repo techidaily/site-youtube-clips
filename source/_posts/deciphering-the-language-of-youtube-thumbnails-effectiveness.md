@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Language of YouTube Thumbnails Effectiveness"
-date: 2024-08-03T03:20:18.381Z
-updated: 2024-08-04T03:20:18.381Z
+date: 2024-10-17T17:48:23.655Z
+updated: 2024-10-24T17:32:43.481Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a6232b975632e43de71e5ab6217eebf552fc53156
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -49,6 +43,13 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -75,6 +76,13 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -123,9 +131,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -187,21 +192,26 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -209,11 +219,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-enhance-engagement-top-tools-and-tips-for-properly-tagged-videos/"><u>[New] Enhance Engagement Top Tools and Tips for Properly Tagged Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mobility-boosted-video-stability-device/"><u>[New] Mobility Boosted Video Stability Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-cyber-self-portraiture-creating-a-caricatured-emblem/"><u>[Updated] 2024 Approved Cyber Self-Portraiture Creating a Caricatured Emblem</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-beginners-guide-to-embedding-youtube-playlists-in-code/"><u>[Updated] A Beginner's Guide to Embedding YouTube Playlists in Code</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-digital-diving-into-youtubes-veiled-video-vaults/"><u>[Updated] Digital Diving Into YouTube’s Veiled Video Vaults</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sourav-joshis-financial-blueprint-for-online-content-creators-2024/"><u>[Updated] Sourav Joshi's Financial Blueprint for Online Content Creators, 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-practices-in-youtube-keyword-selection-for-2024/"><u>Best Practices in YouTube Keyword Selection for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/examining-benq-sw320-the-4k-visionary-for-2024/"><u>Examining BenQ SW320 The 4K Visionary for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-geforce-rtx-3080-driver-download-for-microsoft-windows-platforms-10-8-and-7/"><u>Free GeForce RTX 3080 Driver Download for Microsoft Windows Platforms (10, 8 & 7)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-gameplay-videos-the-ultimate-collection-of-freefire-tags/"><u>In 2024, Elevate Your Gameplay Videos The Ultimate Collection of FreeFire Tags</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/instant-aspect-ratio-matching-youtube-on-mac-display-for-2024/"><u>Instant Aspect Ratio Matching YouTube on Mac Display for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/interactive-link-integration-for-instagram-users/"><u>Interactive Link Integration for Instagram Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-offline-windows-enhancements/"><u>Navigating Offline Windows Enhancements</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-years-predictions-rendered-in-infographics/"><u>The Year's Predictions Rendered in Infographics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unveiling-professional-techniques-how-to-refine-your-published-videos-on-youtube/"><u>Unveiling Professional Techniques How to Refine Your Published Videos on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/visual-harmony-how-m1-chips-enhance-editing-speed-and-precision/"><u>Visual Harmony How M1 Chips Enhance Editing Speed and Precision</u></a></li>
+</ul></div>
+

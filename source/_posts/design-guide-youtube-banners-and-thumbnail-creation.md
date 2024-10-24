@@ -1,7 +1,7 @@
 ---
 title: "\"Design Guide  YouTube Banners & Thumbnail Creation\""
-date: 2024-08-03T03:15:39.593Z
-updated: 2024-08-04T03:15:39.593Z
+date: 2024-10-20T16:41:22.370Z
+updated: 2024-10-24T16:40:39.438Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,24 +63,14 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -95,11 +79,40 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-9-ultimate-free-online-editors-for-content-creators/"><u>[New] 9 Ultimate Free Online Editors for Content Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-alternative-editors-for-youtube-creators-seeking-new-horizons/"><u>[New] Best Alternative Editors for YouTube Creators Seeking New Horizons</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breaking-down-the-monetization-barriers/"><u>[New] Breaking Down the Monetization Barriers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-unlock-social-data-with-top-free-facebook-downloaders/"><u>[New] In 2024, Unlock Social Data with Top Free Facebook Downloaders</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-navigating-googles-augmented-reality-adornments/"><u>[Updated] Navigating Google's Augmented Reality Adornments</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-evolution-of-action-cams-comparing-hero5-and-yis-newest-models/"><u>[Updated] The Evolution of Action Cams Comparing Hero5 and Yi's Newest Models</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-approaches-to-non-audio-recording/"><u>[Updated] Top Approaches to Non-Audio Recording</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1-license-agreement-terms-and-conditions-digiarty-softwares-ultimate-guide-to-winxdvd-use/"><u>1. License Agreement Terms & Conditions: Digiarty Software's Ultimate Guide to WinXDVD Use</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/bypassing-the-block-effective-solutions-to-overcome-tarkov-error-code-103003-on-your-pcmac/"><u>Bypassing the Block: Effective Solutions to Overcome Tarkov Error Code 103003 on Your PC/MAC</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-mac-os-video-editor-turn-photos-into-beautiful-slideshows/"><u>In 2024, Mac OS Video Editor Turn Photos Into Beautiful Slideshows</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-on-azure-speech-transcription-services/"><u>In 2024, Step-by-Step on Azure Speech Transcription Services</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-10-popular-virtual-reality-peripherals/"><u>In 2024, Top 10 Popular Virtual Reality Peripherals</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/inverse-viewing-in-youtube-original-ideas-for-rewinders/"><u>Inverse Viewing in YouTube Original Ideas for Rewinders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/learning-ranks-top-10-education-centric-channels/"><u>Learning Ranks Top 10 Education-Centric Channels</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/step-by-step-guide-restoring-deleted-drives-via-the-windows-command-line-interface/"><u>Step-by-Step Guide: Restoring Deleted Drives via the Windows Command Line Interface</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/stepwise-simplification-broadcasting-personal-yt-videos-using-gmail/"><u>Stepwise Simplification Broadcasting Personal YT Videos Using Gmail</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-youtube-thumbnail-crafting-mac/"><u>The Essential Guide to YouTube Thumbnail Crafting (Mac)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-sprinkle-of-life-in-your-text-animations/"><u>The Sprinkle of Life in Your Text Animations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-young-filmmakers-guide-to-selecting-video-gear/"><u>The Young Filmmaker's Guide to Selecting Video Gear</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

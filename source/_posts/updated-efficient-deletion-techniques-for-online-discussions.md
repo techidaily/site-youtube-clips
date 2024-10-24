@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-10-17T22:16:55.921Z
-updated: 2024-10-18T16:53:04.375Z
+date: 2024-10-21T16:42:58.461Z
+updated: 2024-10-24T16:26:29.667Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
@@ -91,16 +91,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -124,10 +118,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -147,14 +141,20 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -177,15 +177,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>[New] A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[New] In 2024, Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-the-payment-structure-on-youtube/"><u>2024 Approved Decoding the Payment Structure on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-change-youtube-video-playback-speed-desktopmobile/"><u>2024 Approved How to Change YouTube Video Playback Speed [Desktop/Mobile]</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 6 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/engaging-subjects-for-consistent-vlogging/"><u>Engaging Subjects for Consistent Vlogging</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-windows-unhandled-exception-a-step-by-step-process/"><u>Fixing Windows 'Unhandled Exception': A Step-by-Step Process</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigating-the-nuances-zooming-in-on-roblox-for-2024/"><u>Navigating the Nuances Zooming In on Roblox for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722980330154-troubleshoot-and-resolve-pc-issues-in-assassins-creed-odyssey-no-sweat/"><u>Troubleshoot and Resolve PC Issues in Assassin's Creed Odyssey - No Sweat!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-a-comparative-analysis-of-top-10-budget-friendly-video-calls-for-2024/"><u>[New] A Comparative Analysis of Top 10 Budget-Friendly Video Calls for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-analyzing-the-income-generated-by-every-youtube-viewer/"><u>[New] Analyzing the Income Generated by Every YouTube Viewer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-basic-tips-for-windows-clown-phonetics-modification/"><u>[New] Basic Tips for Windows Clown Phonetics Modification</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[Updated] Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discovering-if-quick-youtube-subscriptions-really-work/"><u>[Updated] Discovering if Quick YouTube Subscriptions Really Work</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-content-youtube-thumbnail-artistry-on-mac/"><u>[Updated] Elevate Your Content YouTube Thumbnail Artistry on Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-spice-up-your-feeds-text-based-meme-magic/"><u>[Updated] In 2024, Spice Up Your Feeds Text-Based Meme Magic</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/free-yourself-from-fringe-a-youtube-video-fix-guide/"><u>Free Yourself From Fringe A YouTube Video Fix Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cease-non-filtered-youtube-video-trail/"><u>In 2024, Cease Non-Filtered YouTube Video Trail</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-tips-for-youtube-audio-optimization/"><u>In 2024, Essential Tips for YouTube Audio Optimization</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-fraud-busters-efficient-and-economical-methods-for-2024/"><u>Instagram Fraud Busters Efficient & Economical Methods for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-modern-computing-with-toms-hardware-insights/"><u>Navigating Modern Computing with Tom's Hardware Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/subscribe-like-a-pro-true-or-false/"><u>Subscribe Like a Pro True or False?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-expert-guides-on-computers-and-gadgets/"><u>Tom's Tech Hub: Expert Guides on Computers and Gadgets</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-7-mejores-reproductores-swf-compatibles-con-windows-10-y-mac/"><u>Top 7 Mejores Reproductores SWF Compatibles Con Windows 10 Y Mac</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-fixing-sluggish-windows-10-closing-problems/"><u>Troubleshooting and Fixing Sluggish Windows 10 Closing Problems</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/bystro-pereklyuchite-zhestkij-disk-na-ssd-v-windows-11-s-pomoshyu-dvuh-prostyh-shagov/"><u>Быстро Переключите Жесткий Диск На SSD В Windows 11 С Помощью Двух Простых Шагов</u></a></li>
 </ul></div>
 

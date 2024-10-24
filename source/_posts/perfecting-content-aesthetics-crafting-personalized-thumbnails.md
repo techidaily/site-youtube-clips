@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Content Aesthetics  Crafting Personalized Thumbnails\""
-date: 2024-10-16T19:52:35.782Z
-updated: 2024-10-18T19:55:22.209Z
+date: 2024-10-18T16:33:47.985Z
+updated: 2024-10-24T16:30:37.930Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -51,33 +58,40 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
 In this way, you can add a custom thumbnail to the new videos and change the video thumbnail of the previously uploaded videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 2: Thumbnail Makers to Create Custom YouTube Thumbnails
 
 Of course, you can use some of the best tools to make a YouTube video thumbnail. In this part, we will show you some of the best tools to create custom YouTube thumbnails.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 1\.   **Create YouTube Thumbnail with Online solution - Canva**
 
@@ -104,10 +118,10 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
@@ -137,16 +151,10 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -177,13 +185,6 @@ Sometimes big channels can get away with stuff like this, because large portions
 
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
 When people want answers, they want to feel confident that they video they click on will have those answers. If you have great content, then let people know it!
@@ -213,13 +214,6 @@ You want to use colors that will help you stand out from the other search result
 Beyond simply using colors that are different from other people’s colors, you should consider the emotions different colors trigger.
 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
@@ -264,20 +258,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-decoding-the-art-of-engaging-in-youtube-short-forms/"><u>[New] Decoding the Art of Engaging in YouTube Short Forms</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-essential-tips-to-improve-your-chromebooks-zooming-skills-for-2024/"><u>[New] Essential Tips to Improve Your Chromebook's Zooming Skills for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-deep-dive-into-youtube-writers-workshop-space/"><u>[Updated] A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-channeling-musical-charm-crafting-custom-playlists-on-youtube/"><u>[Updated] Channeling Musical Charm Crafting Custom Playlists on Youtube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>[Updated] In 2024, Ultimate Tutorial How To Add a Countdown Timer in OBS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-adding-audio-descriptions-to-videos-on-youtube/"><u>2024 Approved Adding Audio Descriptions to Videos on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-conquering-viewersphere-channels-that-rule-the-net/"><u>2024 Approved Conquering Viewersphere Channels that Rule the Net</u></a></li>
-<li><a href="https://win11.techidaily.com/boosting-your-vms-with-virtualbox-70-now-for-windows-11-users/"><u>Boosting Your VMs with VirtualBox 7.0, Now for Windows 11 Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creators-uniting-for-marvels-digital-future-for-2024/"><u>Creators Uniting for Marvel's Digital Future for 2024</u></a></li>
-<li><a href="https://win-lab.techidaily.com/effortless-guide-to-retrieving-lost-games-and-media-from-your-ps4-console/"><u>Effortless Guide to Retrieving Lost Games and Media From Your PS4 Console</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quick-tip-crafting-perfect-insta-collages/"><u>In 2024, Quick Tip Crafting Perfect Insta Collages</u></a></li>
-<li><a href="https://extra-information.techidaily.com/modern-uses-of-drones-to-coming-innovations/"><u>Modern Uses of Drones to Coming Innovations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/revealing-the-top-six-where-to-grab-your-snack-videos/"><u>Revealing the Top Six Where to Grab Your Snack Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-tecno-spark-20-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Tecno Spark 20 Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://fox-that.techidaily.com/uncomfortable-sound-fluctuations-in-airpods-fix-it-by-deactivating-dynamic-ear-movement-sensors/"><u>Uncomfortable Sound Fluctuations in AirPods? Fix It by Deactivating Dynamic Ear Movement Sensors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-quick-start-guide-to-schedule-and-start-zoom-calls-on-android/"><u>[New] 2024 Approved Quick-Start Guide to Schedule & Start Zoom Calls on Android</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-flourish-in-fame-elevate-from-zero-to-1000-followersmonthly/"><u>[Updated] 2024 Approved Flourish in Fame Elevate From Zero to 1,000 Followers/Monthly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cultivating-a-unique-vibe-in-your-own-mukbang-content/"><u>[Updated] Cultivating a Unique Vibe in Your Own Mukbang Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[Updated] Effortless Online Audio Accessibility Ideal Tools for iPhone & YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-projecting-film-costs-for-your-music-video/"><u>[Updated] In 2024, Projecting Film Costs for Your Music Video</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-muting-problem-solutions-for-obs-sound-capture-for-2024/"><u>[Updated] Muting Problem Solutions for OBS Sound Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-eye-candy-index-the-top-8-videos/"><u>2024 Approved Eye Candy Index The Top 8 Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/destiny-2-server-link-error-heres-how-you-can-fix-it-solved/"><u>Destiny 2 Server Link Error? Here's How You Can Fix It – SOLVED!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-good-to-great-how-the-latest-echo-gen-4-surpasses-its-predecessors/"><u>From Good to Great: How the Latest Echo (Gen 4) Surpasses Its Predecessors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guida-facile-per-decrittografare-i-tuoi-film-disney-in-hd/"><u>Guida Facile per Decrittografare I Tuoi Film Disney in HD</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-your-youtube-unique-slot/"><u>In 2024, Discovering Your YouTube Unique Slot</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>In 2024, Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-the-end-scene-in-youtube-productions/"><u>In 2024, Elevating the End Scene in YouTube Productions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-how-to-avoid-and-reverse-strikes-on-your-youtube-account/"><u>In 2024, How to Avoid and Reverse Strikes on Your YouTube Account</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-v27e-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo V27e Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-shortcut-to-shorter-vids-on-youtube/"><u>The Shortcut to Shorter Vids on YouTube</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/top-free-online-tools-for-screen-recording/"><u>Top Free Online Tools for Screen Recording</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-top-tech-picks-a-journey-through-toms-hardware-world/"><u>Unveiling Top Tech Picks: A Journey Through Tom's Hardware World</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-first-step-to-successful-streaming/"><u>Your First Step to Successful Streaming</u></a></li>
 </ul></div>
 
