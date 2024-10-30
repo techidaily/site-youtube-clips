@@ -1,7 +1,7 @@
 ---
 title: "\"Behind the Screen  Essential Post-VidCon Gatherings for 2024\""
-date: 2024-08-10T05:03:17.436Z
-updated: 2024-08-11T05:03:17.436Z
+date: 2024-10-29T10:25:10.967Z
+updated: 2024-10-30T02:36:20.473Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -81,9 +78,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -118,9 +112,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -145,9 +136,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -198,9 +186,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **London, UK:** August
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -225,9 +210,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -236,12 +218,35 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-underrated-gems-this-year-films/"><u>[New] Discovering Underrated Gems This Year (Films)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-crafting-captivating-tiktok-content-from-anime-stories/"><u>[New] In 2024, Crafting Captivating TikTok Content From Anime Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-list-of-free-rippers-for-video-conversion-for-2024/"><u>[Updated] Essential List of Free Rippers For Video Conversion for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-defending-your-videos-against-youtube-copyright-strikes/"><u>2024 Approved Defending Your Videos Against YouTube Copyright Strikes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets/"><u>2024 Approved Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/automate-your-data-a-step-by-step-guide-to-setting-up-file-backups-with-windows-task-scheduler/"><u>Automate Your Data: A Step-by-Step Guide to Setting Up File Backups with Windows Task Scheduler</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-content-upgrade-changing-numbers-on-tiktok-quickly/"><u>Digital Content Upgrade Changing Numbers on TikTok Quickly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-customize-and-captivate-thumbnail-magic-for-shorts/"><u>In 2024, Customize & Captivate Thumbnail Magic for Shorts</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-7-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone 7 Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-methods-amp-up-your-yt-video-quality/"><u>In 2024, Effortless Methods Amp Up Your YT Video Quality</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>In 2024, Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/prodigious-picks-exceptional-laptops-for-uhd-editing-for-2024/"><u>Prodigious Picks Exceptional Laptops for UHD Editing for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/score-selection-service-enhancing-media-pieces/"><u>Score Selection Service Enhancing Media Pieces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ched-camera-and-recording-app-selection-on-iphones-and-androids/"><u>Unmatched Camera & Recording App Selection on iPhones and Androids</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

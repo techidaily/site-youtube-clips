@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-19T17:35:09.083Z
-updated: 2024-10-24T17:30:57.815Z
+date: 2024-10-26T07:39:46.017Z
+updated: 2024-10-30T04:32:05.123Z
 tags:
   - ai video
   - ai youtube
@@ -78,16 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -126,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -147,20 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-ace-your-viewing-experience-onboarding-av1-in-youtube/"><u>[New] Ace Your Viewing Experience Onboarding AV1 in YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>[New] Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-into-the-virtual-vortex-mastering-techniques-of-gameplay-recording/"><u>[New] Into the Virtual Vortex Mastering Techniques of Gameplay Recording</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-access-free-photographic-treasures-through-favored-4-youtube-clips/"><u>[Updated] Access Free Photographic Treasures Through Favored 4 Youtube Clips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-content-with-professional-end-screen-templates/"><u>2024 Approved Elevate Your Content with Professional End Screen Templates</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-itel-a70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/best-ios-data-recovery-tools-of-2024-top-picks-with-ios-17-compatibility/"><u>Best iOS Data Recovery Tools of 2024: Top Picks with iOS 17 Compatibility</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/beyond-tube-the-premier-spots-for-online-video-sharing/"><u>Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/download-youtube-audio-safely-and-legally-in-3-ways-for-2024/"><u>Download Youtube Audio Safely & Legally in 3 Ways for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a2-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A2 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-download-hp-deskjet-2755e-printer-drivers-for-windows-pcs/"><u>Free Download: HP DeskJet 2755E Printer Drivers for Windows PCs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-incorporating-captions-into-instagrams-video-platform/"><u>In 2024, Incorporating Captions Into Instagram's Video Platform</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/integrating-chroma-keying-into-your-edit-suite/"><u>Integrating Chroma Keying Into Your Edit Suite</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/rendre-gratuite-la-conversion-dun-fichier-ppm-en-bmp-en-ligne-avec-moveavi-un-guide-simple-pour-des-resultats-rapides/"><u>Rendre Gratuite La Conversion D'un Fichier PPM en BMP en Ligne Avec MoveAVI – Un Guide Simple Pour Des Résultats Rapides</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-editing-skills-for-professional-facebook-reels-for-2024/"><u>[New] Mastering Editing Skills for Professional Facebook Reels for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-facetime-simplified-a-compreited-guide-for-android-users/"><u>[Updated] FaceTime Simplified A Compreited Guide for Android Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-assembling-channel-summaries-that-attract/"><u>2024 Approved Assembling Channel Summaries That Attract</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>2024 Approved Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-videography-quality-top-7-sound-effects-pick/"><u>2024 Approved Elevate Videography Quality Top 7 Sound Effects Pick</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-hot-40-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Hot 40 Pro? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ace-your-admin-duties-5-innovative-prompts-for-expedited-hr-tasks-using-conversational-ai/"><u>Ace Your Admin Duties: 5 Innovative Prompts for Expedited HR Tasks Using Conversational AI</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-budget-friendly-video-stock-sites/"><u>Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>Choosing the Best Camera for Filming Mirrorless or DSLR</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-general-user-tagging-effect/"><u>Ending General User Tagging Effect</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-a34-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlock-the-power-of-personal-narratives-master-facebook-bios-for-maximum-impact/"><u>In 2024, Unlock the Power of Personal Narratives Master Facebook Bios for Maximum Impact</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Breaking Into YouTube's Top 100 With Effective SEO"
-date: 2024-08-10T05:07:28.931Z
-updated: 2024-08-11T05:07:28.931Z
+date: 2024-10-27T09:41:48.330Z
+updated: 2024-10-30T13:36:05.238Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ Ready?
 
 Let’s Go!
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -59,9 +56,6 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
@@ -162,9 +156,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -199,6 +190,13 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -207,18 +205,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -229,18 +215,18 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -248,10 +234,14 @@ Come on, keep going!
 
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -277,6 +267,13 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -287,12 +284,30 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-discord-dialogue-perfecting-your-replies/"><u>[New] 2024 Approved Discord Dialogue Perfecting Your Replies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-craft-engaging-youtube-stays-strategies-to-shine-without-thousand-supporters/"><u>[New] Craft Engaging YouTube Stays Strategies to Shine without Thousand Supporters</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-at-age-ten-the-extraordinary-financial-rise-of-ryan-kaji/"><u>[New] Earning at Age Ten The Extraordinary Financial Rise of Ryan Kaji</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-heaviest-lifting-uavs-the-definitive-top-10/"><u>[New] Heaviest Lifting UAVs The Definitive Top 10</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-path-from-conceptualization-to-consuming-your-mukbang-masterpiece/"><u>[New] The Path From Conceptualization to Consuming Your Mukbang Masterpiece</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-enhancing-chrome-performance-for-hd-facebook-content/"><u>[Updated] 2024 Approved Enhancing Chrome Performance for HD Facebook Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-streamline-your-sessions-the-discord-recorders-handbook/"><u>[Updated] In 2024, Streamline Your Sessions The Discord Recorder’s Handbook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/access-creative-banners-for-video-makers-at-zero-price/"><u>Access Creative Banners for Video Makers at Zero Price</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/average-gain-for-youtubers-per-ad-exposure-for-2024/"><u>Average Gain for YouTubers per Ad Exposure for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels-for-2024/"><u>Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-communication-gaps-across-africa/"><u>Bridging Communication Gaps Across Africa</u></a></li>
+<li><a href="https://win-updates.techidaily.com/essential-techniques-for-efficiently-locating-and-accessing-digitized-documents/"><u>Essential Techniques for Efficiently Locating and Accessing Digitized Documents</u></a></li>
+<li><a href="https://fox-within.techidaily.com/expertenrat-zur-wiederherstellung-verschlusselter-datentrager-schritt-fur-schritt-anleitung-fur-wichtige-datenwiederherstellung/"><u>Expertenrat Zur Wiederherstellung Verschlüsselter Datenträger: Schritt-Für-Schritt-Anleitung Für Wichtige Datenwiederherstellung</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-the-visual-language-of-live-videos-on-youtube/"><u>In 2024, Decoding the Visual Language of Live Videos on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pretending-playfulness-making-mocks-and-laughs/"><u>Pretending Playfulness Making Mocks and Laughs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-10-youtube-business-channels-to-create-one-easily/"><u>Top 10 YouTube Business Channels to Create One Easily</u></a></li>
+</ul></div>
 

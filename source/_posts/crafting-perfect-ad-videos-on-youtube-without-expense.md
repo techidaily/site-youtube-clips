@@ -1,7 +1,7 @@
 ---
 title: "Crafting Perfect Ad Videos on YouTube Without Expense"
-date: 2024-08-10T05:05:27.398Z
-updated: 2024-08-11T05:05:27.398Z
+date: 2024-10-23T17:00:09.934Z
+updated: 2024-10-30T01:47:07.057Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/97bc8f701c5a50640871957d35ec4f8e16308c84b
 
 # How to Create Video Ads for Free in YouTube Video Builder
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ With that being said, the following sections talk about what **YouTube Video Bui
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What Is YouTube Video Builder?
 
 YouTube recently came up with an online tool, **YouTube Video Builder**, that, as the name suggests, enables you as an organization to prepare videos for free. These videos could be anywhere from 6 to 15 seconds long and are most appropriate for advertisements. Once created, the films can be used in the campaigns to promote your brand and/or products online.
@@ -69,8 +63,12 @@ Because **YouTube Video Builder** will publish your video advertisements on YouT
 **YouTube Video Builder** is still in the Beta phase, and therefore you may not have access to all the features that the tool has to offer. However, this majorly depends on the region of your residence. As of now, the utility is not even available in some countries of the world.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How Does YouTube Video Builder Work?
 
 As explained earlier, **YouTube Video Builder** is an online tool that works on the latest version of the Google Chrome browser. The web interface of the utility has separate blocks (or placeholders if you want to call them) for different types of images. For instance, there is a placeholder for your logo, and a couple of other blank slots where you can import the photos from your computer.
@@ -79,14 +77,18 @@ There are some text input fields that you can populate with the relevant informa
 
 Finally, you can add background music to the video from the royalty-free tracks that can be accessed from the built-in library, and you are all set to go.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How Can I Get YouTube Video Builder?
 
 Because YouTube Video Builder is in its Beta phase, at the time of this writing you are required to send an access request to Google using your account that you want to use to create the videos from. You can send your requests to: <https://services.google.com/fb/forms/videobuilderbeta/>.
 
 Once your request is approved, you can then use the same Google account to sign in to the **YouTube Video Builder** portal, and start preparing your video advertisements. Here, it is important to understand that the Google account that you use to send an access request and prepare the videos must be the same ID that has your active and functional YouTube Channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Video Ads for Free with YouTube Video Builder?
 
@@ -102,12 +104,21 @@ Next, from the **Color & Logo** section, choose the base (background) and text c
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
 #### Step 2: Add the Ingredients
@@ -134,13 +145,17 @@ Finally, click **Create video**, and wait while **YouTube Video Builder** takes 
 
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
@@ -149,10 +164,14 @@ On the next page, click **Copy** to copy the video link, and share it with your 
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -170,10 +189,6 @@ The whole point here is to prepare your video adverts with the least investment 
 
 The bitter truth is, producing videos, especially for brand promotions requires expert creators, expensive tools, and a good amount of work experience. Although all these can be managed if you have some spare funds, **YouTube Video Builder** helps you create advertising videos of up to 15 seconds with ease and for free. All you need is access to **YouTube Video Builder**, your own YouTube Channel, your brand logo, and high-definition photos of your product(s).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -182,12 +197,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-6-youtuber-quizzes-to-know-what-type-of-youtuber-you-are/"><u>[New] 6 YouTuber Quizzes to Know What Type of YouTuber You Are</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-hubs-for-professional-insights/"><u>[New] Best YouTube Hubs for Professional Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-content-strategy-boost-top-8-youtube-rank-watcher-revealed/"><u>[Updated] Content Strategy Boost Top 8 YouTube Rank Watcher Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-professionals-playbook-to-profitable-youtube-ventures-for-2024/"><u>A Professional's Playbook to Profitable YouTube Ventures for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/bypassing-wow-problem-fix-51900319/"><u>Bypassing WoW Problem: Fix #51900319</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content/"><u>Discover Powerful Tagging Tactics A Guide to Amplifying FreeGame Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/exclusive-guide-to-outstanding-sandbox-games-for-2024/"><u>Exclusive Guide to Outstanding Sandbox Games for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-nokia-c110-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Nokia C110 Phone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-budget-aerial-photography-top-100-drones-compared/"><u>In 2024, Budget Aerial Photography Top $100 Drones Compared</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-chuckle-filled-creativity-crafting-7-side-splitting-youtube-sets/"><u>In 2024, Chuckle-Filled Creativity Crafting 7 Side-Splitting YouTube Sets</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-nokia-c300mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Nokia C300Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://win-top.techidaily.com/mastering-fx-trading-distinguishing-technical-from-fundamental-analysis-techniques-on-metatrader-4/"><u>Mastering FX Trading: Distinguishing Technical From Fundamental Analysis Techniques on MetaTrader 4</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-subscribers-with-these-easy-strategies/"><u>Skyrocket Your Subscribers with These Easy Strategies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-premier-monitors-top-5-for-ps5-and-xbox-players/"><u>The Premier Monitors Top 5 for PS5 & Xbox Players</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-ranked-macos-software-a-comprehensive-guide/"><u>Top-Ranked macOS Software : A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/understanding-youtubers-income-average-ad-revenues-per-play/"><u>Understanding Youtuber's Income Average Ad Revenues per Play?</u></a></li>
+</ul></div>
 

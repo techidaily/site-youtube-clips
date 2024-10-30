@@ -1,7 +1,7 @@
 ---
 title: "Accelerated Fortnite Visualization Steps for 2024"
-date: 2024-08-10T05:09:02.302Z
-updated: 2024-08-11T05:09:02.302Z
+date: 2024-10-25T06:46:58.747Z
+updated: 2024-10-30T11:22:17.576Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -55,9 +52,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
@@ -66,16 +60,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
@@ -84,16 +72,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
@@ -104,9 +86,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -115,8 +94,6 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -124,5 +101,27 @@ Follow @Ollie Mattison
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-charting-your-path-to-success-in-youtubes-earnings-system/"><u>[New] Charting Your Path to Success in YouTube's Earnings System</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-deep-dive-into-rank-tracker-software-optimize-your-channels-success/"><u>2024 Approved Deep Dive Into Rank Tracker Software - Optimize Your Channel's Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-digital-portraits-proven-the-science-of-social-snap-validation/"><u>2024 Approved Digital Portraits Proven The Science of Social Snap Validation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-framing-your-story-with-effective-titles/"><u>2024 Approved Framing Your Story with Effective Titles</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-itel-s23-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Itel S23 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora-for-2024/"><u>Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>Diving Into Video Quality DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/s-highest-paid-online-video-personality/"><u>Earth's Highest-Paid Online Video Personality</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-methods-to-refresh-system-drivers-on-the-dell-xps-15-a-windows-users-guide/"><u>Easy Methods to Refresh System Drivers on the Dell XPS 15: A Windows User's Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-your-instagram-story-a-collection-of-100-visionary-caption-ideas/"><u>In 2024, Your Instagram Story - A Collection of 100 Visionary Caption Ideas</u></a></li>
+<li><a href="https://win-community.techidaily.com/revealing-microsofts-survey-uncovering-the-surprising-shift-in-how-we-work-insights-from-31k-participants/"><u>Revealing Microsoft's Survey: Uncovering the Surprising Shift in How We Work – Insights From 31K Participants</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-exodus-of-followers-instagrams-new-map-for-2024/"><u>The Exodus of Followers Instagram's New Map for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-guide-to-picking-ideal-youtube-partnership-allies/"><u>The Guide to Picking Ideal YouTube Partnership Allies</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

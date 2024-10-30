@@ -1,7 +1,7 @@
 ---
 title: "Regular Vlogger Discussion Guidelines"
-date: 2024-10-22T16:28:06.273Z
-updated: 2024-10-24T17:10:28.541Z
+date: 2024-10-22T23:25:11.485Z
+updated: 2024-10-29T16:15:37.607Z
 tags:
   - ai video
   - ai youtube
@@ -45,13 +45,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -59,10 +52,16 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -70,13 +69,6 @@ By commenting on what you’re watching/reading you have a better chance of capi
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -87,13 +79,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -111,6 +96,13 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
@@ -119,11 +111,25 @@ You could also just flick the camera on and tell the full story of your day like
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,24 +146,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-a-detailed-walkthrough-embedding-online-video-into-ms-presentations-for-2024/"><u>[New] A Detailed Walkthrough Embedding Online Video Into MS Presentations for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-adding-visual-time-indicators-to-your-youtube-links/"><u>[New] Adding Visual Time Indicators to Your YouTube Links</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-download-and-relive-a-compreran-review-of-top-youtube-playlist-extractors/"><u>[New] Download and Relive A Compreran Review of Top YouTube Playlist Extractors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-overcoming-common-airdrop-failures-on-ios-and-macos-systems/"><u>[New] Overcoming Common Airdrop Failures on iOS and macOS Systems</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[Updated] Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-how-to-make-a-game-streaming-video-with-ai-portrait/"><u>[Updated] How to Make a Game Streaming Video With AI Portrait</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-xr-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone XR</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cinematography-secrets-unveiled-by-youtube-pros/"><u>In 2024, Cinematography Secrets Unveiled by YouTube Pros</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>In 2024, Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-visibility-with-any-channel-title-through-free-makers/"><u>In 2024, Enhance Visibility With Any Channel Title Through Free Makers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premier-screen-capture-device-essential-for-video-sharers/"><u>Premier Screen Capture Device Essential for Video Sharers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/seize-visual-riches-from-four-premium-youtube-portals/"><u>Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/simplify-your-inbox-how-this-one-step-email-hack-can-clear-the-chaos-without-extra-apps/"><u>Simplify Your Inbox: How This One-Step Email Hack Can Clear the Chaos Without Extra Apps!</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/understanding-search-engine-visibility-comprehensive-guide-and-effective-seo-strategies/"><u>Understanding Search Engine Visibility: Comprehensive Guide & Effective SEO Strategies</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/unleash-potential-ps5-writable-and-readable-extras/"><u>Unleash Potential PS5' Writable & Readable Extras</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-best-3d-video-makers-free-and-paid/"><u>Updated 2024 Approved Best 3D Video Makers Free and Paid</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/virtual-validation-subscribers-buttons-reward-system/"><u>Virtual Validation Subscribers, Buttons Reward System</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-maximizing-your-idevices-screen-record-functionality/"><u>[New] 2024 Approved Maximizing Your iDevice's Screen Record Functionality</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-part-ways-with-discord-platform/"><u>[New] Part Ways with Discord Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-popularity-youtube-earnings-for-1m-viewer-base/"><u>2024 Approved Beyond Popularity – YouTube Earnings for 1M Viewer Base</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clipcraft-designer/"><u>ClipCraft Designer</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/comparative-study-vidma-vs-standard-screen-recording-for-2024/"><u>Comparative Study Vidma vs Standard Screen Recording for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/correcting-install-access-denied-windows-setup-issue/"><u>Correcting Install Access Denied Windows Setup Issue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-fast-fortnite-icons-in-minutes/"><u>Crafting Fast Fortnite Icons in Minutes</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo Y200e 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-the-world-of-digital-backdrops-a-beginners-guide-to-chroma-keying/"><u>In 2024, Navigating the World of Digital Backdrops A Beginner's Guide to Chroma Keying</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/launching-your-path-as-a-prompt-craftsman/"><u>Launching Your Path as a Prompt Craftsman</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-pc-issues-a-guide-to-fixing-granblue-fantasys-relink-crashes/"><u>Resolving PC Issues: A Guide to Fixing Granblue Fantasy's ReLink Crashes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/soundscape-symphony-crafting-concert-videos-with-these-15-tutorials/"><u>Soundscape Symphony Crafting Concert Videos with These 15 Tutorials</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-y02t-by-fonelab-android-recover-data/"><u>The way to get back lost data from Y02T</u></a></li>
 </ul></div>
 

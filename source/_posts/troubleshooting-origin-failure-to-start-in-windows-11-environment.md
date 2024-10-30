@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2024-10-14T17:01:11.408Z
-updated: 2024-10-18T17:32:36.184Z
+date: 2024-10-26T04:24:24.700Z
+updated: 2024-10-30T01:58:22.468Z
 tags:
   - win11
   - win10
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a03daedd.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2) Type in your password and log in again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a59dfeba.jpg)
@@ -64,46 +71,13 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  4) In PowerShell window, copy and paste in the following command and press the**Enter** key on your keyboard:
 
@@ -129,6 +103,13 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b92b357675.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Double-click**Sound, video and game controller** . Right-click your audio card driver and click**Uninstall device** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b931f18df7.png)
@@ -136,6 +117,13 @@ net user newusername newpassword /add
  When prompted with the following notification, tick the box for**Delete the driver software for this device** and click**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b939274834.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  5) Restart your computer after the uninstall of both of your video card driver and your sound card driver.
 
@@ -161,6 +149,13 @@ net user newusername newpassword /add
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4: Disable or uninstall third-party antivirus programs
 
  If you’ve installed antivirus or anti-malware programs such as Norton, Kaspersky, AVG, Avast Behavior Shield or Malwarebytes, you should **temporarily**   turn them off or disable them to see if they’re causing your Start menu not working problem. If your computer’s Start menu returns to normal when they’re off, you should contact the vendor of the software to see if they can provide some help.
@@ -180,16 +175,16 @@ net user newusername newpassword /add
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) View by**Category** , then click**Uninstall a program** .
@@ -223,50 +218,23 @@ net user newusername newpassword /add
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) Type**sfc /scannow** in and press the**Enter** key on your keyboard. Wait for a while for the process to complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b9c44015d6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If the result you see is the same with the screen shot above, your system files are all right, and you should move on and run another test. 5) Copy and paste the following command in, and press the Enter key on your keyboard. Still, it could take a while, wait with patience.
 
@@ -285,6 +253,13 @@ DISM /Online /Cleanup-Image /RestoreHealth
  1) Right-click the task bar on your desktop at the bottom and click **Task Manager** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
@@ -306,6 +281,13 @@ de -Register "$($_.InstallLocation)\AppXManifest.xml"}
 Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register "$($_.InstallLocation)\AppXManifest.xml"}
 
  4) There, your Cortana is reinstalled, and your Start menu should also be back now.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Last but not least: refresh your PC
 
@@ -330,19 +312,21 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/uto-play-youtube-keep-it-hidden-stay-connected/"><u>[New] Auto-Play YouTube - Keep It Hidden, Stay Connected</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-boosting-engagement-joint-video-strategies-for-growth/"><u>[New] Boosting Engagement Joint Video Strategies for Growth</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-apples-silicon-spectrum-comparing-m1-pro-and-the-powerhouse-m1-max/"><u>[Updated] Apple's Silicon Spectrum Comparing M1 Pro and the Powerhouse M1 Max</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-video-format-for-youtube-uploading/"><u>[Updated] Best Video Format for YouTube Uploading</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-charting-the-future-essential-online-stock-yts-for-2024/"><u>[Updated] Charting the Future Essential Online Stock YTs for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>[Updated] The Ultimate Guide Key Drone Upgrades & Supplies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-10-highest-performing-business-youtube-platforms-explained/"><u>2024 Approved 10 Highest Performing Business YouTube Platforms Explained</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cultivating-connection-not-compulsion-in-subscriptions-for-2024/"><u>Cultivating Connection, Not Compulsion in Subscriptions for 2024</u></a></li>
-<li><a href="https://solve-help.techidaily.com/easy-steps-for-seamless-mov-conversion-from-dvd/"><u>Easy Steps for Seamless MOV Conversion From DVD</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts-for-2024/"><u>Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-itel-phone-by-drfone-android/"><u>How to Unlock a Network Locked Itel Phone?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-12-pro-max-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone 12 Pro Max Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/innovations-in-youtube-shorts-templates-latest-trends-and-tips/"><u>Innovations in YouTube Shorts Templates Latest Trends & Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-footage-the-ultimate-guide-to-youtube-video-editing/"><u>Transforming Footage The Ultimate Guide to YouTube Video Editing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-crafting-the-perfect-tiktok-unbox-video-a-viewership-guide-for-2024/"><u>[New] Crafting the Perfect TikTok Unbox Video A Viewership Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flip-it-right-youtube-video-retrospectives-with-tips-for-2024/"><u>[New] Flip It Right YouTube Video Retrospectives (With Tips!) For 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-nailing-the-technique-for-snapchat-screen-time-lapses/"><u>[Updated] 2024 Approved Nailing the Technique for Snapchat Screen Time-Lapses</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-seamless-setup-of-ifunny-meme-toolkit/"><u>2024 Approved How-To Seamless Setup of iFunny Meme Toolkit</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-interactive-narratives-basics-and-beyond/"><u>2024 Approved Interactive Narratives Basics and Beyond</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/disruptive-beatscape-best-rhythm-altering-tools/"><u>Disruptive Beatscape Best Rhythm Altering Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diy-photography-support-systems-for-2024/"><u>DIY Photography Support Systems for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/editessence-system/"><u>EditEssence System</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-quadro-rtx-8000-drivers-now-windows-11-8-and-7-support-included/"><u>Get the Newest Quadro RTX 8000 Drivers Now - Windows 11, 8 & 7 Support Included</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/glam-rific-guide-to-hauls-and-hair-care/"><u>Glam-Rific Guide to Hauls and Hair Care</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-much-money-can-you-score-with-youtube-short-videos/"><u>How Much Money Can You Score with YouTube Short Videos?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-electronically-sign-a-wpt-file-using-digisigner-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Electronically Sign a .wpt file Using DigiSigner</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-adobe-premiere-tips-youtube-video-uploads/"><u>In 2024, Adobe Premiere Tips YouTube Video Uploads</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-nubia-z50-ultra-by-drfone-android/"><u>In 2024, How to Bypass FRP on Nubia Z50 Ultra?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-legally-sharing-tunes-on-instagram/"><u>The Ultimate Guide to Legally Sharing Tunes on Instagram</u></a></li>
 </ul></div>
 

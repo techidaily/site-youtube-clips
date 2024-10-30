@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Convincing Audiences to Join  A Positive Approach\""
-date: 2024-10-18T17:51:36.756Z
-updated: 2024-10-24T17:02:35.463Z
+date: 2024-10-26T05:58:22.383Z
+updated: 2024-10-30T01:32:47.335Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -64,20 +71,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -91,10 +91,10 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
@@ -102,10 +102,10 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,18 +123,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-broadcast-easily-3-steps-to-post-mp3-on-youtube/"><u>[New] Broadcast Easily 3 Steps to Post MP3 on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-capture-assistant-az-audits-and-alternatives/"><u>[New] In 2024, Ultimate Capture Assistant - AZ Audits & Alternatives</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-top-affordable-video-editors-of-2023-today/"><u>[Updated] 2024 Approved Discover Top Affordable Video Editors of 2023 Today</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-zoom-screen-recorders/"><u>[Updated] In 2024, The Ultimate Guide to Zoom Screen Recorders</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-tecno-spark-10c-frp-bypass-by-drfone-android/"><u>In 2024, About Tecno Spark 10C FRP Bypass</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/keep-the-sparkle-alive-sustaining-your-snapchat-streak-for-2024/"><u>Keep the Sparkle Alive Sustaining Your Snapchat Streak for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/master-youtube-ad-creation-with-no-cost-guide-inside/"><u>Master YouTube Ad Creation with No Cost – Guide Inside</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/repairing-ravaged-records-the-sampling-method/"><u>Repairing Ravaged Records: The Sampling Method</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/shedding-light-techniques-for-improving-youtube-video-quality/"><u>Shedding Light Techniques for Improving YouTube Video Quality</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essence-of-elegance-in-video-color-balancing/"><u>The Essence of Elegance in Video Color Balancing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-magic-5-lite-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor Magic 5 Lite without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtubes-top-tools-to-reduce-long-link-lengths/"><u>Youtube's Top Tools to Reduce Long Link Lengths</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-filmoras-peer-level-alternatives-the-top-10-background-changers/"><u>[New] Filmora's Peer-Level Alternatives The Top 10 Background Changers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-clearer-streams-youtube-video-borderless-adjustment/"><u>[Updated] Clearer Streams YouTube Video Borderless Adjustment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-5-next-level-editors-to-transcend-the-standard-youtube-videos/"><u>2024 Approved 5 Next-Level Editors to Transcend the Standard Youtube Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/accessing-your-linksys-router-fresh-passwords-and-usernames-july-2024-insights/"><u>Accessing Your Linksys Router: Fresh Passwords and Usernames, July 2024 Insights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/descomprimir-avi-a-vob-sin-costo-alguno-guia-rapida-con-movavi/"><u>Descomprimir AVI a VOB Sin Costo Alguno: Guía Rápida Con Movavi</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/everything-you-need-to-succeed-with-youtube-short-videos/"><u>Everything You Need to Succeed with YouTube Short Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c32-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia C32 Phone Without Password?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elite-10-sound-enhancers-across-os-platforms/"><u>In 2024, Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-through-slug-line-syntax-in-screenplays-for-2024/"><u>Navigating Through Slug Line Syntax in Screenplays for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Seeking Outstanding User Contributions"
-date: 2024-10-18T17:40:13.313Z
-updated: 2024-10-24T17:54:08.402Z
+date: 2024-10-25T08:36:20.578Z
+updated: 2024-10-29T21:10:36.761Z
 tags:
   - ai video
   - ai youtube
@@ -54,13 +54,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -70,6 +63,20 @@ YouTube has been working on improving the navigation of the comment section for 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -90,10 +97,10 @@ Suppose you are a viewer who is going through the comments section of a video. I
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -119,10 +126,10 @@ Alternatively, you can try out a few temporary solutions.
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
@@ -155,13 +162,6 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -177,17 +177,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-ace-your-videos-essential-editors-for-youtube/"><u>[New] Ace Your Videos Essential Editors for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>[New] Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-compile-of-the-most-beautiful-wedding-videos-youtube-and-vimeo-edition-for-2024/"><u>[Updated] Compile of the Most Beautiful Wedding Videos - Youtube & Vimeo Edition for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-innovating-communication-microsoft-azure-speech-to-text-explained/"><u>[Updated] In 2024, Innovating Communication Microsoft Azure Speech to Text Explained</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamlining-video-conferencing-on-chrome-os/"><u>2024 Approved Streamlining Video Conferencing on Chrome OS</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Identify malfunctioning your drivers with Windows Device Manager on Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-ending-automatic-video-captures-in-qt-player/"><u>In 2024, Ending Automatic Video Captures in QT Player</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-macbook-webcam-filming-made-simple/"><u>In 2024, MacBook Webcam Filming Made Simple</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/mastering-twitter-uploading-videos-compliance/"><u>Mastering Twitter Uploading Videos Compliance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oneplus-8t-analysis-fast-performance-hindered-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Hindered by Inconsistent Camera Quality</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unveiling-the-eight-best-free-video-editing-software-for-social-media/"><u>Unveiling the Eight Best FREE Video Editing Software for Social Media</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-backupmasters-expert-verdict-for-2024/"><u>[Updated] BackUpMasters Expert Verdict for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-bypassing-barriers-privately-share-youtube-video-via-google/"><u>[Updated] Bypassing Barriers Privately Share YouTube Video via Google</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-narzo-n53-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-19-critical-examples-of-the-metaverse-unveiled/"><u>2024 Approved 19 Critical Examples of the Metaverse Unveiled</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-content-efficiently-adding-youtube-captions/"><u>2024 Approved Streamline Your Content Efficiently Adding YouTube Captions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/achieving-cohesion-in-content-with-flv-video-integration/"><u>Achieving Cohesion in Content with FlV Video Integration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-digital-dreamland-gamers-income-evolution/"><u>In 2024, Digital Dreamland Gamers' Income Evolution</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-the-stars-of-youtubes-best-music-videos-2023/"><u>In 2024, Discovering the Stars of YouTube's Best Music Videos, 2023</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-the-interface-effective-process-filtering-and-customizing-themes-in-w11/"><u>Navigating the Interface: Effective Process Filtering & Customizing Themes in W11</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-install-download-hp-officejet-5740-printer-drivers-today/"><u>Quick Install: Download HP OfficeJet 5740 Printer Drivers Today!</u></a></li>
 </ul></div>
 

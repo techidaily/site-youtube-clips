@@ -1,7 +1,7 @@
 ---
 title: "\"Branding with Visuals  Inserting Watermarks Into YouTube Vids\""
-date: 2024-08-10T05:06:32.000Z
-updated: 2024-08-11T05:06:32.000Z
+date: 2024-10-26T20:50:38.471Z
+updated: 2024-10-30T10:27:56.054Z
 tags:
   - ai video
   - ai youtube
@@ -35,14 +35,8 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 
 [Free Download](https://tools.techidaily.com/wondershare/anieraser/download/) [Free Download](https://tools.techidaily.com/wondershare/anieraser/download/) [Edit online](https://anieraser.media.io/app/?utm%5Fsource=linkshare&utm%5Fmedium=affiliate&utm%5Fcampaign=fx-article&utm%5Fcontent=link%5F21111411%5F2023-02-21)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.media.io/anieraser/anieraser/article_recommend.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/anieraser-square.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add a Watermark to Your YouTube Videos
 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
@@ -58,9 +52,6 @@ To add a watermark to your previously uploaded videos you will need to have crea
 
 * This will lead you to setting center. Click on "view additional features"
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube watermark view additional features](https://images.wondershare.com/filmora/article-images/view-additional-features.JPG)
 
 * To the left of the window, Click the third option of "branding"
@@ -69,10 +60,12 @@ To add a watermark to your previously uploaded videos you will need to have crea
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Notes
 
 **YouTube watermark size**: Your watermark should be transparent, square, and larger than 50x50 pixels, which is the size it will be shrunk down to when it appears in the corner of your videos.
@@ -100,6 +93,13 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -132,57 +132,64 @@ The image should be in .PNG or .GIF format.
 * Press space bar once and then click ‘change the title animation'.
 * You will see your image there. Click on ad title and press Ctrl+p to publish.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Create a Transparent logo for Youtube Channel
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 1: Import video and image to Filmora
 
 Open Filmora. Choose **Create New Project**. Click import media files here in Media library. Select your video and a green screen image. In fact, a green screen video is also accessable, but usually brand logo is image. Now drag them onto timeline.
 
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Import video and image to Filmora
 
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 3: Scale the logo
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -191,12 +198,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-video-profiles-using-smart-templates/"><u>[New] Elevate Your Video Profiles Using Smart Templates</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-uncovering-elite-instagram-ringtones-and-crafting-an-astute-alarm-for-2024/"><u>[Updated] Uncovering Elite Instagram Ringtones and Crafting an Astute Alarm for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-a-powerful-content-strategy-uncover-the-best-5-youtube-marketing-tactics/"><u>2024 Approved Crafting a Powerful Content Strategy Uncover the Best 5 YouTube Marketing Tactics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/7-pulse-pounding-workouts-that-gain-traction-on-social-media/"><u>7 Pulse-Pounding Workouts That Gain Traction on Social Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diversify-referrals-tactics-for-effective-youtube-backlinks-for-2024/"><u>Diversify Referrals Tactics for Effective YouTube Backlinks for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/dragon-quest-xi-resolving-the-game-crash-problem/"><u>Dragon Quest XI - Resolving the Game Crash Problem</u></a></li>
+<li><a href="https://discover-best.techidaily.com/guida-allacquisizione-del-video-da-schermo-migliore-su-pc-windows-10-8-e-7-scopri-come-registrare-tutto-il-tuo-schermo-con-facilita/"><u>Guida All'Acquisizione Del Video Da Schermo Migliore Su PC Windows 10, 8 E 7: Scopri Come Registrare Tutto Il Tuo Schermo Con Facilità!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieving-youtube-apex-with-smart-management-tools/"><u>In 2024, Achieving YouTube Apex with Smart Management Tools</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/introducing-the-new-era-of-ai-displays-samsungs-smart-odyssey-and-innovative-viewflex-monitors/"><u>Introducing the New Era of AI Displays - Samsung's Smart Odyssey and Innovative ViewFlex Monitors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/jake-paul-from-dabbing-to-dominance-youtube-triumph/"><u>Jake Paul From Dabbing to Dominance - YouTube Triumph</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-gen-thin-and-light-gaming-a-comprehensive-look-at-razers-stealth-13-laptop/"><u>Next-Gen Thin & Light Gaming: A Comprehensive Look at Razer's Stealth 13 Laptop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/smartly-craft-your-podcast-title-with-these-tools-for-2024/"><u>Smartly Craft Your Podcast Title with These Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-infinix-note-30-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Infinix Note 30</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleashing-the-potential-of-youtube-live-in-depth-insights-into-wirecast-streaming/"><u>Unleashing the Potential of YouTube Live In-Depth Insights Into WireCast Streaming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-your-favorites-anytime-anyplace-with-top-6-free-video-downloaders/"><u>Unlock Your Favorites Anytime, Anyplace with Top 6 Free Video Downloaders</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-nokia-c12-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Nokia C12 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+</ul></div>
 

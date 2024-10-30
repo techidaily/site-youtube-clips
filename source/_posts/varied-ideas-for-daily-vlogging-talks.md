@@ -1,7 +1,7 @@
 ---
 title: "Varied Ideas for Daily Vlogging Talks"
-date: 2024-10-03T22:58:59.862Z
-updated: 2024-10-07T04:36:23.333Z
+date: 2024-10-23T12:07:42.244Z
+updated: 2024-10-30T11:06:40.168Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -52,16 +59,10 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -97,39 +98,32 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,24 +140,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-comprehensive-blueprint-for-subtitle-distribution-on-tiktok-and-twitch/"><u>[New] Comprehensive Blueprint for Subtitle Distribution on TikTok and Twitch</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/erfecting-content-aesthetics-crafting-personalized-thumbnails/"><u>[New] Perfecting Content Aesthetics Crafting Personalized Thumbnails</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-premiere-pro-solutions-to-perfect-iphone-hd-video-exposure-balance-for-2024/"><u>[New] Premiere Pro Solutions to Perfect iPhone HD Video Exposure Balance for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-becoming-a-wealthy-beauty-channel-host/"><u>[Updated] Becoming a Wealthy Beauty Channel Host</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-elevate-chat-dynamics-pin-messages-with-confidence-in-discord/"><u>[Updated] Elevate Chat Dynamics Pin Messages with Confidence in Discord</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/10-most-popular-beauty-gurus-on-youtube/"><u>10 Most Popular Beauty Gurus on YouTube</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-vivo-v27-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/assessing-mr-beasts-monetary-trajectory/"><u>Assessing Mr. Beast’s Monetary Trajectory</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/bestes-software-zum-screensharing-und-aufzeichnen-auf-pcs-mit-windows-10-8-oder-7/"><u>Bestes Software Zum Screensharing Und -Aufzeichnen Auf PCs Mit Windows 10, 8 Oder 7</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dissecting-youtubes-activities-post-uploading-videos-for-2024/"><u>Dissecting YouTube's Activities Post-Uploading Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/does-youtube-offer-regular-viewers-money-in-2024/"><u>Does YouTube Offer Regular Viewers Money, In 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enrich-viewers-experience-a-comprehensive-guide-to-youtube-end-screens-for-2024/"><u>Enrich Viewers' Experience A Comprehensive Guide to Youtube End Screens for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-m34-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy M34 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-razr-40-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Razr 40</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-dive-deep-into-the-world-of-facebook-story-creation-expert-advice-inside/"><u>In 2024, Dive Deep Into the World of Facebook Story Creation Expert Advice Inside</u></a></li>
-<li><a href="https://video-capture.techidaily.com/perfect-emulators-to-replay-playstation-1-classics-for-2024/"><u>Perfect Emulators to Replay PlayStation 1 Classics for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/playlist-retrieval-made-straightforward-your-compreenaside/"><u>Playlist Retrieval Made Straightforward - Your Compreenaside</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-commercial-viability-of-creative-video-content/"><u>The Commercial Viability of Creative Video Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-unlocking-freenocams-webcam-capturing-capabilities/"><u>[New] 2024 Approved Unlocking FreenoCam's Webcam Capturing Capabilities</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-on-the-side-balancing-employment-with-youtube/"><u>[New] Creating on the Side Balancing Employment with YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-musical-content-on-instagram/"><u>[New] In 2024, Crafting Musical Content on Instagram</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-practices-for-video-thumbnail-creation-in-the-digital-age/"><u>[Updated] Best Practices for Video Thumbnail Creation in the Digital Age</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-dslr-vs-mirrorless-optimal-choice-for-video-production/"><u>[Updated] DSLR vs Mirrorless Optimal Choice for Video Production</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-budget-friendly-high-quality-ae-templates/"><u>2024 Approved Best Budget-Friendly, High-Quality AE Templates</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-waterproof-gopro-filters-for-undersea-film/"><u>Best Waterproof GoPro Filters for Undersea Film</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-ways-to-restore-your-dvdcd-rom-hardware-device-on-windows-11-understanding-and-fixing-configuration-error-code-19/"><u>Effective Ways to Restore Your DVD/CD-ROM Hardware Device on Windows 11: Understanding and Fixing Configuration Error (Code 19)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/enhance-your-connection-intel-wifi-6-ax200-drivers-latest-version-compatible-with-win-11-and-10/"><u>Enhance Your Connection: Intel Wifi 6 AX200 Drivers - Latest Version Compatible with Win 11 & 10</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-resolve-common-apex-legends-game-crashes-and-engine-errors/"><u>How to Resolve Common Apex Legends Game Crashes and Engine Errors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-comic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>In 2024, Comic Capers Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-s18-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo S18</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/samsung-galaxy-watch-active-review-a-wellness-focused-tracker/"><u>Samsung Galaxy Watch Active Review: A Wellness-Focused Tracker</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/viral-video-legends-youtubed-for-millions/"><u>Viral Video Legends YouTubed for Millions</u></a></li>
 </ul></div>
 

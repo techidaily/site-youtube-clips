@@ -1,7 +1,7 @@
 ---
 title: "Create Captivating YT Thumbnails Fast"
-date: 2024-08-10T05:05:03.627Z
-updated: 2024-08-11T05:05:03.627Z
+date: 2024-10-28T16:50:19.707Z
+updated: 2024-10-30T00:57:26.066Z
 tags:
   - ai video
   - ai youtube
@@ -35,9 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -48,16 +45,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
@@ -66,9 +57,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
@@ -77,17 +65,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
@@ -96,17 +77,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
@@ -129,12 +103,40 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/-deep-dive-into-digital-platform-wealth-dailymotion-and-youtube-comparison-for-2024/"><u>[New] A Deep-Dive Into Digital Platform Wealth Dailymotion & YouTube Comparison for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-direct-your-media-essential-flv-to-youtube-applications-ranked/"><u>[New] In 2024, Direct Your Media Essential Flv-to-YouTube Applications Ranked</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-leveraging-whiteboards-across-ios-android-and-desktop-zoom-sessions/"><u>[New] Leveraging Whiteboards Across iOS, Android & Desktop Zoom Sessions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-premium-twelve-full-frame-video-tech-lists/"><u>[Updated] 2024 Approved Premium Twelve Full Frame Video Tech Lists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-success-strategy-standard-studio-or-beta-edge/"><u>[Updated] Channel Success Strategy Standard Studio or Beta Edge</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-avoiding-obscurity-tips-for-staff-picked-videos-at-vimeo/"><u>[Updated] In 2024, Avoiding Obscurity Tips for Staff-Picked Videos at Vimeo</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-learning-top-15-youtube-experts-in-science/"><u>2024 Approved Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-envisioning-the-future-learn-from-these-6-metaverse-scenarios/"><u>2024 Approved Envisioning the Future Learn From These 6 Metaverse Scenarios</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-itel-a60-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Itel A60</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/get-both-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective/"><u>Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-optimally-utilize-a-creative-commons-license/"><u>How to Optimally Utilize a Creative Commons License</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-engage-entertain-enlighten-crafting-compelling-live-thumbnails/"><u>In 2024, Engage, Entertain, Enlighten Crafting Compelling Live Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-monetized-space-a-buyers-primer/"><u>Mastering the Monetized Space A Buyer's Primer</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mic-testing-how-to-test-your-microphone-quickly-and-easily/"><u>Mic Testing: How to Test Your Microphone Quickly & Easily</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solved-what-to-do-when-macos-programs-refuse-to-launch/"><u>Solved! What to Do When macOS Programs Refuse to Launch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essential-tips-for-discarding-unwanted-youtube-files/"><u>The Essential Tips for Discarding Unwanted YouTube Files</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/troubleshooting-your-video-shorts-invisible-thumbnail/"><u>Troubleshooting Your Video Short's Invisible Thumbnail</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlocking-the-power-of-hashtags-in-youtube-gaming-culture/"><u>Unlocking the Power of Hashtags in YouTube Gaming Culture</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

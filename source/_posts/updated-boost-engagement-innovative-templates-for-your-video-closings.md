@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Engagement  Innovative Templates for Your Video Closings\""
-date: 2024-10-21T17:50:29.684Z
-updated: 2024-10-24T16:15:05.625Z
+date: 2024-10-25T00:13:54.045Z
+updated: 2024-10-29T18:42:39.605Z
 tags:
   - ai video
   - ai youtube
@@ -85,36 +85,15 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -122,13 +101,40 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -145,10 +151,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,18 +172,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-17-best-lights-and-lighting-equipment-for-youtube-videos/"><u>[New] 2024 Approved 17 Best Lights and Lighting Equipment for YouTube Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-exclusive-recording-gadgets-for-windows-10-gamers/"><u>[New] In 2024, Exclusive Recording Gadgets for Windows 10 Gamers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audio-artisans-crafting-a-personal-library-with-6-best-free-youtube-apps/"><u>[Updated] 2024 Approved Audio Artisans Crafting a Personal Library with 6 Best Free YouTube Apps</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>[Updated] Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>[Updated] Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-covert-content-creation-how-to-invisibly-alter-videos/"><u>2024 Approved Covert Content Creation How to Invisibly Alter Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-duality-of-delivery-engaging-audiences-through-alternative-perspectives-for-reaction-videos/"><u>2024 Approved Duality of Delivery Engaging Audiences Through Alternative Perspectives for Reaction Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-tips-for-creating-compelling-free-ads-on-youtube/"><u>2024 Approved Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-nokia-c210-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Nokia C210 without App | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/engaging-audiences-how-tos-for-effective-youtube-logo-creation-for-2024/"><u>Engaging Audiences How-To's for Effective YouTube Logo Creation for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-best-of-breed-capture-card-for-switch/"><u>In 2024, Best of Breed Capture Card for Switch</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-guide-top-10-online-video-to-mp3-apps/"><u>In 2024, Essential Guide Top 10 Online Video to MP3 Apps</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-vlc-key-mac-functions-explained-for-2024/"><u>Mastering VLC Key Mac Functions Explained for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-tricks-to-optimize-live-streaming-of-your-snapchat-content/"><u>[New] 2024 Approved Tricks to Optimize Live Streaming of Your Snapchat Content</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ballot-battlegrounds-prime-political-games-guide-for-2024/"><u>[Updated] Ballot Battlegrounds Prime Political Games Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-efficiently-convert-youtube-to-desktop-format/"><u>2024 Approved Efficiently Convert YouTube to Desktop Format</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/achieving-broadcast-excellence-your-guide-to-youtubes-live-360-videos/"><u>Achieving Broadcast Excellence Your Guide to YouTube's Live 360 Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/apples-os-legacy-a-detailed-chronicle-of-ios-from-its-first-release-version-10-to-latest-update-version-180/"><u>Apple's OS Legacy: A Detailed Chronicle of iOS From Its First Release (Version 1.0) to Latest Update (Version 18.0)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/arctic-athleticism-winter-olympics-spotlight-on-snowboard-cross-stars/"><u>Arctic Athleticism Winter Olympics Spotlight on Snowboard Cross Stars</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/backward-playmanship-a-guide-to-reversed-youtube-videos/"><u>Backward Playmanship A Guide to Reversed YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-camera-for-videos-mirrorless-vs-dslr-showdown-for-2024/"><u>Best Camera for Videos Mirrorless Vs. DSLR Showdown for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-views-and-engagement-top-rated-online-keyword-generators-for-2024/"><u>Boost Views and Engagement Top-Rated Online Keyword Generators for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/choosing-the-right-lights-and-cameras-for-youtube-videos-for-2024/"><u>Choosing the Right Lights & Cameras for YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/compatible-drivers-for-logitech-c920-on-windows-11-10-and-8-systems/"><u>Compatible Drivers for Logitech C920 on Windows 11, 10 and 8 Systems</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-solutions-to-common-problems-with-logitech-g933-headset-mic/"><u>Expert Solutions to Common Problems with Logitech G933 Headset Mic</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-vivo-x90s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-13-mini-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone 13 mini Without Backup? | Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-redmi-k70-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Redmi K70</u></a></li>
 </ul></div>
 

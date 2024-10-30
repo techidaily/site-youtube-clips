@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost"
-date: 2024-10-17T16:40:14.139Z
-updated: 2024-10-24T16:40:31.050Z
+date: 2024-10-28T23:07:45.105Z
+updated: 2024-10-29T21:01:47.935Z
 tags:
   - ai video
   - ai youtube
@@ -38,37 +38,43 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
@@ -86,10 +92,10 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -107,22 +113,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-dive-deep-into-unreal-worlds-with-these-titles/"><u>[New] 2024 Approved Dive Deep Into Unreal Worlds with These Titles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>[New] 2024 Approved Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] Crafting Professional Content on YouTube via Enhancements</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creative-freedom-on-a-budget-essential-green-screen-effects-from-top-4-tutorial-sources/"><u>[Updated] Creative Freedom on a Budget Essential Green Screen Effects From Top 4 Tutorial Sources</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-echoing-ethos-with-closing-credits/"><u>[Updated] Echoing Ethos with Closing Credits</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-quick-video-sharing-tweet-it-up-no-need-for-retweets-for-2024/"><u>[Updated] Quick Video Sharing Tweet It Up - No Need for Retweets for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-directing-fundamentals-a-comprehensive-online-course-by-youtube-experts/"><u>2024 Approved Directing Fundamentals A Comprehensive Online Course by YouTube Experts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/4-effective-methods-for-slide-embedding-from-youtube/"><u>4 Effective Methods for Slide Embedding From YouTube</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/easy-tutorial-mastering-the-art-of-cd-and-dvd-writing-using-microsofts-latest-os/"><u>Easy Tutorial: Mastering the Art of CD & DVD Writing Using Microsoft's Latest OS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/expert-tips-for-removing-persistent-youtube-channels-mobilepc/"><u>Expert Tips for Removing Persistent Youtube Channels (Mobile/PC)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-achieving-peak-video-clarity-with-youtubes-tools/"><u>In 2024, Achieving Peak Video Clarity with YouTube's Tools</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-newcomers-cheat-sheet-unlock-ps-editing-secrets/"><u>In 2024, Newcomer's Cheat Sheet Unlock PS Editing Secrets</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-pro-level-editing-10-must-have-applications-for-insta-videos/"><u>In 2024, Pro-Level Editing 10 Must-Have Applications for Insta Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Realme 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/innovative-virtual-engagement-harnessing-the-power-of-zoom-in-gmail/"><u>Innovative Virtual Engagement Harnessing the Power of Zoom in Gmail</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/masterclass-in-youtube-video-previews-and-trailers/"><u>Masterclass in YouTube Video Previews and Trailers</u></a></li>
-<li><a href="https://driver-error.techidaily.com/printer-no-drive-issue-resolved/"><u>Printer No-Drive Issue Resolved</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-channel-name-magic-ideas-for-impactful-titles-for-2024/"><u>[Updated] Channel Name Magic Ideas for Impactful Titles for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-enhance-clarity-of-online-video-content-for-2024/"><u>[Updated] How to Enhance Clarity of Online Video Content for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-strategic-screen-customization-timely-adjustments-in-teams/"><u>[Updated] Strategic Screen Customization Timely Adjustments in Teams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>2024 Approved Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elite-video-influencers/"><u>2024 Approved Elite Video Influencers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-video-production-7-best-free-sounds-for-editors/"><u>2024 Approved Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
+<li><a href="https://program-issues.techidaily.com/apex-legends-troubleshooting-resolving-error-code-leaf-issue/"><u>Apex Legends Troubleshooting: Resolving Error Code Leaf Issue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/aspect-ratios-decoded-youtube-edition-a-quick-reference-guide/"><u>Aspect Ratios Decoded YouTube Edition – A Quick Reference Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-buzz-factor-with-these-3-dynamic-approaches-to-youtube-video-reactions/"><u>Boost Your Buzz Factor with These 3 Dynamic Approaches to YouTube Video Reactions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates-for-2024/"><u>Boost Your Channels Crafting Captivating YT Descriptions Using Custom Templates for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-the-course-to-trending-youtubers/"><u>Charting the Course to Trending YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cost-effective-recording-devices-the-ultimate-list-for-2024/"><u>Cost-Effective Recording Devices The Ultimate List for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-dfu-mode-on-iphone-6s-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of DFU Mode on iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-5-captivating-videos-from-the-world-of-fb/"><u>In 2024, Top 5 Captivating Videos From the World of FB</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sculpting-images-creative-distortion-with-adobe-ph/"><u>Sculpting Images Creative Distortion with Adobe PH</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ost-effective-7-apps-for-blocking-android-web-ads-for-2024/"><u>The Most Effective 7 Apps for Blocking Android Web Ads for 2024</u></a></li>
 </ul></div>
 

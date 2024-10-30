@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dissecting the Narrative in YouTube Dialogues"
-date: 2024-10-21T17:37:04.438Z
-updated: 2024-10-24T16:30:54.916Z
+date: 2024-10-25T10:48:51.337Z
+updated: 2024-10-29T21:44:52.116Z
 tags:
   - ai video
   - ai youtube
@@ -74,10 +74,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -106,6 +106,13 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -122,20 +129,19 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -162,10 +168,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -183,16 +189,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-guide-to-archiving-online-conversations-with-fb/"><u>[New] In-Depth Guide to Archiving Online Conversations with FB</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-easy-access-best-free-youtube-subtitle-extractors/"><u>[Updated] Easy Access Best Free YouTube Subtitle Extractors</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-top-10-heavy-lift-drones-for-2024/"><u>[Updated] Top 10 Heavy Lift Drones for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-shot-upgrade-no-money-needed/"><u>[Updated] Ultimate Shot Upgrade - No Money Needed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-adobe-premiere-power-enhancing-your-youtube-presence/"><u>2024 Approved Adobe Premiere Power Enhancing Your YouTube Presence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-youtube-presence-with-studio-insights/"><u>Elevate Your YouTube Presence with Studio Insights</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-hp-thunderbolt-docking-station-g2-drives-setup-tutorials-and-power-variants-120w230w/"><u>Get the Latest HP Thunderbolt Docking Station G2 Drives: Setup Tutorials & Power Variants (120W/230W)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-effective-teacher-videos-on-youtube-top-10-strategies/"><u>In 2024, Crafting Effective Teacher Videos on YouTube – Top 10 Strategies</u></a></li>
-<li><a href="https://howto.techidaily.com/nokia-c12-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nokia C12 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-comprehensive-gadget-testing-and-analysis/"><u>Tom's Tech Review: Comprehensive Gadget Testing and Analysis</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-realme-gt-neo-5-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Realme GT Neo 5 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>2024 Approved Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-deciphering-adsense-profits-on-youtube-revenue-per-kv-watched/"><u>2024 Approved Deciphering AdSense Profits on YouTube Revenue per KV Watched</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/a-concise-guide-to-speedy-mac-screen-capture-for-2024/"><u>A Concise Guide to Speedy Mac Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accelerated-steps-to-rearrange-youtube-music-ordering-for-2024/"><u>Accelerated Steps to Rearrange YouTube Music Ordering for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/combating-content-id-blocks-on-youtube-with-knowledge-for-2024/"><u>Combating Content ID Blocks on YouTube with Knowledge for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/detailed-survey-gecatas-game-capture-utility/"><u>Detailed Survey Gecata's Game Capture Utility</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/guide-making-headphones-appear-in-windows-10-playback-device-list/"><u>Guide: Making Headphones Appear in Windows 10 Playback Device List</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-driver-on-windows-11107-by-drivereasy-guide/"><u>How to Manually Install a Driver on Windows 11/10/7</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/navigating-cellphone-options-the-best-plans-for-older-adults/"><u>Navigating Cellphone Options: The Best Plans for Older Adults</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/sharing-videos-tweet-tumble-route/"><u>Sharing Videos Tweet-Tumble Route</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-comprehensive-list-of-instagram-tracking-tools-for-better-decisions/"><u>The Comprehensive List of Instagram Tracking Tools for Better Decisions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transform-wmv-videos-to-lossless-flac-audio-at-no-cost-quick-and-secure-online-tool/"><u>Transform WMV Videos to Lossless FLAC Audio at No Cost - Quick & Secure Online Tool</u></a></li>
 </ul></div>
 

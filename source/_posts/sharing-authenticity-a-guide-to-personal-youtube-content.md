@@ -1,7 +1,7 @@
 ---
 title: "\"Sharing Authenticity  A Guide to Personal YouTube Content\""
-date: 2024-10-18T16:14:04.709Z
-updated: 2024-10-24T16:14:37.280Z
+date: 2024-10-28T22:43:24.981Z
+updated: 2024-10-29T20:26:34.394Z
 tags:
   - ai video
   - ai youtube
@@ -49,27 +49,27 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
@@ -88,15 +88,28 @@ Behind all their smiles and outrageous on-camera personas, there are a lot of Yo
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\.  YouTube Live/Webinar
 
@@ -107,13 +120,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,24 +136,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-innovative-adventures-unveiled-the-ultimate-top-10-game-showcase/"><u>[New] In 2024, Innovative Adventures Unveiled The Ultimate Top-10 Game Showcase</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-ultimate-battery-selection-guide-for-uavs/"><u>[Updated] 2024 Approved The Ultimate Battery Selection Guide for UAVs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-guide-to-homemade-film-crafting-youtube-and-beyond/"><u>2024 Approved A Guide to Homemade Film Crafting, YouTube & Beyond</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-novices-pathway-to-writing-youtube-video-plans-for-2024/"><u>A Novice's Pathway to Writing YouTube Video Plans for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/chatgpt-plus-uncover-if-its-a-game-changer-with-these-5-must-know-reasons-to-subscribe/"><u>ChatGPT Plus: Uncover if It's a Game-Changer with These 5 Must-Know Reasons to Subscribe!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-vids-with-template-magic-for-2024/"><u>Crafting Engaging Vids with Template Magic for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-edge-concepts-for-captivating-youtube-video-thumbnails-for-2024/"><u>Cutting-Edge Concepts for Captivating YouTube Video Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-online-privacy-youtubes-access-controls/"><u>Enhancing Online Privacy YouTube's Access Controls</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-logitech-g-pro-driving-force-ls-wireless-gamepad-compatible-with-win11-win10-win8-and-win7/"><u>Free Download: Logitech G PRO Driving Force LS Wireless Gamepad Compatible with Win11, Win10, Win8 & Win7</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oneplus-nord-n30-se-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast OnePlus Nord N30 SE to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/1716361272388-how-to-embed-a-youtube-playlist-on-a-website/"><u>How To Embed A YouTube Playlist On a Website</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 13 Pro?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c33-2023-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Realme C33 2023 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/is-there-any-danger-in-employing-subforsub-for-youtube-popularity/"><u>Is There Any Danger in Employing Subforsub for YouTube Popularity?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-users-rejoice-eliminate-the-black-screen-glitch-in-rainbow-six-siege-with-these-simple-steps/"><u>PC Users Rejoice: Eliminate the Black Screen Glitch in Rainbow Six Siege with These Simple Steps</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/spark-interest-the-art-of-youtube-intros-in-imovie/"><u>Spark Interest The Art of YouTube Intros in iMovie</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/successful-fixes-and-tips-for-overcoming-error-1603-fatal-installation-issue/"><u>Successful Fixes & Tips for Overcoming Error 1603 - Fatal Installation Issue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-artful-swap-from-cold-scenes-to-cozy-vlogs/"><u>The Artful Swap From Cold Scenes to Cozy Vlogs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/thrifty-tips-for-hosting-webinars-on-youtube/"><u>Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-bring-on-the-browsers-top-strategies-to-transform-your-unwatched-videos/"><u>2024 Approved Bring on the Browsers Top Strategies to Transform Your Unwatched Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-list-of-twitter-video-convertors/"><u>2024 Approved The Ultimate List of Twitter Video Convertors</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-twitch-live-recording-made-simple/"><u>2024 Approved Twitch Live Recording Made Simple</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-look-at-youtuber-snippets-for-2024/"><u>A Comprehensive Look at Youtuber Snippets for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-step-by-step-approach-to-yt-channel-descriptors-for-2024/"><u>A Step-by-Step Approach to YT Channel Descriptors for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/achieve-youtube-profitability-the-milestone-of-500plus-subscribers-unlocked/"><u>Achieve Youtube Profitability The Milestone of 500+ Subscribers Unlocked</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-to-budget-friendly-webinars-using-youtube-for-2024/"><u>Beginner's Guide to Budget-Friendly Webinars Using YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-a-sustainable-income-via-youtube-and-adsense-for-2024/"><u>Building a Sustainable Income via YouTube and AdSense for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cinematography-secrets-unveiled-by-youtube-pros/"><u>Cinematography Secrets Unveiled by YouTube Pros</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/composing-channel-overview-teaser-clips/"><u>Composing Channel Overview Teaser Clips</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-gionee-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Gionee FRP?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/innovative-two-legged-automaton-shatters-velocity-milestone-yet-lags-behind-quick-movers/"><u>Innovative Two-Legged Automaton Shatters Velocity Milestone - Yet Lags Behind Quick Movers</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-the-maze-of-directdraw-fixes-on-modern-microsoft-oses/"><u>Navigating the Maze of DirectDraw Fixes on Modern Microsoft OSes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/soundscape-storytelling-at-its-best/"><u>Soundscape Storytelling at Its Best</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-the-leading-wireless-mice-of-2024/"><u>Ultimate Guide: The Leading Wireless Mice of 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-the-windows-10-battery-status-screen-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Screen - A Comprehensive Guide</u></a></li>
 </ul></div>
 

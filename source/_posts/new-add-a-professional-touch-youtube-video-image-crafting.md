@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Add a Professional Touch  YouTube Video Image Crafting\""
-date: 2024-10-21T17:47:14.888Z
-updated: 2024-10-24T17:38:12.475Z
+date: 2024-10-22T20:17:03.063Z
+updated: 2024-10-30T07:50:19.303Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -51,25 +58,39 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
 In this way, you can add a custom thumbnail to the new videos and change the video thumbnail of the previously uploaded videos.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: Thumbnail Makers to Create Custom YouTube Thumbnails
@@ -77,13 +98,6 @@ In this way, you can add a custom thumbnail to the new videos and change the vid
 Of course, you can use some of the best tools to make a YouTube video thumbnail. In this part, we will show you some of the best tools to create custom YouTube thumbnails.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 1\.   **Create YouTube Thumbnail with Online solution - Canva**
 
@@ -109,37 +123,23 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -157,13 +157,6 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
 
@@ -221,6 +214,13 @@ Beyond simply using colors that are different from other people’s colors, you 
 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
 #### 6. Make Your Text Huge
@@ -264,16 +264,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-perfecting-iphone-360-video-posts-for-your-feed/"><u>[New] In 2024, Perfecting iPhone 360 Video Posts for Your Feed</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unveiling-secrets-enhancing-facebook-lives-impact/"><u>[Updated] 2024 Approved Unveiling Secrets Enhancing Facebook Lives' Impact</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-insightful-cloud-costs-price-comparison-and-recommendations/"><u>2024 Approved Insightful Cloud Costs Price, Comparison & Recommendations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/comparing-dailymovements-and-youtubes-income-models/"><u>Comparing DailyMovement's and Youtube's Income Models</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/comparing-internet-promotion-tactics-of-2009-the-role-of-sex-appeal-vs-marketing-mastery-with-massmail/"><u>Comparing Internet Promotion Tactics of 2009: The Role of Sex Appeal vs Marketing Mastery with Massmail</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-videos-with-complimentary-banners-here/"><u>Elevate Your Videos with Complimentary Banners, Here</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-raw-footage-to-final-cut-youtube-edition/"><u>From Raw Footage to Final Cut YouTube Edition</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gratuit-moyen-de-conversion-video-facile-pour-transformer-des-fichiers-mov-en-format-mjpeg-convertissez-sans-frais-avec-moviemakerpro/"><u>Gratuit: Moyen De Conversion Vidéo Facile Pour Transformer Des Fichiers MOV en Format MJPEG - Convertissez Sans Frais Avec MovieMakerPro</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/make-the-most-of-your-tunes-top-5-tools-for-converting-spotify-to-youtube-playlists/"><u>Make the Most of Your Tunes Top 5 Tools for Converting Spotify to YouTube Playlists</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/windows-11sharepoint-online/"><u>Windows 11におけるSharePoint Onlineのネットワークドライブへのマッピング手順</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-studios-pathway-to-high-quality-videography/"><u>YouTube Studio's Pathway to High-Quality Videography</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-entering-income-territory-with-a-thousand-followers/"><u>[New] Entering Income Territory with a Thousand Followers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-jocular-images-for-apple-devices/"><u>[New] Jocular Images for Apple Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-how-to-control-your-iphone-image-orientation/"><u>[Updated] 2024 Approved How to Control Your iPhone Image Orientation</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-how-to-fix-the-facebook-story-not-uploading-problem/"><u>[Updated] How to Fix the Facebook Story Not Uploading Problem?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mystic-mastery-in-minimalist-photo-manipulations/"><u>[Updated] Mystic Mastery in Minimalist Photo Manipulations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/hashtag-hacks-for-amplifying-gamer-content/"><u>Hashtag Hacks for Amplifying Gamer Content</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-mute-google-meet-for-2024/"><u>How to Mute Google Meet for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-download-free-mcb-skin-designs/"><u>In 2024, Download Free MCB Skin Designs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-netgear-c3000-dual-wan-router-outdated-technology-assessment/"><u>In Depth Review of the Netgear C3000 Dual WAN Router - Outdated Technology Assessment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/seek-out-sites-that-connect-you-to-youtube-revenue-models/"><u>Seek Out Sites That Connect You to YouTube Revenue Models</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-to-prolong-pin-length-for-enhanced-safety/"><u>Tips to Prolong PIN Length for Enhanced Safety</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unraveling-video-platform-distinctions-a-youtube-vs-dailymention-analysis/"><u>Unraveling Video Platform Distinctions A YouTube Vs. DailyMention Analysis</u></a></li>
+<li><a href="https://win-special.techidaily.com/wiederherstellung-von-verlorenen-oder-geloschten-dateien-auf-ihrem-pc/"><u>Wiederherstellung Von Verlorenen Oder Gelöschten Dateien Auf Ihrem PC</u></a></li>
 </ul></div>
 

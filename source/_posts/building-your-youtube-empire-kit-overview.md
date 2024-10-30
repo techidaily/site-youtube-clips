@@ -1,7 +1,7 @@
 ---
 title: "\"Building Your YouTube Empire  Kit Overview\""
-date: 2024-08-10T05:04:52.151Z
-updated: 2024-08-11T05:04:52.151Z
+date: 2024-10-24T23:45:42.908Z
+updated: 2024-10-30T08:42:06.562Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
 # Essential YouTube Equipment For Starting Your Channel - What Do You Really Need?
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -53,9 +50,6 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -65,6 +59,13 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -79,8 +80,12 @@ If you have the budget available to get some lighting equipment, you can find so
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -93,10 +98,14 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ## Smartphone Camera Gear
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -106,17 +115,18 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,12 +134,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-youtube-creation-by-merging-media-and-music-for-2024/"><u>[New] Elevate Your YouTube Creation by Merging Media and Music for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>[New] From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-how-to-screenshot-or-record-of-whats-showing-on-your-mac/"><u>[Updated] 2024 Approved How to Screenshot or Record of What's Showing On Your Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-audio-transformation-tips-for-enhanced-competitive-play-in-free-fire/"><u>[Updated] 2024 Approved Step-by-Step Audio Transformation Tips for Enhanced Competitive Play in Free Fire</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-ace-10-budget-friendly-video-subtitle-grabs/"><u>[Updated] Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-earnings-on-youtube-a-monthly-perspective/"><u>[Updated] Earnings on YouTube A Monthly Perspective?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-the-way-in-video-production-comprerant-free-youtube-intro-makers/"><u>[Updated] Leading the Way in Video Production Compreran't Free YouTube Intro Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-complete-guide-to-youtubes-live-image-lore/"><u>2024 Approved A Complete Guide to YouTube's Live Image Lore</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unwind-the-clock-how-to-reverse-videos-online/"><u>2024 Approved Unwind the Clock How to Reverse Videos Online</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-samsung-galaxy-a34-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Samsung Galaxy A34 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-compre-cookies-guide-to-marketing-magic-with-20-terms-for-2024/"><u>A Compre Cookie's Guide to Marketing Magic with 20 Terms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings-for-2024/"><u>Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dynamic-subtitle-artisan-for-2024/"><u>Dynamic Subtitle Artisan for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-strategies-for-professional-grade-video-editing-for-2024/"><u>Essential Strategies for Professional-Grade Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-direct-youtube-stream-of-google-meet-step-by-step-instructions/"><u>In 2024, Direct YouTube Stream of Google Meet - Step-by-Step Instructions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-the-magic-behind-youtube-shorts/"><u>In 2024, Discovering the Magic Behind Youtube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>In 2024, Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-8-authentic-youtube-boosting-platforms-for-2024/"><u>Top 8 Authentic YouTube Boosting Platforms for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-ultra-hd-content-with-youtubes-advanced-video-setting/"><u>Unlock Ultra HD Content with YouTube’s Advanced Video Setting</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivating Audiences  Adopting YouTube Vlogger Charisma\""
-date: 2024-10-23T17:39:56.111Z
-updated: 2024-10-24T16:01:20.471Z
+date: 2024-10-27T10:44:45.000Z
+updated: 2024-10-29T20:00:41.941Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -65,13 +58,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -81,10 +67,16 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -99,6 +91,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -108,6 +107,13 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -120,10 +126,10 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
@@ -167,16 +173,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>[Updated] A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-curated-online-cinema-top-youtube-essentials/"><u>[Updated] Curated Online Cinema Top YouTube Essentials</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-ultimate-dji-phantom-4-extension-pack-for-2024/"><u>[Updated] The Ultimate DJI Phantom 4 Extension Pack for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enriched-tv-experience-seamlessly-looping-online-content-for-2024/"><u>Enriched TV Experience Seamlessly Looping Online Content for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/expertly-edited-entries-anywhere-at-the-tap-of-a-finger-in-2e23/"><u>Expertly Edited Entries, Anywhere at the Tap of a Finger in 2E23</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/exploring-the-frontiers-of-text-generation-via-openais-api/"><u>Exploring the Frontiers of Text Generation via OpenAI's API</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/free-youtube-channel-art-templates-find-them-here/"><u>Free YouTube Channel Art Templates - Find Them Here</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/innovative-tech-the-most-advanced-5-video-recorders-for-2024/"><u>Innovative Tech The Most Advanced 5 Video Recorders for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/instagram-tips-uploading-and-sharing-youtube-content/"><u>Instagram Tips Uploading & Sharing YouTube Content</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/macs-high-resolution-vision-the-ultimate-10-screen-companions-for-2024/"><u>Mac's High-Resolution Vision The Ultimate #10 Screen Companions for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/propel-content-to-prominence-leverage-tubebuddys-power/"><u>Propel Content to Prominence Leverage TubeBuddy's Power</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-secrets-unveiled-the-top-10-for-dominating-in-tiktok-marketing/"><u>[New] 2024 Approved Secrets Unveiled The Top 10 for Dominating in TikTok Marketing</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-how-to-use-gopro-time-lapse/"><u>[Updated] In 2024, How to Use GoPro Time Lapse</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-asmr-creators-to-follow/"><u>2024 Approved Essential ASMR Creators to Follow</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/8-top-notch-free-editors-to-enhance-your-youtube-content-efficiency-for-2024/"><u>8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>Boost Your Visual Storytelling Key Strategies for Solo Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-creation-crossroads-igtv-vs-youtube-which-one-fits-best-in-2024/"><u>Content Creation Crossroads IGTV Vs. YouTube - Which One Fits Best, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/converting-youtube-journeys-into-animated-expressions-a-comprehensive-guide-for-mobiledesktop-users-for-2024/"><u>Converting YouTube Journeys Into Animated Expressions A Comprehensive Guide for Mobile/Desktop Users for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/critical-review-of-best-screen-capture-tools-in-linux/"><u>Critical Review of Best Screen Capture Tools in Linux</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-mic-problems-on-your-oculer-quest-2-device/"><u>Diagnosing and Repairing Mic Problems on Your Oculer Quest 2 Device</u></a></li>
+<li><a href="https://article-helps.techidaily.com/elevate-your-visual-storytelling-with-top-montage-mobile-aids/"><u>Elevate Your Visual Storytelling with Top Montage Mobile Aids</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-samsung-galaxy-a54-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Samsung Galaxy A54 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-nokia-c300-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Nokia C300 Device</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/ultimate-guide-top-youtube-to-mkv-video-converters-find-your-perfect-match/"><u>Ultimate Guide: Top YouTube-to-MKV Video Converters - Find Your Perfect Match!</u></a></li>
 </ul></div>
 

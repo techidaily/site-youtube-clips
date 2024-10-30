@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivate Your Audience  Professional End Screen Creations\""
-date: 2024-10-22T16:41:23.019Z
-updated: 2024-10-24T16:10:24.685Z
+date: 2024-10-26T12:32:25.921Z
+updated: 2024-10-30T11:36:56.091Z
 tags:
   - ai video
   - ai youtube
@@ -85,13 +85,6 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -99,16 +92,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
@@ -121,27 +108,27 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -156,6 +143,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -172,14 +166,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-seamless-methodology-viewing-favorited-and-well-liked-youtube-remarks/"><u>[New] Seamless Methodology Viewing Favorited and Well-Liked YouTube Remarks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieving-million-sub-milestone-the-youtube-guide/"><u>[Updated] Achieving Million-Sub Milestone The YouTube Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-jest-engineer-online/"><u>[Updated] Jest Engineer Online</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-seamless-audio-transition-crossfade-explained/"><u>[Updated] Seamless Audio Transition - Crossfade Explained</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/all-pages-printer-output-ready/"><u>All Pages Printer Output Ready</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-oppo-f23-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Oppo F23 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premier-edit-suites-linux-compatible-tools/"><u>Premier Edit Suites Linux-Compatible Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-creme-de-la-creativite-youtube-subscriber-list/"><u>The Crème De La Créativité YouTube Subscriber List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion/"><u>The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-guide-to-highest-rated-church-livestream-sites/"><u>[New] 2024 Approved Essential Guide to Highest-Rated Church Livestream Sites</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-achieving-professional-level-youtube-streams-using-wirecast/"><u>[New] Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creating-memorable-beginnings-imovie-tips-for-youtube-videos/"><u>[Updated] Creating Memorable Beginnings IMovie Tips for YouTube Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-revolutionize-your-photo-taking-experience-a-guide-to-snapchats-editing-tools-for-2024/"><u>[Updated] Revolutionize Your Photo-Taking Experience A Guide to Snapchat's Editing Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-tips-and-tricks-to-add-tags-to-youtube-video/"><u>[Updated] Tips & Tricks to Add Tags to YouTube Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-chuckle-filled-creativity-crafting-7-side-splitting-youtube-sets/"><u>2024 Approved Chuckle-Filled Creativity Crafting 7 Side-Splitting YouTube Sets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-repetition-replay-your-youtube-videos-via-tv-connection/"><u>2024 Approved Effortless Repetition Replay Your YouTube Videos via TV Connection</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-6s-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 6s Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/delayed-launch-apples-ai-capabilities-set-for-october-release-sources-say-technews/"><u>Delayed Launch: Apple's AI Capabilities Set for October Release, Sources Say - TechNews</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/how-to-resolve-a-full-c-drive-issue-in-windows-11/"><u>How to Resolve a Full C: Drive Issue in Windows 11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/iphone-image-editing-learn-to-change-resolution/"><u>IPhone Image Editing Learn to Change Resolution</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/peering-into-youtube-interactive-threads/"><u>Peering Into YouTube Interactive Threads</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/vrij-nieuwlosscode-formaten-verzamelen-en-ontwikkelen-in-mp4-zo-grootskaliger-als-movavi-gratis/"><u>Vrij Nieuwlosscode Formaten Verzamelen en Ontwikkelen in MP4 - Zo Grootskaliger Als Movavi, Gratis!</u></a></li>
 </ul></div>
 

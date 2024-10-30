@@ -1,7 +1,7 @@
 ---
 title: "\"Adding Videos to Written Work  A Budget-Friendly Way\""
-date: 2024-08-10T05:06:27.660Z
-updated: 2024-08-11T05:06:27.660Z
+date: 2024-10-23T08:15:00.562Z
+updated: 2024-10-29T21:12:15.494Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/1WHS15AbTWNLAnDx7RxCP9E8A78=/400x300/fi
 
 # How to Add Video to Text
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -31,10 +28,6 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -45,18 +38,12 @@ You should start by creating a new slide and adding a textbox to it. Proceed to 
 
 Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
@@ -64,20 +51,28 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -88,6 +83,13 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -101,13 +103,18 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -115,4 +122,27 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-capturing-time-slowly-tips-for-slow-motion-videos-using-photos-apps/"><u>[New] Capturing Time Slowly Tips for Slow-Motion Videos Using Photos Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-for-selecting-lenses-as-a-video-blogger/"><u>[New] In 2024, Expert Tips for Selecting Lenses as a Video Blogger</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-time-honored-vhs-hacks-a-curators-choice-of-visual-tricks/"><u>[New] Time-Honored VHS Hacks A Curator’s Choice of Visual Tricks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-the-course-with-youtubes-top-makeup-influencers/"><u>[Updated] Charting the Course with YouTube's Top Makeup Influencers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-diy-video-setups-perfect-self-portraits-for-youtubers/"><u>[Updated] DIY Video Setups Perfect Self-Portraits for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-link-trimming-winners-select-the-top-5-apps/"><u>[Updated] Youtube's Link-Trimming Winners Select the Top 5 Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-content-composer-arena/"><u>2024 Approved Content Composer Arena</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-download-premium-quality-designs-at-no-cost-for-youtube-creators/"><u>2024 Approved Download Premium-Quality Designs at No Cost – For YouTube Creators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-valhallas-fury-gods-of-war-converge/"><u>2024 Approved Valhalla's Fury Gods of War Converge</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1726220911594-gif-movavi/"><u>在線無成本的 GIF 改編工具 - Movavi</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-roundup-students-best-picks-for-historical-insights-online/"><u>Channel Roundup Students' Best Picks for Historical Insights Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>In 2024, Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-tackling-windows-files-swiftly-and-smartly/"><u>In 2024, Tackling Windows Files Swiftly and Smartly</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-poco-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Poco Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pixelpie-slicer/"><u>PixelPie Slicer</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/roccat-mouse-driver-program-quick-and-easy-downloads/"><u>Roccat Mouse Driver Program - Quick & Easy Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/thriving-online-finding-compatible-co-stars-for-youtube/"><u>Thriving Online Finding Compatible Co-Stars for YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-12-transformadores-de-video-gratuitos-4k-mas-eficientes-para-macpc-perfecta-sincronizacion-y-calidad/"><u>Top 12 Transformadores De Vídeo Gratuitos 4K Más Eficientes Para Mac/PC - Perfecta Sincronización Y Calidad</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-cross-platform-content-sharing-convert-and-upload-with-these-tools/"><u>Unlock Cross-Platform Content Sharing Convert and Upload with These Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Channeling Success  Emulating Top Video Bloggers' Techniques\""
-date: 2024-08-10T05:08:20.625Z
-updated: 2024-08-11T05:08:20.625Z
+date: 2024-10-28T00:17:42.409Z
+updated: 2024-10-29T21:59:58.173Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
 # 8 Tips on How to Vlog Confidently Like Popular YouTubers
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -44,8 +41,12 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -56,6 +57,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -64,9 +72,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -74,6 +79,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -87,9 +99,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -132,15 +141,16 @@ Do you have any vlogging tricks of your own? Leave a comment below.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**, which will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,12 +158,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-10-best-youtube-makeup-artists-you-should-follow/"><u>[New] 10 Best YouTube Makeup Artists You Should Follow</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-video-platforms-safe-and-streamlined-sme-solutions/"><u>[New] Top Video Platforms Safe & Streamlined SME Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/30-powerful-freegame-hashtags-for-dominating-youtube-for-2024/"><u>30 Powerful FreeGame Hashtags for Dominating YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/5-frosty-yet-inviting-backdrops-for-your-vids/"><u>5 Frosty Yet Inviting Backdrops for Your Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-down-youtube-short-barriers-for-2024/"><u>Breaking Down YouTube Short Barriers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-apple-iphone-12-pro-max-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>Does Apple iPhone 12 Pro Max Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixes-for-a-non-functional-hyperx-cloud-alpha-headset-mic/"><u>Fixes for a Non-Functional HyperX Cloud Alpha Headset Mic</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-make-money-with-a-beauty-channel/"><u>How to Make Money with a Beauty Channel?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-k70e-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi K70E to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-captivating-cuts-editor-apps-that-liberate-android-users/"><u>In 2024, Captivating Cuts Editor Apps That Liberate Android Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-the-power-of-film-in-educational-practice/"><u>In 2024, Harnessing the Power of Film in Educational Practice</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-brands-offering-the-best-steadicams-for-dslr-users-for-2024/"><u>Leading Brands Offering the Best Steadicams for DSLR Users for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721476856425-resolving-person-recognition-errors-in-apples-photo-library-made-easy/"><u>Resolving Person Recognition Errors in Apple's Photo Library Made Easy</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-departure-of-sam-altman-from-openai-what-lies-ahead-for-the-revolutionary-chatgpt/"><u>The Departure of Sam Altman From OpenAI: What Lies Ahead for the Revolutionary ChatGPT?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-template-infused-yt-descriptions/"><u>The Ultimate Guide to Template-Infused YT Descriptions</u></a></li>
+<li><a href="https://os-tips.techidaily.com/troubleshooting-persistent-reboots-top-fixes-for-your-constantly-restarting-iphone/"><u>Troubleshooting Persistent Reboots: Top Fixes for Your Constantly Restarting iPhone</u></a></li>
+</ul></div>
 

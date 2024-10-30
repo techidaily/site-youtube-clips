@@ -1,7 +1,7 @@
 ---
 title: "Optimized Game Performance: Understanding & Resolving Fluctuating FPS"
-date: 2024-10-17T17:01:14.774Z
-updated: 2024-10-24T16:42:15.281Z
+date: 2024-10-27T23:32:59.955Z
+updated: 2024-10-30T12:59:56.430Z
 tags:
   - win11
   - win10
@@ -45,10 +45,10 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  When the hardware you currently have meets the requirements, you can try the methods below for improving your low frame rate.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Download your game updates
@@ -66,10 +66,10 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dyling-light-2-automatic-updates-1200x850.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### On Epic Games Launcher
@@ -104,6 +104,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
  Once you’ve done these, relaunch your game and test if you can notice an FPS boost.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Check for Windows updates
 
  Windows updates usually fix errors and compatibility issues in Windows and associated software, and occasionally bring new features. To take advantage of Windows updates, definitely check if there are any updates available. This may be the easiest way to fix the issue you’re having without much troubleshooting.
@@ -130,23 +137,9 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/check-for-updates-1200x685.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4) When it finishes downloading the updates, click**Restart now** to restart your PC. Or you can **Schedule the restart** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/restart-after-windows-updates-1200x626.png)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If updating Windows doesn’t give you any luck, proceed to the next fix.
 
@@ -168,29 +161,22 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/08/scan-now-v5_7_0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click **Update All** . Driver Easy will then download and update all your outdated and missing device drivers, giving you the latest version of each, direct from the device manufacturer.
 
  This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money-back guarantee. You’ll be prompted to upgrade when you click Update All. If you don’t want to upgrade to the Pro version, you can also update your drivers with the FREE version. All you need to do is to download them one at a time and manually install them.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
  After updating drivers, restart your PC and test your gameplay. If your problem persists, proceed to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Verify integrity of game files
 
@@ -205,6 +191,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 2) Under LIBRARY, right-click**Dying Light 2** and select**Properties** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-verify-integrity-of-game-files-properties-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) Select the **LOCAL FILES**  tab. Then click **Verify integrity of game files…** .
 
@@ -250,18 +243,18 @@ Now scroll down and make these changes:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/image.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Then apply the changes. Press the**Esc** key and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/apply-the-changes.png)
 
  However, by applying these changes, you’ll have to settle for less in-game visual detail. If you find you’re sacrificing too much in your graphical settings to hit your frame rate target, there’s always another option: Upgrading to a new system with a faster GPU and CPU.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Enable hardware-accelerated GPU scheduling
 
@@ -288,6 +281,13 @@ Locate the game’s installation folder on Steam:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-light-2-browse-local-files.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Then open the files**ph > work > bin > x64** . Click the very top to copy the file path.
 
  4) Paste the path of the game’s installation file into the address bar. Then double-click on the game’s exe.file.
@@ -302,16 +302,16 @@ Locate the game’s installation folder on Steam:
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/high-performance-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Doing this will make sure that the game runs on the best graphics processor you have on your computer, not holding back any performance.
 
  However, if this doesn’t give you any performance boost, try the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. Scan your PC for corrupted files
 
@@ -348,20 +348,14 @@ When the process is complete, restart your PC.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unleash-creativity-harnessing-gs-power-in-kinemaster/"><u>[New] 2024 Approved Unleash Creativity Harnessing GS Power in KineMaster</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-diy-filmmaking-for-youtube-personalities/"><u>[New] DIY Filmmaking for YouTube Personalities</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-self-supported-youtube-earnings-strategies/"><u>[New] In 2024, The Ultimate Guide to Self-Supported YouTube Earnings Strategies</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-xiaomi-11-series-a-visual-journey-through-precision-recording/"><u>[New] In 2024, Xiaomi 11 Series A Visual Journey Through Precision Recording</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[Updated] Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-the-art-of-quantitative-vs-qualitative-analysis-a-guide-for-professionals-for-2024/"><u>[Updated] Mastering the Art of Quantitative vs Qualitative Analysis A Guide for Professionals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unveiling-audible-tweets-within-social-media-videos-for-2024/"><u>[Updated] Unveiling Audible Tweets Within Social Media Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-do-youtubers-get-paid-monthly/"><u>2024 Approved Do YouTubers Get Paid Monthly?</u></a></li>
-<li><a href="https://win-updates.techidaily.com/bts-permission-to-dance-live-show-airing-schedule-how-and-where-to-tune-in/"><u>BTS Permission to Dance Live Show Airing Schedule: How and Where to Tune In</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exclusive-access-sharing-restricted-youtube-content-with-emailid/"><u>Exclusive Access Sharing Restricted YouTube Content with EmailID</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-can-i-check-yahoo-keyword-ranking-by-link-assistant-rank-tracker-rank-tracker/"><u>How can I check Yahoo keyword ranking?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-perfect-panel-of-playback-with-youtube/"><u>In 2024, Crafting the Perfect Panel of Playback with YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tailoring-your-content-to-perfection-youtube-edits-in-sony-vegas-style/"><u>Tailoring Your Content to Perfection YouTube Edits in Sony Vegas Style</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Infinix Zero 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlock-the-secret-to-youtube-success-reaching-a-milestone-of-500plus-views/"><u>Unlock the Secret to YouTube Success Reaching a Milestone of 500+ Views</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-innovative-designs-in-syma-x8c-for-2024/"><u>[New] Innovative Designs in Syma X8C for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crown-jewels-of-online-watching-youtubes-treasures-for-2024/"><u>Crown Jewels of Online Watching YouTube's Treasures for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elegant-aesthetics-mastering-youtubes-beauty-landscape-for-2024/"><u>Elegant Aesthetics Mastering YouTube's Beauty Landscape for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-recommendations-top-10-high-end-video-card-models-for-2024/"><u>Elite Recommendations Top 10 High-End Video Card Models for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-outreach-with-strategic-partner-selection-on-youtube-for-2024/"><u>Enhancing Outreach with Strategic Partner Selection on YouTube for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-oppo-a78-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Oppo A78 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-balancing-act-tripod-use-for-stable-vlogging/"><u>In 2024, Balancing Act Tripod Use for Stable Vlogging</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gliding-heroes-the-2022-winter-games/"><u>In 2024, Gliding Heroes The 2022 Winter Games</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-easy-path-to-great-audio-recordings-in-windows-11-for-2024/"><u>The Easy Path to Great Audio Recordings in Windows 11 for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Achieving Excellence in Work and Online Content for 2024"
-date: 2024-08-10T05:06:12.776Z
-updated: 2024-08-11T05:06:12.776Z
+date: 2024-10-23T09:59:36.374Z
+updated: 2024-10-29T17:04:43.886Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8c3b13a3ac83a5d3d00093c2a17a7909556b01cc1
 
 # How to balance YouTube with a Full-Time Job
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,23 +46,31 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -74,22 +79,27 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
 
 Just try it and create your own YouTube video!
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -98,12 +108,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-perfecting-projects-a-deep-dive-into-youtube-studio-editor/"><u>[New] In 2024, Perfecting Projects A Deep Dive Into YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[Updated] Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>[Updated] Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-captivating-audiencvith-effective-thumbnail-sizes/"><u>2024 Approved Captivating Audiencvith Effective Thumbnail Sizes</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-unveil-gadgets-top-15-unboxing-clips/"><u>2024 Approved Unveil Gadgets Top 15 Unboxing Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/affordable-techniques-to-enhance-written-content-with-media/"><u>Affordable Techniques to Enhance Written Content with Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beginners-guide-how-to-create-a-youtube-channel-and-make-money/"><u>Beginners’ Guide How To Create a YouTube Channel and Make Money</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevating-the-chilly-selecting-five-warm-video-backgrounds-for-2024/"><u>Elevating the Chilly Selecting Five Warm Video Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/engaging-readers-with-strategic-reddit-sharing-techniques/"><u>Engaging Readers with Strategic Reddit Sharing Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-google-pixel-8-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Google Pixel 8 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dissecting-video-platform-features-youtube-vs-dailymention/"><u>In 2024, Dissecting Video Platform Features YouTube Vs. DailyMention</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-video-visibility-11-secrets-of-successful-seo/"><u>In 2024, Elevate Your Video Visibility 11 Secrets of Successful SEO</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/inside-out-the-100-complete-theta-s-study-for-2024/"><u>Inside Out The 100% Complete Theta S Study for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimize-with-cookiebot-boosting-user-engagement-through-tailored-experiences/"><u>Optimize With Cookiebot: Boosting User Engagement Through Tailored Experiences</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-8-plus-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 8 Plus Data From iOS iCloud | Dr.fone</u></a></li>
+<li><a href="https://win-unique.techidaily.com/resolved-issue-fixing-required-drive-partition-is-missing-error-during-windows-system-restore/"><u>Resolved Issue: Fixing 'Required Drive Partition Is Missing' Error During Windows System Restore</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-problem-a-step-by-step-guide-when-your-laptop-trackpad-fails/"><u>Solving the Problem: A Step-by-Step Guide When Your Laptop Trackpad Fails</u></a></li>
+</ul></div>
 

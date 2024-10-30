@@ -1,7 +1,7 @@
 ---
 title: "A Vlogger's Guide To Camera Lenses for 2024"
-date: 2024-08-10T05:09:26.478Z
-updated: 2024-08-11T05:09:26.478Z
+date: 2024-10-26T10:38:09.565Z
+updated: 2024-10-30T07:33:12.428Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -81,9 +78,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -93,8 +87,12 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -111,21 +109,25 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -134,9 +136,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -150,6 +149,13 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -171,8 +177,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -180,5 +184,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-advanced-techniques-in-post-uploaded-youtube-content-enhancement/"><u>[New] Advanced Techniques in Post-Uploaded YouTube Content Enhancement</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unleashing-radiance-skincare-and-haircare-secrets/"><u>[New] In 2024, Unleashing Radiance Skincare and Haircare Secrets</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-guide-for-ios-users-jpgpng-to-pdf-transformation/"><u>[New] Step-by-Step Guide for iOS Users JPG/PNG to PDF Transformation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlocking-the-secrets-of-earning-via-youtube/"><u>[New] Unlocking the Secrets of Earning via YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-video-communities-eclipsing-youtube/"><u>[Updated] Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ringtone-repository-prime-picks-for-downloadable-calls-for-2024/"><u>[Updated] Ringtone Repository Prime Picks for Downloadable Calls for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-alternatives-to-windows-traditional-video-editing/"><u>2024 Approved Alternatives to WIndows' Traditional Video Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-assessing-tseries-financial-outcomes-from-youtube-presence/"><u>2024 Approved Assessing TSeries’ Financial Outcomes From YouTube Presence</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-gamers-showcase-premium-setups-unveiled/"><u>Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-channels-monetization-status-at-a-glance/"><u>In 2024, Analyzing Channels Monetization Status at a Glance</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hollywood-hacks-a-filmmakers-guide-to-cinematic-excellence/"><u>In 2024, Hollywood Hacks A Filmmaker’s Guide to Cinematic Excellence</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/insider-look-at-youtube-revenue-policies/"><u>Insider Look at YouTube Revenue Policies</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-w11s-auto-hdr-a-step-by-step-guide/"><u>Mastering W11's Auto HDR: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyline-your-contents-search-trajectory-key-youtube-seo-tips-1-11/"><u>Skyline Your Content's Search Trajectory Key YouTube SEO Tips (1-11)</u></a></li>
+</ul></div>
 
