@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality\""
-date: 2024-10-23T12:01:26.496Z
-updated: 2024-10-29T21:29:03.726Z
+date: 2024-11-03T03:51:33.411Z
+updated: 2024-11-05T05:29:40.535Z
 tags:
   - ai video
   - ai youtube
@@ -55,34 +55,34 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -90,10 +90,10 @@ If you rather not deal with all the window and home lighting challenges, you can
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -116,19 +116,6 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -136,6 +123,19 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,24 +152,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-accessing-disguised-user-responses-on-yt/"><u>[New] Accessing Disguised User Responses on YT</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-can-a-brief-subscribe-boost-your-content-viewing/"><u>[New] Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/xploring-platform-variations-youtube-vs-dailymention-for-2024/"><u>[New] Exploring Platform Variations YouTube Vs. DailyMention for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creative-channel-themes-get-them-for-free/"><u>[Updated] Creative Channel Themes Get Them for Free</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-top-hits-on-reddit-a-compilation-of-the-best-ten/"><u>[Updated] In 2024, Top Hits on Reddit - A Compilation of the Best Ten</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-methods-for-enhancing-testimonial-video-authenticity/"><u>2024 Approved Innovative Methods for Enhancing Testimonial Video Authenticity</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dailymotion-vs-youtube-who-earns-more-from-video-content-for-2024/"><u>Dailymotion vs YouTube Who Earns More From Video Content for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/diagnosing-and-fixing-initial-load-failures-in-the-fall-guys-experience/"><u>Diagnosing and Fixing Initial Load Failures in the Fall Guys Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/dynamic-color-grading-using-ae-luts/"><u>Dynamic Color Grading Using AE LUTs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/expert-strategies-for-higher-youtube-shorts-revenue/"><u>Expert Strategies for Higher YouTube Shorts Revenue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exploring-9-zero-price-editors-for-youtube-content/"><u>Exploring 9 Zero Price Editors for YouTube Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>In 2024, A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-a-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>In 2024, A Journey Through Time Best History YouTubes for Scholars & Enthusiasts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-diversify-earnings-multiplying-revenue-with-mobile-video-content/"><u>In 2024, Diversify Earnings Multiplying Revenue with Mobile Video Content</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-solution-to-get-your-valorant-game-running-again/"><u>Step-by-Step Solution to Get Your Valorant Game Running Again</u></a></li>
-<li><a href="https://win11.techidaily.com/synchronizing-qbittorrent-settings-between-multiple-windows-systems/"><u>Synchronizing qBittorrent Settings Between Multiple Windows Systems</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-true-potential-of-gpt-tokens-in-conversations/"><u>The True Potential of GPT Tokens in Conversations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-youtubes-potential-key-tactics-for-expanding-your-viewership/"><u>Unlocking YouTube's Potential Key Tactics for Expanding Your Viewership</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-effortless-image-edit-eliminating-backdrops-in-canvas-for-2024/"><u>[New] Effortless Image Edit Eliminating Backdrops in Canvas for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-access-all-nba-games-effortlessly-top-15-streaming-methods/"><u>[New] In 2024, Access All NBA Games Effortlessly Top 15 Streaming Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-earn-extra-your-guide-to-joining-the-youtube-premium-club/"><u>[Updated] Earn Extra Your Guide to Joining the YouTube Premium Club</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-platform-power-play-obs-versus-twitch-studio/"><u>[Updated] In 2024, Platform Power Play OBS Versus Twitch Studio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-content-incorporating-exact-timestamps-in-videos/"><u>2024 Approved Elevate Your Content Incorporating Exact Timestamps in Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-online-video-quality-mastery-in-finalcut-for-youtube/"><u>2024 Approved Elevate Your Online Video Quality Mastery in FinalCut for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>2024 Approved Elevate Your Video Presence Mastery of Channel Art and Banner Sizes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos-for-2024/"><u>Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465391257-creative-video-ends-top-6-budget-friendly-options/"><u>Creative Video Ends Top 6 Budget-Friendly Options!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-finest-alternatives-to-gmail-the-ultimate-list-for-202n4/"><u>Discover the Finest Alternatives to Gmail: The Ultimate List for 202N4</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dissecting-youtube-policies-and-creative-commons-licensing-dichotomy/"><u>Dissecting YouTube Policies and Creative Commons Licensing Dichotomy</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-11-pro-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 11 Pro?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimal-websites-to-increase-youtube-views-for-2024/"><u>Optimal Websites to Increase YouTube Views for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/secure-mental-consultations-chatgpt-wisdom/"><u>Secure Mental Consultations: ChatGPT Wisdom</u></a></li>
 </ul></div>
 

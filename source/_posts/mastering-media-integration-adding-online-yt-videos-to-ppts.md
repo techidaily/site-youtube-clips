@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Media Integration  Adding Online YT Videos to PPTs\""
-date: 2024-10-26T03:15:35.608Z
-updated: 2024-10-30T12:07:51.256Z
+date: 2024-10-31T02:24:08.844Z
+updated: 2024-11-05T06:56:49.180Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
@@ -55,13 +62,6 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -74,10 +74,10 @@ Go to the YouTube video you want to embed to your PowerPoint slide, click the **
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
@@ -87,6 +87,13 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -99,6 +106,13 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 **Step 2: Search and Embed a Video**
 
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 4: Insert Video from PC
 
@@ -120,13 +134,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -141,13 +148,6 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -188,16 +188,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-simple-creating-stunning-time-lapses-on-samsungs/"><u>2024 Approved Quick & Simple Creating Stunning Time-Lapses on Samsungs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-streamlined-recording-the-very-best-fullscreen-software/"><u>2024 Approved Streamlined Recording The Very Best Fullscreen Software</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/wmv-to-mp4-converter/"><u>最新版WMV to MP4 Converter - 劣化を起こさずに安定したビデオ品質保持方法</u></a></li>
-<li><a href="https://win11.techidaily.com/decoding-the-cannot-create-window-errors-on-windows/"><u>Decoding the 'Cannot Create' Window Errors on Windows</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-guide-the-8-best-zero-price-video-cutting-software/"><u>In 2024, Essential Guide The 8 Best Zero Price Video Cutting Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gaming-gain-graph-finns-financial-flux/"><u>In 2024, Gaming Gain Graph Finn's Financial Flux</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-error-code-0x887a0006-device-hang-fixes/"><u>Resolving Error Code 0X887A0006: Device Hang Fixes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/smooth-and-swift-designing-your-best-thumbnails/"><u>Smooth & Swift Designing Your Best Thumbnails</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-roadmap-to-wealth-sourav-joshi-and-youtube-earning/"><u>The Roadmap to Wealth Sourav Joshi and YouTube Earning</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-motorola-moto-g14-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Motorola Moto G14 Device</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/thrifty-approaches-to-youtube-video-card-production/"><u>Thrifty Approaches to YouTube Video Card Production</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-epic-zombie-battles-our-favorites-revealed/"><u>[New] 2024 Approved Epic Zombie Battles Our Favorites Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-advanced-array-manipulations-and-sorting-algorithms/"><u>[New] Advanced Array Manipulations and Sorting Algorithms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-defending-your-videos-against-youtube-copyright-strikes/"><u>[Updated] Defending Your Videos Against YouTube Copyright Strikes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-video-consumption-constructing-an-ideal-watch-later-list-on-youtube/"><u>[Updated] Elevate Video Consumption Constructing an Ideal 'Watch Later' List on YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-essential-android-apps-for-playing-old-school-ps2-titles-for-2024/"><u>[Updated] Essential Android Apps for Playing Old-School PS2 Titles for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-from-pixels-to-popularity-crafting-engaging-youtube-thumbnails/"><u>[Updated] In 2024, From Pixels to Popularity Crafting Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-luts-for-enhanced-photoshop-images-for-2024/"><u>[Updated] Mastering LUTs for Enhanced Photoshop Images for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/bringing-videos-to-life-using-youtube-in-educational-environments/"><u>Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-y28-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo Y28 5G</u></a></li>
+<li><a href="https://games-able.techidaily.com/error-403-in-roblox-resolution-guide-for-pc/"><u>Error 403 in Roblox: Resolution Guide for PC</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/expanding-creative-horizons-large-scale-output-via-canva-and-chatgpt/"><u>Expanding Creative Horizons: Large Scale Output via Canva and ChatGPT</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-asus-rog-phone-8-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Asus ROG Phone 8 Pro without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-avoid-ad-dollars-boost-your-view-count-for-free/"><u>In 2024, Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-13-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 13 to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-multiple-youtube-videos-into-one/"><u>Streamlining Multiple YouTube Videos Into One</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-5-ultimate-camera-and-video-recording-apps-iphoneandroid-edition/"><u>Top 5 Ultimate Camera & Video Recording Apps IPhone/Android Edition</u></a></li>
 </ul></div>
 

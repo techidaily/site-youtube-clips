@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-10-26T07:39:46.017Z
-updated: 2024-10-30T04:32:05.123Z
+date: 2024-11-04T01:43:41.312Z
+updated: 2024-11-04T21:04:41.825Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,18 +141,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-mastering-editing-skills-for-professional-facebook-reels-for-2024/"><u>[New] Mastering Editing Skills for Professional Facebook Reels for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-facetime-simplified-a-compreited-guide-for-android-users/"><u>[Updated] FaceTime Simplified A Compreited Guide for Android Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-assembling-channel-summaries-that-attract/"><u>2024 Approved Assembling Channel Summaries That Attract</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>2024 Approved Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-videography-quality-top-7-sound-effects-pick/"><u>2024 Approved Elevate Videography Quality Top 7 Sound Effects Pick</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-hot-40-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Hot 40 Pro? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ace-your-admin-duties-5-innovative-prompts-for-expedited-hr-tasks-using-conversational-ai/"><u>Ace Your Admin Duties: 5 Innovative Prompts for Expedited HR Tasks Using Conversational AI</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/best-budget-friendly-video-stock-sites/"><u>Best Budget-Friendly Video Stock Sites</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>Choosing the Best Camera for Filming Mirrorless or DSLR</u></a></li>
-<li><a href="https://facebook.techidaily.com/ending-general-user-tagging-effect/"><u>Ending General User Tagging Effect</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-samsung-galaxy-a34-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Samsung Galaxy A34 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unlock-the-power-of-personal-narratives-master-facebook-bios-for-maximum-impact/"><u>In 2024, Unlock the Power of Personal Narratives Master Facebook Bios for Maximum Impact</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-beyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[New] 2024 Approved Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-name-inspiration-strategies-for-success/"><u>[New] Channel Name Inspiration Strategies for Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] Creating a Multimedia Guide Adding Videos to Text Articles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-from-slides-to-screens-easy-recording-techniques/"><u>[New] From Slides to Screens Easy Recording Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-composing-news-wrap-up-scripts/"><u>[Updated] 2024 Approved Composing News Wrap-Up Scripts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-video-editing-for-social-media-standout/"><u>2024 Approved Mastering Video Editing for Social Media Standout</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-top-6-software-solutions-for-converting-mp3-to-ogg-files-desktop-and-web-options/"><u>Best Top 6 Software Solutions for Converting MP3 to OGG Files: Desktop & Web Options</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-channels-youtubes-partner-program/"><u>Elevate Your Channels - YouTube's Partner Program</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>In 2024, Essential Mobile Media Creation Tools IPhone vs Android Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/professional-tools-to-elevate-your-video-openings/"><u>Professional Tools to Elevate Your Video Openings</u></a></li>
+<li><a href="https://win-blog.techidaily.com/say-goodbye-to-black-screens-the-ultimate-guide-to-solving-issues-in-far-cry-6/"><u>Say Goodbye to Black Screens: The Ultimate Guide to Solving Issues in Far Cry 6</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs-for-2024/"><u>Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/what-you-missed-a-closer-look-at-facebooks-2023-upgrades/"><u>What You Missed A Closer Look at Facebook's 2023 Upgrades</u></a></li>
 </ul></div>
 

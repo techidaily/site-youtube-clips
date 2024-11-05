@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Art of Instantaneous Deletion of YouTube Discussions"
-date: 2024-10-05T20:21:13.555Z
-updated: 2024-10-06T18:54:16.017Z
+date: 2024-10-30T01:51:15.770Z
+updated: 2024-11-05T02:44:35.213Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -70,10 +77,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -89,6 +96,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -110,20 +124,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -132,6 +132,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -142,13 +149,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -171,24 +171,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-best-voice-conversion-tools-for-vlogging-professionals/"><u>[New] Best Voice Conversion Tools for Vlogging Professionals</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-navigating-the-9gag-meme-landscape-a-beginners-guide/"><u>[New] Navigating the 9GAG Meme Landscape A Beginner's Guide</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-social-sphere-strikes-again-latest-hot-tweets-for-2024/"><u>[New] Social Sphere Strikes Again Latest Hot Tweets for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creating-high-impact-short-waterway-previews/"><u>[Updated] Creating High-Impact Short Waterway Previews</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channels-optimal-use-of-templated-content-in-yt-descs/"><u>[Updated] Elevate Your Channels Optimal Use of Templated Content in YT Descs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-comparative-analysis-of-youtubes-ownership-vs-cc-licenses/"><u>2024 Approved A Comparative Analysis of Youtube's Ownership Vs. CC Licenses</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>2024 Approved Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ning-distinctive-denouements/"><u>Designing Distinctive Denouements</u></a></li>
-<li><a href="https://some-skills.techidaily.com/discover-the-most-loved-google-doodle-titles-to-enjoy-today/"><u>Discover the Most Loved Google Doodle Titles to Enjoy Today</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discover-why-av1-is-a-game-changer-for-youtube-viewers/"><u>Discover Why AV1 Is a Game Changer for YouTube Viewers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-realme-10t-5g-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Realme 10T 5G?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y100t-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo Y100t Phone without Google Account?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-10-best-history-youtube-channels-for-students-and-history-lovers/"><u>In 2024, 10 Best History YouTube Channels for Students & History Lovers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-channeling-wealth-through-beauty-online-platforms/"><u>In 2024, Channeling Wealth Through Beauty Online Platforms</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/maximizing-ipad-audio-record-best-tips/"><u>Maximizing iPad Audio Record Best Tips</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-top-tier-vr-fun-without-breaking-the-bank/"><u>The Ultimate Guide to the Oculus Quest 2: Top-Tier VR Fun Without Breaking the Bank!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-xiaomi-13-ultra-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Xiaomi 13 Ultra Location | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-music-hits-2023s-most-praised-video-responses/"><u>YouTube Music Hits 2023'S Most Praised Video Responses</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fly-higher-10-must-have-uav-extras-revealed-for-2024/"><u>[New] Fly Higher 10 Must-Have UAV Extras Revealed for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-getting-started-audacitys-guide-to-microphone-use-on-mac/"><u>[Updated] 2024 Approved Getting Started Audacity's Guide to Microphone Use on Mac</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-audience-wave-top-hash-tags-to-swell-youtube-views/"><u>[Updated] Audience Wave Top Hash Tags to Swell Youtube Views</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-complete-walkthrough-of-vlc-capture-settings/"><u>A Complete Walkthrough of VLC Capture Settings</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fix-network-storage-errors-addressing-netwkstorsys-crashes-in-windows-11/"><u>Fix Network Storage Errors: Addressing NetWkstor.sys Crashes in Windows 11</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-your-bluetooth-woes-on-windows-11-top-strategies/"><u>Fix Your Bluetooth Woes on Windows 11 - Top Strategies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-personal-content-management-building-a-structured-watch-later-list/"><u>Mastering Personal Content Management Building a Structured 'Watch Later' List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unraveling-the-secrets-of-viral-content-creation/"><u>Unraveling the Secrets of Viral Content Creation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/viral-beats-top-tiktok-hits-for-a-dance-off/"><u>Viral Beats Top TikTok Hits for a Dance Off</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-followers-surge-top-tips-for-channel-expansion/"><u>YouTube Followers Surge Top Tips for Channel Expansion</u></a></li>
 </ul></div>
 

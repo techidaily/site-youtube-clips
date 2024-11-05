@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Easing Into Public Speaking  10 Common Video Blogger Fears\""
-date: 2024-08-16T07:55:38.120Z
-updated: 2024-08-17T07:55:38.120Z
+date: 2024-10-29T06:21:38.207Z
+updated: 2024-11-04T20:37:07.171Z
 tags:
   - ai video
   - ai youtube
@@ -43,17 +43,18 @@ My advice is to start with shorter conversations with your camera in public and 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3. Fear of Not Being Interesting Enough
 
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
@@ -63,15 +64,22 @@ A lot of people fear that they aren’t interesting enough to watch. This fear s
 When you look at the vlogs of many of the top YouTubers, their lives appear so action-packed. It’s hard not to think that all vlogs are meant to be very stimulating. But if you believe that that is the standard for vlogs, you might either be discouraged and drop vlogging altogether or you might try too hard to schedule your life around getting stimulating vlog content. Neither is a good option. Face your fear of your audience getting bored and just go ahead and vlog your lifestyle just as it is.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
@@ -81,6 +89,13 @@ Fearing that your production quality won’t measure up is another common fear t
 Getting a lot of subscribers is a common end goal for many who go into vlogging. This goal can seem impossible to reach with how crowded the vlogosphere has become with so many ambitious vloggers who are competing for views and subscribers.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. Fear of Being Distracted From the Moment
 
@@ -98,9 +113,6 @@ Even though you might have learned to enjoy and be comfortable with vlogging, yo
 
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10. Fear of Permanently Leaving a Bad Mark
 
 Anything you make public over the internet, including vlogging, comes with the risk of making a permanent mark that won’t go away, even if you try to delete your original content later. That can definitely be a scary thing.
@@ -109,32 +121,28 @@ Luckily, with vlogging, you still have a lot of control. In both filming and edi
 
 In post-production, you can use some video editing software to [delete unwanted parts from the video](https://tools.techidaily.com/wondershare/filmora/download/) clip, [blur the video background](https://tools.techidaily.com/wondershare/filmora/download/), or adjust the video color. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is such a video editing software that has been widely used by many YouTubers; you can download it now and have a try.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -143,5 +151,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-digital-dreams-unite-conference/"><u>[New] Digital Dreams Unite Conference</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-how-to-allocate-more-ram-to-minecraft/"><u>[New] How to Allocate More Ram to Minecraft</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-tips-for-prolonging-gopros-energy-stamina/"><u>[New] Tips for Prolonging GoPro's Energy Stamina</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-instagram-story-width-height-run-time/"><u>2024 Approved Instagram Story Width, Height, Run Time</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-live-setup-in-minutes/"><u>In 2024, Instagram Live Setup in Minutes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimize-content-collaboration-in-youtube-for-increased-engagement/"><u>Optimize Content Collaboration in YouTube for Increased Engagement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/overcoming-shyness-in-the-spotlight-top-video-blogger-fears/"><u>Overcoming Shyness in the Spotlight Top Video Blogger Fears</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streaming-services-face-off-facebook-youtube-and-spaces/"><u>Streaming Services Face-Off FACEbook, YOUTube, & Spaces</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/technique-for-anonymous-footage-via-image-smoothing/"><u>Technique for Anonymous Footage via Image Smoothing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-art-of-online-earnings-youtubes-money-matrix/"><u>The Art of Online Earnings YouTube's Money Matrix</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-pip-blueprint-crafting-compelling-video-presentations-on-macos-for-2024/"><u>The PIP Blueprint Crafting Compelling Video Presentations on macOS for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tomorrows-windows-embracing-ai-dominance/"><u>Tomorrow's Windows: Embracing AI Dominance</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-xiaomi-mix-fold-3-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Xiaomi Mix Fold 3 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-top-5-mega-screen-laptops-your-comprehensive-list/"><u>Unveiling the Top 5 Mega Screen Laptops - Your Comprehensive List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-easy-guide-to-youtube-downloads-on-idevices/"><u>Your Easy Guide to YouTube Downloads on iDevices</u></a></li>
+</ul></div>
 

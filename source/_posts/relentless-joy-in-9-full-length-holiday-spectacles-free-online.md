@@ -1,7 +1,7 @@
 ---
 title: "\"Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-10-26T02:12:01.841Z
-updated: 2024-10-30T04:45:09.671Z
+date: 2024-11-03T00:17:23.241Z
+updated: 2024-11-05T04:43:18.521Z
 tags:
   - ai video
   - ai youtube
@@ -39,58 +39,64 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -107,21 +113,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unveiling-luxury-transforming-standard-shipments-into-memories/"><u>[New] 2024 Approved Unveiling Luxury Transforming Standard Shipments Into Memories</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-flex-your-viewing-muscles-handling-multiple-youtube-videos/"><u>[Updated] 2024 Approved Flex Your Viewing Muscles Handling Multiple YouTube Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-easy-ways-to-screen-record-on-dell-laptop-for-2024/"><u>[Updated] Easy Ways to Screen Record on Dell Laptop for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>2024 Approved Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-breaking-barriers-7-top-tools-for-artists-transforming-into-nfts/"><u>2024 Approved Breaking Barriers 7 Top Tools for Artists Transforming Into NFTs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-cutting-edge-youtube-end-card-tactics-and-layouts/"><u>2024 Approved Cutting Edge Youtube End Card Tactics & Layouts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/beauty-behind-the-screen-color-correction-insights-for-2024/"><u>Beauty Behind the Screen Color Correction Insights for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-engagement-editing-for-perfect-video-titles-and-descriptions-for-2024/"><u>Boosting Engagement Editing for Perfect Video Titles & Descriptions for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-income-with-effective-youtube-short-strategies-for-2024/"><u>Boosting Income with Effective Youtube Short Strategies for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-collabs-that-attract-and-retain-viewers/"><u>Crafting Collabs that Attract and Retain Viewers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-yt-masterpieces-for-igtv-showcase/"><u>Crafting YT Masterpieces for IGTV Showcase</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-tecno-camon-20-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Tecno Camon 20 Pro 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-a14-4g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Samsung Galaxy A14 4G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/navigating-kinemasters-features-and-comparing-to-leading-online-games/"><u>Navigating KineMaster's Features and Comparing to Leading Online Games</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-microsoft-defender-impacting-performance-on-windows-11/"><u>Troubleshooting: Microsoft Defender Impacting Performance on Windows 11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-building-connections-through-collaborative-playlists/"><u>[New] Building Connections Through Collaborative Playlists</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-add-timestamps-to-youtube-video-to-increase-views/"><u>[New] How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide/"><u>[New] In 2024, Crafting Effective In-Stream Ad Campaigns on Facebook A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-10-youtube-download-apps-best-in-class-compatibility-for-2024/"><u>[New] Top 10 YouTube Download Apps - Best in Class Compatibility for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-instagram-collage-made-simple-a-quick-how-to/"><u>[Updated] Instagram Collage Made Simple A Quick How-To</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-beginners-pathway-building-a-simple-youtube-signup/"><u>2024 Approved A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-filmmakers-guide-to-mastering-green-screen-technology-for-2024/"><u>A Filmmaker's Guide to Mastering Green Screen Technology for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/audio-enhancement-for-professional-instagram-posts/"><u>Audio Enhancement for Professional Instagram Posts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>In 2024, Audio Clarity 10 Pro Tips for High-Quality Recordings</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harness-the-power-of-windows-photos-and-story-remix-for-editing/"><u>In 2024, Harness the Power of Windows Photos & Story Remix for Editing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-make-a-living-with-reddit-even-for-novices-top-13-easy-strategies/"><u>In 2024, Make a Living with Reddit (Even for Novices!) Top 13 Easy Strategies</u></a></li>
 </ul></div>
 

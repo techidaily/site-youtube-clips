@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivate Your Audience  Professional End Screen Creations\""
-date: 2024-10-26T12:32:25.921Z
-updated: 2024-10-30T11:36:56.091Z
+date: 2024-11-03T00:16:08.674Z
+updated: 2024-11-05T05:46:10.991Z
 tags:
   - ai video
   - ai youtube
@@ -91,13 +91,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
@@ -108,31 +101,38 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -145,10 +145,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,18 +166,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-guide-to-highest-rated-church-livestream-sites/"><u>[New] 2024 Approved Essential Guide to Highest-Rated Church Livestream Sites</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-achieving-professional-level-youtube-streams-using-wirecast/"><u>[New] Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creating-memorable-beginnings-imovie-tips-for-youtube-videos/"><u>[Updated] Creating Memorable Beginnings IMovie Tips for YouTube Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-revolutionize-your-photo-taking-experience-a-guide-to-snapchats-editing-tools-for-2024/"><u>[Updated] Revolutionize Your Photo-Taking Experience A Guide to Snapchat's Editing Tools for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-tips-and-tricks-to-add-tags-to-youtube-video/"><u>[Updated] Tips & Tricks to Add Tags to YouTube Video</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-chuckle-filled-creativity-crafting-7-side-splitting-youtube-sets/"><u>2024 Approved Chuckle-Filled Creativity Crafting 7 Side-Splitting YouTube Sets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-repetition-replay-your-youtube-videos-via-tv-connection/"><u>2024 Approved Effortless Repetition Replay Your YouTube Videos via TV Connection</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-6s-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 6s Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/delayed-launch-apples-ai-capabilities-set-for-october-release-sources-say-technews/"><u>Delayed Launch: Apple's AI Capabilities Set for October Release, Sources Say - TechNews</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/how-to-resolve-a-full-c-drive-issue-in-windows-11/"><u>How to Resolve a Full C: Drive Issue in Windows 11</u></a></li>
-<li><a href="https://extra-information.techidaily.com/iphone-image-editing-learn-to-change-resolution/"><u>IPhone Image Editing Learn to Change Resolution</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/peering-into-youtube-interactive-threads/"><u>Peering Into YouTube Interactive Threads</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/vrij-nieuwlosscode-formaten-verzamelen-en-ontwikkelen-in-mp4-zo-grootskaliger-als-movavi-gratis/"><u>Vrij Nieuwlosscode Formaten Verzamelen en Ontwikkelen in MP4 - Zo Grootskaliger Als Movavi, Gratis!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cultivating-eco-diversity-in-metropolitan-land-use/"><u>[New] Cultivating Eco-Diversity in Metropolitan Land Use</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-game-ahead-the-ultimate-list-of-premier-gba-emulator-programs-for-2024/"><u>[New] Game Ahead The Ultimate List of Premier GBA Emulator Programs for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>[Updated] A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-audio-mastery-your-guide-to-youtube-soundtracking/"><u>[Updated] Audio Mastery Your Guide to Youtube Soundtracking</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-best-youtube-beginnings-15-editing-samples/"><u>[Updated] Best YouTube Beginnings 15 Editing Samples</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-capture-perfection-reviewing-the-best-5-hd-webcams-with-audio/"><u>[Updated] In 2024, Capture Perfection Reviewing The Best 5 HD Webcams with Audio</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-instagram-video-edge-planning-for-maximum-marketing-success/"><u>[Updated] The Instagram Video Edge Planning for Maximum Marketing Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-configuring-who-can-see-your-youtube-clips/"><u>2024 Approved Configuring Who Can See Your YouTube Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accessing-your-own-custom-designed-youtube-melodies-for-2024/"><u>Accessing Your Own Custom-Designed Youtube Melodies for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-engagement-perfect-time-stamping-techniques-for-videos-for-2024/"><u>Boosting Engagement Perfect Time-Stamping Techniques for Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-views-with-captivating-intros-filmed-in-imovie/"><u>Boosting Views with Captivating Intros Filmed in iMovie</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/direct-live-broadcasting-obs-to-instagram-for-2024/"><u>Direct Live Broadcasting OBS to Instagram for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-digitally-sign-uot-file-online-free-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Digitally Sign .uot file online free - (Tutorial)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-a-deep-dive-into-voice-recordings-via-vocaroo-steps-and-similar-solutions/"><u>New In 2024, A Deep Dive Into Voice Recordings via Vocaroo Steps & Similar Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tech-savvy-simplified-your-guide-to-making-10-easy-youtube-videos/"><u>Tech Savvy Simplified Your Guide to Making 10 Easy YouTube Videos</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-changing-landscape-for-software-engineers-perspectives-by-atlassians-agnes-ro-on-zdnet/"><u>The Changing Landscape for Software Engineers: Perspectives by Atlassian's Agnes Ro on ZDNet</u></a></li>
+<li><a href="https://win11.techidaily.com/unraveling-disk-read-failed-in-windows/"><u>Unraveling Disk Read Failed in Windows</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/vimeo-vs-youtube-differences-between-vimeo-and-youtube-for-2024/"><u>Vimeo vs YouTube Differences Between Vimeo and YouTube for 2024</u></a></li>
 </ul></div>
 

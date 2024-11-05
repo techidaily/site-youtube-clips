@@ -1,7 +1,7 @@
 ---
 title: "\"The Entrepreneur’s Guide to YouTube Earnings  Thriving Without Ad Support\""
-date: 2024-10-23T08:20:59.961Z
-updated: 2024-10-29T21:08:40.892Z
+date: 2024-10-31T03:24:16.843Z
+updated: 2024-11-05T05:16:37.966Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How Much Money Can YouTubers Make from Ads?**
 
 The answer to this question varies depending on the channel and the audience, as YouTubers don’t make money for views but rather from how often people engage with the ads. If a viewer watches more than 30 seconds of the ad or clicks it, then the YouTuber will make money.
@@ -61,19 +54,6 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -87,13 +67,6 @@ For new YouTubers, it is getting harder and harder to get to that point where th
  Once they have monetization turned on, it’s only the beginning. YouTubers need to create good content consistently. In order to earn $100 for the initial payout, they need an average of 50,000 views. That’s just $100! A lot of views and not a big payout. Hardly enough to quit your day job.
 
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **1\. Sell Your Product or Service:**
 
@@ -129,6 +102,19 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -142,6 +128,19 @@ Here is how you should go about selling your product or service on YouTube:
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
@@ -165,18 +164,18 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
 
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
 
@@ -190,6 +189,13 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Affiliate Marketing:**
 
 Businesses know that there are more eyes watching YouTube than ever — behind Google, YouTube is the second most popular place for people researching what to buy — and influencers and reviews are an effective method of getting sales. You can leverage that by participating in affiliate marketing as a YouTuber.
@@ -201,6 +207,19 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
@@ -250,6 +269,13 @@ In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy out
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
 #### **How to Get Discovered By Brands**
@@ -261,16 +287,10 @@ If you want to get a brand deal and become an influencer on YouTube, then you wi
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### **How Influencer Marketing Platforms Like Famebit Works**
@@ -287,13 +307,6 @@ Steps to getting a brand deal:
 6. Get Paid!
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  
 
@@ -331,13 +344,6 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -366,18 +372,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>[New] 2024 Approved Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-list-of-live-streaming-camera-models/"><u>[New] In 2024, The Ultimate List of Live-Streaming Camera Models</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-ultimate-instagram-story-tips-and-tricks/"><u>[Updated] Ultimate Instagram Story Tips & Tricks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deception-navigating-false-subscriber-sells-for-2024/"><u>Deception Navigating False Subscriber Sells for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-the-language-of-youtube-thumbnails-effectiveness/"><u>Deciphering the Language of YouTube Thumbnails Effectiveness</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dj-delight-choosing-ultimate-event-videos-for-2024/"><u>DJ Delight Choosing Ultimate Event Videos for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/from-fantasy-to-reality-vrs-path/"><u>From Fantasy to Reality VR’s Path</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/getting-started-with-your-youtube-channel-essentials/"><u>Getting Started with Your YouTube Channel – Essentials</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-state-of-the-art-methods-for-documenting-digital-education/"><u>In 2024, State-of-the-Art Methods for Documenting Digital Education</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-step-up-your-slow-mo-game-expert-guide-for-amazing-android-videos/"><u>In 2024, Step Up Your Slow Mo Game Expert Guide for Amazing Android Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforming-visuals-the-power-of-customized-luts-for-2024/"><u>Transforming Visuals The Power of Customized LUTs for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-guide-adding-the-rogue-one-add-on-to-your-kodi-matrix-with-ease/"><u>Ultimate Guide: Adding the Rogue One Add-On to Your Kodi Matrix with Ease</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-12-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 12</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-elite-mkv-media-viewer-pc-and-smartphone/"><u>[New] 2024 Approved Elite MKV Media Viewer (PC & Smartphone)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-launch-your-own-fb-stream-on-pc-mac-and-laptop-using-obs/"><u>[New] 2024 Approved Launch Your Own FB Stream on PC, Mac & Laptop Using OBS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-a-course-to-riches-youtubes-monetary-milestones/"><u>[Updated] Charting a Course to Riches YouTube's Monetary Milestones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-deciphering-how-to-spot-your-video-enthusiasts/"><u>[Updated] Deciphering How to Spot Your Video Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-profit-on-facebook-essential-insights-and-hacks/"><u>[Updated] Mastering Profit on Facebook Essential Insights & Hacks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-video-narratives-for-youtube-success/"><u>2024 Approved Crafting Captivating Video Narratives for YouTube Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/astronaut-eyes-choosing-the-finest-fps-games-for-2024/"><u>Astronaut Eyes Choosing the Finest FPS Games for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diy-gif-creation-extracting-motion-from-youtube-videos-for-2024/"><u>DIY GIF Creation Extracting Motion From YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engaging-youtube-summaries-with-tailored-templates-for-2024/"><u>Engaging YouTube Summaries with Tailored Templates for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/finding-the-best-sound-editing-software-for-video-makers/"><u>Finding the Best Sound Editing Software for Video Makers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 On Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/making-the-leap-set-up-a-sports-vlog-on-macos/"><u>Making the Leap Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-youtube-micro-clips/"><u>Mastering the Art of YouTube Micro Clips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-windows-remote-connection-issues/"><u>Mastering Windows Remote Connection Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionary-feature-alert-iphone-users-can-now-record-calls-within-ios-18-without-third-party-tools-zdnet-insights/"><u>Revolutionary Feature Alert: IPhone Users Can Now Record Calls Within iOS 18 Without Third-Party Tools | ZDNET Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
+<li><a href="https://win-forum.techidaily.com/windows-10-powershell-verification-methods-what-you-need-to-know/"><u>Windows 10 PowerShell Verification Methods: What You Need to Know</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-vivo-y100-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Vivo Y100 5G? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

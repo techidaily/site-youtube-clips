@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-10-27T02:34:39.553Z
-updated: 2024-10-30T11:31:14.277Z
+date: 2024-10-28T22:49:22.125Z
+updated: 2024-11-04T17:25:59.477Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -63,13 +56,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -97,13 +83,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -124,6 +103,20 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -137,16 +130,16 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -155,6 +148,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,19 +171,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-deciphering-the-language-of-copyright-notices-from-youtube/"><u>[Updated] 2024 Approved Deciphering the Language of Copyright Notices From YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-free-to-use-the-top-10-mobile-live-streaming-apps-list/"><u>[Updated] Free to Use The Top 10 Mobile Live Streaming Apps List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effective-youtube-customization-for-powerful-endings-for-2024/"><u>Effective YouTube Customization for Powerful Endings for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens-for-2024/"><u>Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-youtube-for-asmr-enthusiasts/"><u>Essential YouTube for ASMR Enthusiasts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>From Vision to Execution The Full Spectrum of Personal Branding on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oneplus-ace-2-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from OnePlus Ace 2 to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-mastering-instagrams-podcast-post-and-story-distribution/"><u>In 2024, Mastering Instagram's Podcast Post & Story Distribution</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-sony-xperia-5-v-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Sony Xperia 5 V and Browser | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-release-geforce-rtx-3080-ti-drivers-for-windows-11-10-and-7-systems/"><u>Latest Release: GeForce RTX 3080 Ti Drivers for Windows 11, 10 & 7 Systems</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/maintaining-discretion-safeguarding-sensitive-information-when-utilizing-chatgpt-at-work/"><u>Maintaining Discretion: Safeguarding Sensitive Information when Utilizing ChatGPT at Work</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-honor-100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-5-online-titler-pros-unveiled/"><u>[New] 2024 Approved Top 5 Online Titler Pros Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-battlebuddies-channel-over-a-hundred-friends-in-games/"><u>[Updated] BattleBuddies Channel Over a Hundred Friends in Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-blueprint-for-blending-video-content-into-curricula-for-2024/"><u>[Updated] Blueprint for Blending Video Content Into Curricula for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[Updated] Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prime-methods-transforming-pin-videos-to-mp3-format/"><u>[Updated] Prime Methods Transforming Pin Videos To MP3 Format</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-youtube-success-mastery-with-tubebuddy/"><u>2024 Approved Boosting YouTube Success Mastery with TubeBuddy</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-11-pro-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 11 Pro without Passcode or Face ID</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-charm-with-cost-free-visual-aids/"><u>Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-captivating-titles-with-ae-for-2024/"><u>Crafting Captivating Titles with AE for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-youtube-content-with-text-overlays/"><u>Enhancing YouTube Content with Text Overlays</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/entering-income-territory-with-a-thousand-followers/"><u>Entering Income Territory with a Thousand Followers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/magix-video-pro-x-analysis-for-2024/"><u>Magix Video Pro X Analysis for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-video-captioning-on-youtube/"><u>Mastering Video Captioning on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/popular-photos-the-backstory-for-2024/"><u>Popular Photos The Backstory for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twittersphere-treasures-primes-top-watchers-and-likes/"><u>Twittersphere Treasures Prime’s Top Watchers & Likes</u></a></li>
 </ul></div>
 

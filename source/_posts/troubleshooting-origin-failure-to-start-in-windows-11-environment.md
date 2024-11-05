@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2024-10-26T04:24:24.700Z
-updated: 2024-10-30T01:58:22.468Z
+date: 2024-11-04T00:35:08.817Z
+updated: 2024-11-04T19:58:14.564Z
 tags:
   - win11
   - win10
@@ -48,16 +48,16 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a03daedd.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2) Type in your password and log in again.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a59dfeba.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3) Check if your Start menu works all right now.
 
@@ -75,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
@@ -87,11 +94,25 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8bbeac77b.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5) Restart your computer and log into the new user account.
 
 6) Your**Start** menu should work now.You can change the new local account to a Microsoft account and transfer your files and settings.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3: Reinstall video card and sound card drivers
 
@@ -104,26 +125,26 @@ net user newusername newpassword /add
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b92b357675.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  3) Double-click**Sound, video and game controller** . Right-click your audio card driver and click**Uninstall device** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b931f18df7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  When prompted with the following notification, tick the box for**Delete the driver software for this device** and click**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b939274834.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  5) Restart your computer after the uninstall of both of your video card driver and your sound card driver.
 
@@ -149,13 +170,6 @@ net user newusername newpassword /add
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4: Disable or uninstall third-party antivirus programs
 
  If you’ve installed antivirus or anti-malware programs such as Norton, Kaspersky, AVG, Avast Behavior Shield or Malwarebytes, you should **temporarily**   turn them off or disable them to see if they’re causing your Start menu not working problem. If your computer’s Start menu returns to normal when they’re off, you should contact the vendor of the software to see if they can provide some help.
@@ -173,19 +187,6 @@ net user newusername newpassword /add
  1) On your keyboard, press the**Windows logo key** and**R**  at the same time, type**control** in and press**Enter** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  2) View by**Category** , then click**Uninstall a program** .
 
@@ -217,13 +218,6 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
@@ -246,6 +240,13 @@ DISM /Online /Cleanup-Image /RestoreHealth
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8: Reinstall Cortana
 
  The reason why your Start menu and Cortana is not working could be that they are installed wrong, somehow. You can reinstall them to get the Start menu feature back. Here is how:
@@ -254,13 +255,6 @@ DISM /Online /Cleanup-Image /RestoreHealth
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
@@ -268,6 +262,13 @@ DISM /Online /Cleanup-Image /RestoreHealth
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  4) Copy and paste the following command in and press the **Enter** key on your keyboard.
 
@@ -281,13 +282,6 @@ de -Register "$($_.InstallLocation)\AppXManifest.xml"}
 Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register "$($_.InstallLocation)\AppXManifest.xml"}
 
  4) There, your Cortana is reinstalled, and your Start menu should also be back now.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Last but not least: refresh your PC
 
@@ -312,21 +306,17 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-crafting-the-perfect-tiktok-unbox-video-a-viewership-guide-for-2024/"><u>[New] Crafting the Perfect TikTok Unbox Video A Viewership Guide for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-flip-it-right-youtube-video-retrospectives-with-tips-for-2024/"><u>[New] Flip It Right YouTube Video Retrospectives (With Tips!) For 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-nailing-the-technique-for-snapchat-screen-time-lapses/"><u>[Updated] 2024 Approved Nailing the Technique for Snapchat Screen Time-Lapses</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-seamless-setup-of-ifunny-meme-toolkit/"><u>2024 Approved How-To Seamless Setup of iFunny Meme Toolkit</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-interactive-narratives-basics-and-beyond/"><u>2024 Approved Interactive Narratives Basics and Beyond</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/disruptive-beatscape-best-rhythm-altering-tools/"><u>Disruptive Beatscape Best Rhythm Altering Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/diy-photography-support-systems-for-2024/"><u>DIY Photography Support Systems for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/editessence-system/"><u>EditEssence System</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-quadro-rtx-8000-drivers-now-windows-11-8-and-7-support-included/"><u>Get the Newest Quadro RTX 8000 Drivers Now - Windows 11, 8 & 7 Support Included</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/glam-rific-guide-to-hauls-and-hair-care/"><u>Glam-Rific Guide to Hauls and Hair Care</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-much-money-can-you-score-with-youtube-short-videos/"><u>How Much Money Can You Score with YouTube Short Videos?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-electronically-sign-a-wpt-file-using-digisigner-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Electronically Sign a .wpt file Using DigiSigner</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-adobe-premiere-tips-youtube-video-uploads/"><u>In 2024, Adobe Premiere Tips YouTube Video Uploads</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-nubia-z50-ultra-by-drfone-android/"><u>In 2024, How to Bypass FRP on Nubia Z50 Ultra?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-legally-sharing-tunes-on-instagram/"><u>The Ultimate Guide to Legally Sharing Tunes on Instagram</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-a-narrative-structure-in-online-video-tutorials/"><u>[New] Creating a Narrative Structure in Online Video Tutorials</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-master-audio-fusion-a-stepwise-approach-to-incorporating-srt-into-mp4s-for-2024/"><u>[Updated] Master Audio Fusion A Stepwise Approach to Incorporating SRT Into MP4s for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/15-pioneering-youtube-tutorials-for-flawless-product-reviews-for-2024/"><u>15 Pioneering YouTube Tutorials for Flawless Product Reviews for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-unique-content-to-differentiate-your-channel/"><u>2024 Approved Crafting Unique Content to Differentiate Your Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adding-youtube-captionssubtitles-made-simple-and-fast/"><u>Adding YouTube Captions/Subtitles Made Simple and Fast</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-techniques-to-reduce-and-manage-full-disk-load-in-windows-tenth/"><u>Essential Techniques to Reduce and Manage Full Disk Load in Windows Tenth</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-14-text-animation-examples/"><u>In 2024, Best 14 Text Animation Examples</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>In 2024, Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/montblanc-launches-high-end-1300-smartwatch-with-wear-os-does-it-meet-expectations-yet/"><u>Montblanc Launches High-End $1,300 Smartwatch with Wear OS: Does It Meet Expectations Yet?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/more-than-just-raw-power-a-comprehensive-look-at-the-playstation-5/"><u>More Than Just Raw Power: A Comprehensive Look at the PlayStation 5</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-guide-to-youtube-sound-placement/"><u>Step-by-Step Guide to Youtube Sound Placement</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>Updated How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
 </ul></div>
 

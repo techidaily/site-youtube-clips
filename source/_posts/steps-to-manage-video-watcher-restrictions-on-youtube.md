@@ -1,7 +1,7 @@
 ---
 title: "Steps to Manage Video Watcher Restrictions on Youtube"
-date: 2024-10-23T10:13:02.920Z
-updated: 2024-10-30T08:59:34.602Z
+date: 2024-10-29T02:06:46.736Z
+updated: 2024-11-04T23:26:39.026Z
 tags:
   - ai video
   - ai youtube
@@ -70,33 +70,33 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -105,25 +105,19 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,21 +135,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-advanced-techniques-for-youtube-shorts-and-mp4-exportation/"><u>[New] 2024 Approved Advanced Techniques for YouTube Shorts and Mp4 Exportation</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-sky-high-success-on-social-media-mastering-dji-drone-streams/"><u>[New] 2024 Approved Sky-High Success on Social Media Mastering DJI Drone Streams</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-best-free-downloaders-download-youtube-thumbnail-for-freeonlinewinmac/"><u>[New] Best Free Downloaders Download YouTube Thumbnail for Free[Online/Win/Mac]</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-collect-priceless-imagery-from-trusted-4-youtube-directories/"><u>[Updated] Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[Updated] DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/content-production-and-artificial-intelligence-understanding-the-boundaries-of-chatbot-capabilities-with-7-key-points/"><u>Content Production and Artificial Intelligence: Understanding the Boundaries of Chatbot Capabilities with 7 Key Points</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-insight-iphone-15-evaluation-top-choice-for-seasoned-tech-enthusiasts-zdnet/"><u>Expert Insight: IPhone 15 Evaluation - Top Choice for Seasoned Tech Enthusiasts | ZDNet</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-tips-for-troubleshooting-and-repairing-ark-crash-incidents/"><u>Expert Tips for Troubleshooting and Repairing ARK Crash Incidents</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-curating-creator-rewards-on-video-platforms/"><u>In 2024, Curating Creator Rewards on Video Platforms</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-endless-viewing-with-iphone-writes-of-video/"><u>In 2024, Endless Viewing with iPhone' Writes of Video</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-new-year-updated-lg-360-full-review-insights/"><u>In 2024, New Year, Updated LG 360 Full Review Insights</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/interkultureller-austausch-10-andere-deutsche-salutformen-neben-hallo/"><u>Interkultureller Austausch: 10 Andere Deutsche Salutformen Neben Hallo</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/maximizing-your-apple-experience-with-watchos-11s-latest-upgrade-features-explored/"><u>Maximizing Your Apple Experience with WatchOS 11'S Latest Upgrade - Features Explored</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pioneering-youtube-fitness-ideas-for-a-movement-driven-viewership/"><u>Pioneering YouTube Fitness Ideas for a Movement-Driven Viewership</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-follow-the-trend-of-making-slow-motion-videos-with-a-camera-lenta-capcut-template-learn-everything-about-capcut-and-find-its-alternati/"><u>Updated 2024 Approved Follow the Trend of Making Slow-Motion Videos with a Camera Lenta CapCut Template. Learn Everything About CapCut and Find Its Alternatives in This Article</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-ultimate-hue-harmonizer-tool/"><u>[New] 2024 Approved Ultimate Hue Harmonizer Tool</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-visibility-with-optimal-thumbnails/"><u>[New] Enhancing Video Visibility with Optimal Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-building-a-studio-quality-setup-at-home/"><u>[Updated] Building a Studio-Quality Setup at Home</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-behind-the-curtain-how-youtube-tallys-its-views/"><u>[Updated] In 2024, Behind the Curtain How YouTube Tally's Its Views</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-tips-and-tricks-for-efficient-twitch-stream-recordings-for-2024/"><u>[Updated] Tips and Tricks for Efficient Twitch Stream Recordings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-engagement-through-anime-style-subscribe-buttons-filmora-tutorial-for-2024/"><u>Boost Engagement Through Anime-Style Subscribe Buttons (Filmora Tutorial) for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-x50i-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor X50i</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-arc-electrify-powerful-media-player-replacement/"><u>In 2024, Arc Electrify Powerful Media Player Replacement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-video-reach-tactics-against-bot-visitors/"><u>In 2024, Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-excellence-in-gaming-graphics-at-4k-speeds/"><u>In 2024, Excellence in Gaming Graphics at 4K Speeds</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from Apple iPhone 12 mini</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-earnings-with-youtube-studio-techniques/"><u>Streamlining Earnings with Youtube Studio Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-perfected-practice-of-combining-youtube-videos/"><u>The Perfected Practice of Combining YouTube Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tricks-for-non-engagement-with-edgenuity-video-content/"><u>Tricks for Non-Engagement with Edgenuity Video Content</u></a></li>
 </ul></div>
 

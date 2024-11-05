@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-10-23T21:17:36.693Z
-updated: 2024-10-30T10:16:43.464Z
+date: 2024-10-28T21:09:51.549Z
+updated: 2024-11-05T07:15:05.656Z
 tags:
   - ai video
   - ai youtube
@@ -32,31 +32,24 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -66,31 +59,11 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -99,6 +72,13 @@ After you’ve managed to get someone to click on your video through your effect
 New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
 
@@ -112,6 +92,13 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -121,6 +108,13 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,20 +131,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>[New] Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-unlocking-fullscreen-footage-screen-recording-made-simple-for-mac-users/"><u>[New] Unlocking Fullscreen Footage Screen Recording Made Simple for Mac Users</u></a></li>
-<li><a href="https://techidaily.com/bios-setup-hands-on-starting-up-into-system-firmware-on-windows-versions/"><u>BIOS Setup Hands-On: Starting Up Into System Firmware on Windows Versions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/brevity-in-action-shortening-youtube-video-content-for-2024/"><u>Brevity in Action Shortening YouTube Video Content for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/charting-new-territory-ai-in-the-world-of-windows-11/"><u>Charting New Territory: AI in the World of Windows 11</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-the-differences-in-youtubes-ownership-and-cc-models-for-2024/"><u>Charting the Differences in YouTube's Ownership and CC Models for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>In 2024, Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-direct-from-google-meet-securely-live-stream-on-youtube/"><u>In 2024, Direct From Google Meet Securely Live Stream on YouTube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-reviewing-cybernetic-tools-for-live-video-capture/"><u>In 2024, Reviewing Cybernetic Tools for Live Video Capture</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-guide-to-macro-videography-techniques/"><u>In 2024, Ultimate Guide to Macro Videography Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-videography-6-tips-for-making-macro-video/"><u>In 2024, Videography 6 Tips for Making Macro Video</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-filmmakers-roadmap-creating-youtube-trailers-using-filmora/"><u>The Filmmaker's Roadmap Creating YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/ultimate-guide-to-handbrakes-gpu-enhanced-video-conversion/"><u>Ultimate Guide to Handbrake's GPU-Enhanced Video Conversion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-conquering-low-light-challenges-in-filming/"><u>[New] Conquering Low-Light Challenges in Filming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-easy-access-to-no-cost-music-for-video-makers/"><u>[New] Easy Access to No-Cost Music for Video Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-content-youtube-video-editing-secrets-revealed/"><u>[New] Elevate Your Content YouTube Video Editing Secrets Revealed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-tunefab-revolutionizing-the-art-of-video-capture/"><u>[New] In 2024, Tunefab Revolutionizing the Art of Video Capture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unlocking-the-secrets-to-successful-360-streaming-on-fb-for-2024/"><u>[New] Unlocking the Secrets to Successful 360 Streaming on FB for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enriching-meta-descriptions-a-template-transformation-journey/"><u>[Updated] Enriching Meta Descriptions A Template Transformation Journey</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/5-innovative-yt-tales-share-your-life-journey/"><u>5 Innovative YT Tales Share Your Life Journey</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-narzo-60-pro-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme Narzo 60 Pro 5Gwith/without a PC</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-vivo-x-flip-screen-sharing-drfone-by-drfone-android/"><u>How To Do Vivo X Flip Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-download-youtube-thumbnail-in-3-waysonlinewinmac/"><u>How to Download Youtube Thumbnail in 3 Ways[Online/Win/Mac]</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-cutting-edge-techniques-for-aspiring-youtube-game-streamers/"><u>In 2024, Cutting-Edge Techniques for Aspiring YouTube Game Streamers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-essential-guide-to-understanding-and-using-instagrams-music-features/"><u>In 2024, The Essential Guide to Understanding and Using Instagram's Music Features</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-veiled-viewer-in-the-social-sphere/"><u>In 2024, Veiled Viewer in the Social Sphere</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-video-podcast-everything-you-need-to-know/"><u>In 2024, Video Podcast Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-visuals-a-step-by-step-guide-for-youtube-trailers/"><u>Leveraging Visuals A Step-by-Step Guide for YouTube Trailers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-tutorial-on-synchronizing-playstation-4-controllers-quickly/"><u>Ultimate Tutorial on Synchronizing PlayStation 4 Controllers Quickly</u></a></li>
 </ul></div>
 

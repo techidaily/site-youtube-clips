@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Discovering How YouTube Runs Its Creator Workshop\""
-date: 2024-08-16T07:55:34.035Z
-updated: 2024-08-17T07:55:34.035Z
+date: 2024-11-01T00:30:25.075Z
+updated: 2024-11-05T02:07:39.066Z
 tags:
   - ai video
   - ai youtube
@@ -18,14 +18,6 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
 # What is the YouTube Creator Studio?
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,10 +34,6 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## Adjusting the Dashboard
 
 Pinning new charts to the dashboard will ensure that all of the data you need most often is easily viewable upon first entering the Creator Studio. All you need to do to add new widgets to the dashboard sidebar is to use the **add widget** feature.
@@ -53,8 +41,18 @@ Pinning new charts to the dashboard will ensure that all of the data you need mo
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## YouTube Creator Studio Tools
 
 **Video Manager:** from the Video Manager section you can view any of the videos that you have posted to YouTube. This menu includes all of your uploaded videos whether they are public, unlisted, or private. You can see advanced statistics on every one of the videos you posted as well as download MP4s of your videos for re-editing. The video manager allows you to very quickly select multiple videos and then add them to a playlist.
@@ -70,29 +68,39 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Filmora
 
 As one of the most versatile video editing software, Filmora offers various types of templates and effects with an intuitive interface, which helps you custom your videos without hassle. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -101,5 +109,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-the-art-of-video-enhancement-from-sdr-basics-to-hdr-excellence/"><u>[New] 2024 Approved Mastering the Art of Video Enhancement From SDR Basics to HDR Excellence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-alternative-editors-for-youtube-creators-seeking-new-horizons/"><u>[New] Best Alternative Editors for YouTube Creators Seeking New Horizons</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-clear-up-audio-in-youtube-a-step-by-step-guide/"><u>[New] Clear Up Audio in YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-countermoves-in-media-how-to-reverse-videos/"><u>[New] Countermoves in Media How to Reverse Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-unlocking-every-participants-placement-in-google-meet/"><u>[New] In 2024, Unlocking Every Participant’s Placement in Google Meet</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-coping-with-youtube-copyright-claims-a-step-by-step-guide/"><u>[Updated] Coping with YouTube Copyright Claims A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-the-chilly-selecting-five-warm-video-backgrounds/"><u>Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-honor-magic-vs-2-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Honor Magic Vs 2 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-nubia-red-magic-8s-proplus-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Nubia Red Magic 8S Pro+ Phone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-legal-compliant-recording-your-pathway-to-secure-skype-call-management/"><u>In 2024, Legal-Compliant Recording Your Pathway to Secure Skype Call Management</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/template-hacks-for-building-professional-youtube-intros/"><u>Template Hacks for Building Professional YouTube Intros</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-sprinkle-of-life-in-your-text-animations/"><u>The Sprinkle of Life in Your Text Animations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-young-filmmakers-guide-to-selecting-video-gear/"><u>The Young Filmmaker's Guide to Selecting Video Gear</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-xiaomi-redmi-note-12r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-red-magic-9-proplus-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Red Magic 9 Pro+ fingerprint</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-best-10-chinese-video-to-english-translator/"><u>Updated In 2024, Best 10 Chinese Video to English Translator</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/viewer-payouts-for-video-engagement/"><u>Viewer Payouts for Video Engagement</u></a></li>
+</ul></div>
 
