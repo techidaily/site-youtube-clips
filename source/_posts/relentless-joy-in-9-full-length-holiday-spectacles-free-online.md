@@ -1,7 +1,7 @@
 ---
 title: "\"Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-11-03T00:17:23.241Z
-updated: 2024-11-05T04:43:18.521Z
+date: 2024-11-09T18:56:29.532Z
+updated: 2024-11-15T12:56:57.183Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,13 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
@@ -38,28 +45,15 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
@@ -71,26 +65,26 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -113,16 +107,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-building-connections-through-collaborative-playlists/"><u>[New] Building Connections Through Collaborative Playlists</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-add-timestamps-to-youtube-video-to-increase-views/"><u>[New] How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide/"><u>[New] In 2024, Crafting Effective In-Stream Ad Campaigns on Facebook A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-10-youtube-download-apps-best-in-class-compatibility-for-2024/"><u>[New] Top 10 YouTube Download Apps - Best in Class Compatibility for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-instagram-collage-made-simple-a-quick-how-to/"><u>[Updated] Instagram Collage Made Simple A Quick How-To</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-beginners-pathway-building-a-simple-youtube-signup/"><u>2024 Approved A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-filmmakers-guide-to-mastering-green-screen-technology-for-2024/"><u>A Filmmaker's Guide to Mastering Green Screen Technology for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/audio-enhancement-for-professional-instagram-posts/"><u>Audio Enhancement for Professional Instagram Posts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audio-clarity-10-pro-tips-for-high-quality-recordings/"><u>In 2024, Audio Clarity 10 Pro Tips for High-Quality Recordings</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-harness-the-power-of-windows-photos-and-story-remix-for-editing/"><u>In 2024, Harness the Power of Windows Photos & Story Remix for Editing</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-make-a-living-with-reddit-even-for-novices-top-13-easy-strategies/"><u>In 2024, Make a Living with Reddit (Even for Novices!) Top 13 Easy Strategies</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-top-6-nft-platforms-unlocking-creativity-for-artists/"><u>[New] In 2024, Top 6 NFT Platforms Unlocking Creativity for Artists</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-optimizing-engagement-in-the-new-facebook-algorithms-era/"><u>[New] Optimizing Engagement in the New Facebook Algorithms Era</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-artful-expression-the-most-exceptional-9-sites-for-3d-graffiti-typefaces-for-2024/"><u>[New] Unleashing Artful Expression The Most Exceptional 9 Sites for 3D Graffiti Typefaces for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-blitzing-sharing-easy-youtube-playlist-methods/"><u>[Updated] Blitzing Sharing Easy YouTube Playlist Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/everything-you-need-to-succeed-with-youtube-short-videos-for-2024/"><u>Everything You Need to Succeed with YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-the-phantom-swipe-problem-top-10-tips-for-iphones-with-ghost-touch-glitch/"><u>Fixing the Phantom Swipe Problem: Top 10 Tips for iPhones with Ghost Touch Glitch</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-htc-u23-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on HTC U23 Phones with/without a PC</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-iphone-se-2022-by-drfone-ios/"><u>How to Bypass iCloud Lock on iPhone SE (2022)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 90 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/smooth-cinematography-best-stabilizers-listed/"><u>Smooth Cinematography Best Stabilizers Listed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/virtual-artisans-haven-retreat/"><u>Virtual Artisans' Haven Retreat</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On OnePlus 12? | Dr.fone</u></a></li>
 </ul></div>
 

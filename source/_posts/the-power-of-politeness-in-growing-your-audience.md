@@ -1,7 +1,7 @@
 ---
 title: "The Power of Politeness in Growing Your Audience"
-date: 2024-11-02T19:59:13.544Z
-updated: 2024-11-05T00:45:52.673Z
+date: 2024-11-12T00:42:46.699Z
+updated: 2024-11-14T16:55:23.958Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -62,10 +55,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
@@ -79,10 +72,10 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
@@ -97,15 +90,22 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,19 +123,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-efficient-whiteboard-use-in-webinars-apple-android-and-pc-solutions-explored/"><u>[New] Efficient Whiteboard Use in Webinars Apple, Android & PC Solutions Explored</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/onetization-magic-geek-channels/"><u>[New] Monetization Magic Geek Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[Updated] Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-diy-tips-to-cut-unwanted-sounds-from-your-videos/"><u>[Updated] DIY Tips to Cut Unwanted Sounds From Your Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-premium-gaming-intro-ideas-for-youtube-free-vs-paid-models/"><u>[Updated] Premium Gaming Intro Ideas for YouTube Free vs Paid Models</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-advanced-guide-to-virtual-backgrounds-in-videography/"><u>2024 Approved Advanced Guide to Virtual Backgrounds in Videography</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-a-course-through-youtubes-maker-domain-for-2024/"><u>Charting a Course Through YouTube's Maker Domain for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/cleancast-shining-light-on-flawed-files/"><u>CleanCast: Shining Light on Flawed Files</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-proof-your-data-elite-usb-flash-drive-picks/"><u>Future-Proof Your Data: Elite USB Flash Drive Picks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/guide-to-producing-effective-youtube-promo-videos/"><u>Guide to Producing Effective YouTube Promo Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/monthly-revenue-streams-for-video-content-creators/"><u>Monthly Revenue Streams for Video Content Creators</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/notizbuch-alle-daten-werden-beim-installieren-von-windows-10-per-usb-geloscht-klarstellung/"><u>Notizbuch: Alle Daten Werden Beim Installieren Von Windows 10 per USB Gelöscht – Klarstellung!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/photography-powerhouses-for-crisp-composites/"><u>Photography Powerhouses for Crisp Composites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigating-video-visibility-barriers-in-social-networking/"><u>[New] 2024 Approved Navigating Video Visibility Barriers in Social Networking</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-amplify-your-voice-expert-insights-on-podcast-editing-in-garageband/"><u>[New] Amplify Your Voice Expert Insights on Podcast Editing in GarageBand</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-beginning-creators-guide-top-8-free-youtube-tutorials/"><u>[New] Beginning Creator's Guide Top 8 Free YouTube Tutorials</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-boosting-engagement-interpreting-youtube-video-data/"><u>[New] Boosting Engagement Interpreting YouTube Video Data</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-crucial-info-every-asmr-viewer-should-absorb/"><u>[New] Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-no-pay-no-problem-get-your-free-passport-photo-creator-now-online-and-on-desktop/"><u>[New] No Pay, No Problem Get Your Free Passport Photo Creator Now Online & On Desktop</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-master-class-extracting-and-saving-vimeo-videos/"><u>[Updated] 2024 Approved Master Class Extracting and Saving Vimeo Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevating-engagement-professional-tips-for-youtube-video-tweaks/"><u>[Updated] Elevating Engagement Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-keeping-up-with-snapstreaks-for-2024/"><u>[Updated] The Art of Keeping Up With Snapstreaks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-upgrading-visual-appeal-a-how-to-guide-for-twitter-video-image-changes/"><u>2024 Approved Upgrading Visual Appeal A How-To Guide for Twitter Video Image Changes</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-bold-bet-on-content-facebooks-5m-venture-to-challenge-substacks-writer-community/"><u>A Bold Bet on Content: Facebook's $5M Venture to Challenge Substack’s Writer Community</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cultivating-an-audience-naturally-youtubes-way/"><u>In 2024, Cultivating an Audience Naturally - YouTube's Way</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-writers-guide-embedding-images-in-articles-without-spending/"><u>In 2024, Writers' Guide Embedding Images in Articles Without Spending</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/lyric-video-creation-secrets-unveiled-by-lyric-video-maker/"><u>Lyric Video Creation Secrets Unveiled by Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rhythmic-reckonings-top-disruptors-for-mobile-devices/"><u>Rhythmic Reckonings Top Disruptors for Mobile Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlocking-youtube-potential-with-perpetual-creative-commons-membership/"><u>Unlocking YouTube Potential with Perpetual Creative Commons Membership</u></a></li>
 </ul></div>
 

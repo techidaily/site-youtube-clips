@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Captivating Audiences  Adopting YouTube Vlogger Charisma\""
-date: 2024-11-02T05:16:14.817Z
-updated: 2024-11-05T00:09:37.507Z
+date: 2024-11-11T13:12:31.090Z
+updated: 2024-11-15T13:10:10.346Z
 tags:
   - ai video
   - ai youtube
@@ -41,16 +41,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -63,6 +57,19 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -70,13 +77,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -108,6 +108,13 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -117,6 +124,19 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -142,21 +162,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -173,20 +179,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-alternative-cinema-choices-for-every-fan/"><u>[New] Alternative Cinema Choices for Every Fan</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-unlocking-full-potential-advanced-nvidia-recorder-tips/"><u>[Updated] 2024 Approved Unlocking Full Potential Advanced NVIDIA Recorder Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-new-era-of-creativity-pinpointing-the-best-10-budget-friendly-video-art-communities-on-youtube/"><u>[Updated] A New Era of Creativity Pinpointing the Best 10 Budget-Friendly Video Art Communities on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-step-by-step-guide-to-youtube-image-branding/"><u>[Updated] A Step-by-Step Guide to YouTube Image Branding</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-10-yt-channels-surging-ideas-and-insights-unleashed/"><u>[Updated] In 2024, 10 YT Channels Surging Ideas and Insights Unleashed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-adding-descriptive-titlestexts-via-microsoft-photos-win-11/"><u>[Updated] In 2024, Adding Descriptive Titles/Texts via Microsoft Photos Win 11</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videos-impact-with-customizable-youtube-thumbnails/"><u>2024 Approved Elevate Your Video's Impact with Customizable YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-uncharted-territory-in-facebooks-meme-landscape/"><u>2024 Approved Uncharted Territory in Facebook's Meme Landscape</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/achieving-financial-gain-with-youtube-shorts-essentials-opportunities-and-earning-prospects-for-2024/"><u>Achieving Financial Gain with Youtube Shorts Essentials, Opportunities & Earning Prospects for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/best-15-free-to-use-bootable-security-programs-recommended/"><u>Best 15 Free-to-Use, Bootable Security Programs Recommended</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/every-creators-guide-to-youtube-revenue-for-2024/"><u>Every Creator's Guide to YouTube Revenue for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/innovative-approaches-to-elevate-your-obs-studio-workflow/"><u>Innovative Approaches to Elevate Your OBS Studio Workflow</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-media-mixes-in-adobe-premiere-pro-a-step-by-step-guide-on-importing-flv-videos/"><u>Mastering Media Mixes in Adobe Premiere Pro: A Step-by-Step Guide on Importing FLV Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-youtubes-aesthetics-enhancing-your-videos/"><u>Mastering YouTube's Aesthetics Enhancing Your Videos</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ultimate-troubleshooting-guide-for-alan-wake-2-crashes/"><u>Ultimate Troubleshooting Guide for Alan Wake 2 Crashes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-complete-rankings-of-mobile-apps-altering-your-speech/"><u>[New] 2024 Approved The Complete Rankings of Mobile Apps Altering Your Speech</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ending-static-audio-in-obs-streams/"><u>[New] In 2024, Ending Static Audio in OBS Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-video-production-the-audio-edition-on-youtube/"><u>[Updated] Elevate Video Production The Audio Edition on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-7-free-pc-screen-capture-programs/"><u>[Updated] Top 7 Free PC Screen Capture Programs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/5-dreamy-winter-scenes-as-youtube-backdrops-for-2024/"><u>5 Dreamy Winter Scenes as YouTube Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-youtube-income-using-studio-anywhere-anyhow/"><u>Boosting YouTube Income Using Studio Anywhere, Anyhow</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-zero-to-hero-a-step-by-step-approach-to-youtube-backlinks/"><u>From Zero to Hero A Step-by-Step Approach to YouTube Backlinks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-11-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-audience-centric-video-structure-chapter-addition-for-maximum-viewership-on-youtube/"><u>In 2024, Audience-Centric Video Structure Chapter Addition for Maximum Viewership on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-shorts-visibility-a-thumbnail-transformation-journey/"><u>In 2024, Elevating Shorts Visibility A Thumbnail Transformation Journey</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-implementing-soft-cessation-of-sounds-using-audacity-procedures/"><u>In 2024, Implementing Soft Cessation of Sounds Using Audacity Procedures</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-6s-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone 6s Properly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pushing-boundaries-of-video-production-in-youtube-studio/"><u>Pushing Boundaries of Video Production in YouTube Studio</u></a></li>
+<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-infinix-smart-8-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Infinix Smart 8 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-early-testing-for-ios-181-update-including-advanced-ai-capabilities-by-apple-start-now-znet/"><u>Unlock Early Testing for iOS 18.1 Update Including Advanced AI Capabilities by Apple - Start Now! | Znet</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-essential-guide-to-the-premier-10-youtube-news-sources/"><u>Your Essential Guide to the Premier 10 YouTube News Sources</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-04T01:43:41.312Z
-updated: 2024-11-04T21:04:41.825Z
+date: 2024-11-07T23:36:02.956Z
+updated: 2024-11-15T00:22:54.769Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,24 +141,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-beyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[New] 2024 Approved Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-name-inspiration-strategies-for-success/"><u>[New] Channel Name Inspiration Strategies for Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] Creating a Multimedia Guide Adding Videos to Text Articles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-from-slides-to-screens-easy-recording-techniques/"><u>[New] From Slides to Screens Easy Recording Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-composing-news-wrap-up-scripts/"><u>[Updated] 2024 Approved Composing News Wrap-Up Scripts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-video-editing-for-social-media-standout/"><u>2024 Approved Mastering Video Editing for Social Media Standout</u></a></li>
-<li><a href="https://media-tips.techidaily.com/best-top-6-software-solutions-for-converting-mp3-to-ogg-files-desktop-and-web-options/"><u>Best Top 6 Software Solutions for Converting MP3 to OGG Files: Desktop & Web Options</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-channels-youtubes-partner-program/"><u>Elevate Your Channels - YouTube's Partner Program</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>In 2024, Essential Mobile Media Creation Tools IPhone vs Android Review</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/professional-tools-to-elevate-your-video-openings/"><u>Professional Tools to Elevate Your Video Openings</u></a></li>
-<li><a href="https://win-blog.techidaily.com/say-goodbye-to-black-screens-the-ultimate-guide-to-solving-issues-in-far-cry-6/"><u>Say Goodbye to Black Screens: The Ultimate Guide to Solving Issues in Far Cry 6</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs-for-2024/"><u>Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/what-you-missed-a-closer-look-at-facebooks-2023-upgrades/"><u>What You Missed A Closer Look at Facebook's 2023 Upgrades</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-game-soundscapes-transformed-a-ps4ps5-journey-for-2024/"><u>[New] Game Soundscapes Transformed A PS4/PS5 Journey for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-method-for-onoff-windows-11-hdr-feature/"><u>[Updated] 2024 Approved Method for On/Off Windows 11 HDR Feature</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-brighter-days-with-five-winter-themed-backgrounds/"><u>[Updated] Brighter Days with Five Winter-Themed Backgrounds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-discover-the-world-of-screen-capture-with-apowersofts-free-version-for-2024/"><u>[Updated] Discover the World of Screen Capture with Apowersoft's Free Version for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-understanding-film-a-beginners-guide-to-essential-shots/"><u>[Updated] Understanding Film A Beginner's Guide to Essential Shots</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-best-practices-navigating-through-top-9-free-logo-creators/"><u>2024 Approved Decoding Best Practices Navigating Through Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/budget-friendly-tips-for-acquiring-high-end-gopros/"><u>Budget-Friendly Tips for Acquiring High-End GoPros</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-classic-cinematography-step-by-step-guide/"><u>Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-the-top-10-historically-rich-youtube-tutorials/"><u>Discover the Top 10 Historically Rich YouTube Tutorials</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On Apple iPhone 15 Plus?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/in-depth-look-at-metaquest-3-anticipated-release-dates-cost-analysis-and-hardware-specs-revealed/"><u>In-Depth Look at MetaQuest 3: Anticipated Release Dates, Cost Analysis, and Hardware Specs Revealed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/m4raiff-by-movavi/"><u>M4R形式に自由に変換!無料AIFFコンバーター by Movavi</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/profitable-video-content-starting-and-scaling-up/"><u>Profitable Video Content Starting and Scaling Up</u></a></li>
 </ul></div>
 

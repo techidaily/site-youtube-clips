@@ -1,7 +1,7 @@
 ---
 title: "Optimized Game Performance: Understanding & Resolving Fluctuating FPS"
-date: 2024-10-30T05:42:41.071Z
-updated: 2024-11-04T22:34:52.467Z
+date: 2024-11-13T23:33:00.167Z
+updated: 2024-11-14T19:55:43.834Z
 tags:
   - win11
   - win10
@@ -32,10 +32,10 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 9. **[Scan your PC for corrupted files](https://tools.techidaily.com/drivereasy/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Make sure your PC is capable
@@ -60,13 +60,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  1) Open your Steam client. Under LIBRARY, right-click your game title and select**Properties** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-verify-integrity-of-game-files-properties-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  2) Select the**UPDATES** tab and select the settings**Always keep this game updated** from AUTOMATIC UPDATES.
 
@@ -94,13 +87,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
   
 ![open Task Manager](https://images.drivereasy.com/wp-content/uploads/2021/01/open-task-manager.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3) Click the**CPU or Memory tab** to check whether anything is using up large chunks of your CPU or RAM (for instance, a web browser with dozens of tabs open).
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/12/Task-Manager-Memory.png)
@@ -109,14 +95,14 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/12/disable-background-applications.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Once you’ve done these, relaunch your game and test if you can notice an FPS boost.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Check for Windows updates
 
@@ -131,6 +117,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  2) Click on the **Check for updates**  button. If there are any updates available, it’ll automatically start to download and install it. Simply wait for the process to complete. Then you’ll be asked to restart your computer.
 
 ![how to download and install Windows updates](https://images.drivereasy.com/wp-content/uploads/2021/01/click-on-the-Check-for-updates-tab.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### On Windows 11
 
@@ -147,6 +140,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  4) When it finishes downloading the updates, click**Restart now** to restart your PC. Or you can **Schedule the restart** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/01/restart-after-windows-updates-1200x626.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If updating Windows doesn’t give you any luck, proceed to the next fix.
 
@@ -174,13 +174,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you need assistance, please contact **Driver Easy’s support team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
  After updating drivers, restart your PC and test your gameplay. If your problem persists, proceed to the next fix.
@@ -203,13 +196,6 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-verify-integrity-of-game-files.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Now Steam will verify your game’s files. This process may take several minutes. Once the process is completed, close the Window then launch your game. If you’re still getting low FPS and massive stutters, move on to the[next fix](https://tools.techidaily.com/drivereasy/download/) .
 
 #### On Epic Games Launcher
@@ -229,6 +215,13 @@ Dying Light 2 Stay Human is finally here – taking us to one of the last surviv
  1) Head across to the**Options** menu.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/Dying-Light-2-settings-options.png)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) Select the**VIDEO** tab at the very top. Then make the following changes：
 
@@ -250,16 +243,16 @@ Now scroll down and make these changes:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/image.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Then apply the changes. Press the**Esc** key and click**OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/apply-the-changes.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  However, by applying these changes, you’ll have to settle for less in-game visual detail. If you find you’re sacrificing too much in your graphical settings to hit your frame rate target, there’s always another option: Upgrading to a new system with a faster GPU and CPU.
 
@@ -272,6 +265,13 @@ Now scroll down and make these changes:
  1) In the search box, type**graphics settings** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/graphics-settings.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2) Toggle**on** Hardware-accelerated GPU scheduling. Then select**Desktop app** from the drop-down. Then click on the**Browse** button.  
   
@@ -298,6 +298,19 @@ Locate the game’s installation folder on Steam:
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/options.png)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  6) Choose**High performance** and click**Save** .  
   
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/high-performance-1.png)
@@ -320,13 +333,6 @@ Locate the game’s installation folder on Steam:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/10/Fortect-start-repair-1200x742.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When the process is complete, restart your PC.
 
 ---
@@ -348,24 +354,24 @@ When the process is complete, restart your PC.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-do-evaluation-blogs-get-payments-for-products-in-2024/"><u>[New] Do Evaluation Blogs Get Payments for Products, In 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-prime-filters-for-smooth-streaming-sessions/"><u>[New] Prime Filters for Smooth Streaming Sessions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-tap-into-audience-desires-strategies-for-video-templates/"><u>[New] Tap Into Audience Desires Strategies for Video Templates</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-backtrack-with-flair-ingenious-ways-to-watch-youtube-reverse/"><u>[Updated] Backtrack with Flair Ingenious Ways to Watch Youtube Reverse</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-direct-the-degrees-cutting-edge-youtube-video-manipulation/"><u>[Updated] Direct the Degrees Cutting-Edge YouTube Video Manipulation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-dynamic-lighting-elevating-video-aesthetics/"><u>[Updated] Dynamic Lighting Elevating Video Aesthetics</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-elite-tint-modifier-app/"><u>[Updated] Elite Tint Modifier App</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhance-tv-screens-with-automatic-loops-of-youtube/"><u>[Updated] Enhance TV Screens With Automatic Loops of YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhance-your-ads-eco-appeal-with-subscriptions/"><u>[Updated] Enhance Your Ad's Eco Appeal with Subscriptions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/closing-with-panache-free-youtubes-1-six-for-2024/"><u>Closing with Panache Free YouTube's #1 Six for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exclusive-sneak-peek-new-features-of-windows-11-creators-version-insider-preview-build-1503/"><u>Exclusive Sneak Peek: New Features of Windows 11 Creator’s Version, Insider Preview Build 1503</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/explore-the-most-effective-zoom-screen-recorders/"><u>Explore the Most Effective Zoom Screen Recorders</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-creative-characters-turning-your-pics-into-pop-culture-icons/"><u>In 2024, Creative Characters Turning Your Pics Into Pop Culture Icons</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>In 2024, Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-13-mini-drfone-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-your-rhythm-assembling-tailored-youtube-playlists-for-the-digital-age-webmobile/"><u>In 2024, Discover Your Rhythm Assembling Tailored YouTube Playlists for the Digital Age (Web/Mobile)</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-14-pro-max-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone 14 Pro Max to other iPhone without iCloud | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/pc-companion-resolving-fallout-4-glitches/"><u>PC Companion: Resolving Fallout 4 Glitches</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-guide-to-earning-through-streams-dm-and-yo-unveiled/"><u>The Guide to Earning Through Streams Dm & Yo Unveiled</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-high-fidelity-game-recording-tools/"><u>[New] 2024 Approved High Fidelity Game Recording Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-cadence-captors-embrace-free-online-tempo-apps/"><u>[New] Cadence Captors – Embrace Free Online Tempo Apps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-instant-messaging-guide-start-a-skype-group-talk/"><u>[New] In 2024, Instant Messaging Guide Start a Skype Group Talk</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-tech-tools-for-distance-podcasting/"><u>[Updated] 2024 Approved Tech Tools for Distance Podcasting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[Updated] A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-captivate-audiences-unveiling-secrets-for-striking-youtube-banners/"><u>[Updated] Captivate Audiences Unveiling Secrets for Striking YouTube Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-choreographing-newscast-endings/"><u>[Updated] Choreographing Newscast Endings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-a-path-to-profit-calculating-video-view-requirements/"><u>2024 Approved Charting a Path to Profit Calculating Video View Requirements</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/customize-with-confidence-google-pixel-tunes/"><u>Customize with Confidence Google Pixel Tunes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciphering-cyber-threats-the-appeal-of-targeting-chatgpt-usernames-for-hackers/"><u>Deciphering Cyber Threats: The Appeal of Targeting ChatGPT Usernames for Hackers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/does-the-sub4sub-strategy-improve-content-consumption-for-2024/"><u>Does the Sub4Sub Strategy Improve Content Consumption for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/double-trouble-replaying-youtube-videos-on-your-set-for-2024/"><u>Double Trouble Replaying YouTube Videos on Your Set for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/guia-paso-a-paso-clonacion-gratuita-de-unidades-externas-mediante-software-para-windows/"><u>Guía Paso a Paso: Clonación Gratuita De Unidades Externas Mediante Software Para Windows</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/humor-hits-the-best-funny-youtube-short-ideas-on-the-block/"><u>Humor Hits The Best Funny YouTube Short Ideas on the Block</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-achieve-unprecedented-image-quality-via-av1-on-youtube/"><u>In 2024, Achieve Unprecedented Image Quality via AV1 on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/proven-methods-for-diagnosing-and-restoring-audio-functionality-in-toshiba-laptops/"><u>Proven Methods for Diagnosing and Restoring Audio Functionality in Toshiba Laptops</u></a></li>
+<li><a href="https://win-great.techidaily.com/top-techniques-for-efficiently-shrinking-m4v-files-a-guide/"><u>Top Techniques for Efficiently Shrinking M4V Files: A Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubes-best-10-cutting-edge-reaction-ideas/"><u>YouTube's Best 10 Cutting-Edge Reaction Ideas</u></a></li>
 </ul></div>
 

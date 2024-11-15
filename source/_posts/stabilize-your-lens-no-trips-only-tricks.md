@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-11-01T05:35:07.393Z
-updated: 2024-11-05T02:06:10.350Z
+date: 2024-11-08T21:45:46.634Z
+updated: 2024-11-14T16:37:56.317Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -58,25 +58,33 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -94,13 +102,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -132,13 +133,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -154,21 +148,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-achieving-content-balance-a-thorough-exploration-of-yt-aspect-ratios/"><u>[New] Achieving Content Balance A Thorough Exploration of YT Aspect Ratios</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-end-your-videos-professionally-with-these-free-tools-top-6/"><u>[New] End Your Videos Professionally with These Free Tools (Top 6)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-essentials-of-stylistic-self-discovery-high-impact/"><u>[New] The Essentials of Stylistic Self-Discovery [High Impact]</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unlock-quick-filming-techniques-your-5-best-home-hacks-list/"><u>[New] Unlock Quick Filming Techniques – Your 5 Best Home Hacks List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-right-to-appeal-steps-following-abrupt-video-content-suspension/"><u>[Updated] 2024 Approved The Right to Appeal Steps Following Abrupt Video Content Suspension</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-checklist-for-youtube-rule-adherence/"><u>2024 Approved The Ultimate Checklist for YouTube Rule Adherence</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/discover-the-best-legal-platforms-with-over-10-tv-show-episodes-enjoy-unlimited-viewing-at-no-cost/"><u>Discover the Best Legal Platforms with Over 10 TV Show Episodes, Enjoy Unlimited Viewing at No Cost!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/essential-12-pc-clicker-games-to-elevate-gameplay-for-2024/"><u>Essential 12 PC Clicker Games to Elevate Gameplay for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/find-the-greatest-free-video-viewing-apps-on-windows-11-top-picks-leaderboard/"><u>Find the Greatest FREE Video Viewing Apps on Windows 11 - Top Picks [Leaderboard]</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-bend-reality-with-your-own-animated-craftsmanship/"><u>In 2024, Bend Reality with Your Own Animated Craftsmanship</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-comparative-content-crusade-analyzing-your-videos-against-others/"><u>In 2024, Comparative Content Crusade Analyzing Your Videos Against Others'</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/innovative-youtube-channel-names-for-the-next-gen-vloggers-and-film-makers-keep-it-under-or-at-156-characters/"><u>Innovative YouTube Channel Names for the Next Gen Vloggers and Film Makers (Keep It Under or at 156 Characters)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-yt-analytics-counting-eyeballs-and-cash/"><u>Mastering YT Analytics Counting Eyeballs & Cash</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-raw-footage-into-youtube-gold-via-sony-vegas/"><u>Transforming Raw Footage Into YouTube Gold via Sony Vegas</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/e-success-crafting-unforgettable-music-reaction-content-for-2024/"><u>YoTube Success Crafting Unforgettable Music Reaction Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-buzzing-beats-leading-music-distortion-apps/"><u>[New] Buzzing Beats Leading Music Distortion Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-video-content-for-a-fanbase-boom/"><u>[Updated] Elevating Your Video Content for a Fanbase Boom</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-capture-your-macs-screen-a-step-by-step-walkthrough/"><u>[Updated] In 2024, Capture Your Mac's Screen A Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-snapchat-enhancing-images-and-videos/"><u>2024 Approved Mastering Snapchat Enhancing Images & Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pulse-of-production-syncing-sound-in-w11-environments/"><u>2024 Approved Pulse of Production Syncing Sound in W11 Environments</u></a></li>
+<li><a href="https://win11.techidaily.com/efficiency-at-its-peak-streamlined-grouped-software-installs-with-winstall-on-windows-11/"><u>Efficiency at Its Peak: Streamlined Grouped Software Installs with Winstall on Windows 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-excel-2013-files-document-electronically-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i sign a Excel 2013 files document electronically</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-disrupted-beats-best-mobile-music-distortors/"><u>In 2024, Disrupted Beats Best Mobile Music Distortors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-effortlessly-replay-videos-on-iphone/"><u>In 2024, Effortlessly Replay Videos on iPhone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-transform-your-listening-experience-into-a-learning-adventure-with-podcasts/"><u>In 2024, Transform Your Listening Experience Into a Learning Adventure (With Podcasts)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/leading-learners-the-teachers-guide-to-visual-pedagogy/"><u>Leading Learners The Teacher's Guide to Visual Pedagogy</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/quantum-hdr-explained-the-ultimate-resource-for-2024/"><u>Quantum HDR Explained The Ultimate Resource for 2024</u></a></li>
 </ul></div>
 
