@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-07T23:36:02.956Z
-updated: 2024-11-15T00:22:54.769Z
+date: 2024-11-17T19:46:06.389Z
+updated: 2024-11-24T20:46:32.473Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,10 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,19 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-game-soundscapes-transformed-a-ps4ps5-journey-for-2024/"><u>[New] Game Soundscapes Transformed A PS4/PS5 Journey for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-method-for-onoff-windows-11-hdr-feature/"><u>[Updated] 2024 Approved Method for On/Off Windows 11 HDR Feature</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-brighter-days-with-five-winter-themed-backgrounds/"><u>[Updated] Brighter Days with Five Winter-Themed Backgrounds</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-discover-the-world-of-screen-capture-with-apowersofts-free-version-for-2024/"><u>[Updated] Discover the World of Screen Capture with Apowersoft's Free Version for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-understanding-film-a-beginners-guide-to-essential-shots/"><u>[Updated] Understanding Film A Beginner's Guide to Essential Shots</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-best-practices-navigating-through-top-9-free-logo-creators/"><u>2024 Approved Decoding Best Practices Navigating Through Top 9 Free Logo Creators</u></a></li>
-<li><a href="https://extra-information.techidaily.com/budget-friendly-tips-for-acquiring-high-end-gopros/"><u>Budget-Friendly Tips for Acquiring High-End GoPros</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-classic-cinematography-step-by-step-guide/"><u>Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discover-the-top-10-historically-rich-youtube-tutorials/"><u>Discover the Top 10 Historically Rich YouTube Tutorials</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On Apple iPhone 15 Plus?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/in-depth-look-at-metaquest-3-anticipated-release-dates-cost-analysis-and-hardware-specs-revealed/"><u>In-Depth Look at MetaQuest 3: Anticipated Release Dates, Cost Analysis, and Hardware Specs Revealed</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/m4raiff-by-movavi/"><u>M4R形式に自由に変換!無料AIFFコンバーター by Movavi</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/profitable-video-content-starting-and-scaling-up/"><u>Profitable Video Content Starting and Scaling Up</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-photographic-presentation-prowess-frame-tech/"><u>[Updated] 2024 Approved Photographic Presentation Prowess Frame Tech</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-copycatting-charisma-making-ingenious-parodies/"><u>2024 Approved Copycatting Charisma Making Ingenious Parodies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-the-cord-on-costs-select-best-free-yt-title-makers-for-2024/"><u>Cutting the Cord on Costs - Select Best-Free YT Title Makers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deciphering-youtubes-shorts-funding-mechanism-for-2024/"><u>Deciphering YouTube's Shorts Funding Mechanism for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/download-the-powerful-hevc-codec-at-no-cost-for-ultra-hd-video-support/"><u>Download the Powerful HEVC Codec at No Cost for Ultra HD Video Support</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/enabling-extra-protection-a-guide-to-turning-on-gmails-2fa/"><u>Enabling Extra Protection: A Guide to Turning On Gmail's 2FA</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/fbs-viral-anthems-list-crafting-your-number-one-song/"><u>FB's Viral Anthems List Crafting Your Number One Song</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-v27-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo V27 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-integrating-audio-elements-within-mixed-media-videos-for-2024/"><u>New Integrating Audio Elements Within Mixed Media Videos for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/scan-and-savor-innovative-edible-qr-codes-made-with-3d-printing/"><u>Scan & Savor: Innovative Edible QR Codes Made with 3D Printing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-f15-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy F15 5G Device</u></a></li>
 </ul></div>
 

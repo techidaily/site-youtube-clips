@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-11-09T13:10:28.099Z
-updated: 2024-11-15T10:51:27.036Z
+date: 2024-11-23T16:33:20.869Z
+updated: 2024-11-24T23:01:14.758Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -54,10 +58,7 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
@@ -80,6 +81,10 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### _Do: Include Your Channel Name_
 
 While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
@@ -100,13 +105,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -118,13 +116,6 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -146,20 +137,21 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -176,20 +168,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-insiders-guide-to-mastering-igtv/"><u>[New] 2024 Approved The Insider's Guide to Mastering IGTV</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-the-cord-on-costs-select-best-free-yt-title-makers/"><u>[New] Cutting the Cord on Costs - Select Best-Free YT Title Makers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-marketing-game-free-50-youtube-adornments-here/"><u>[New] Elevate Your Marketing Game - Free 50 YouTube Adornments Here</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-amplify-videographic-excellence-choose-from-these-7-audios/"><u>[Updated] Amplify Videographic Excellence - Choose From These 7 Audios</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-asmr-youtube-channels-you-should-know/"><u>[Updated] Best ASMR YouTube Channels You Should Know</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-a-captivated-audience-in-3-steps/"><u>[Updated] Crafting a Captivated Audience in 3 Steps</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-essential-guide-to-mac-based-lecture-recording/"><u>[Updated] In 2024, The Essential Guide to Mac-Based Lecture Recording</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-hot-30-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix Hot 30 5G</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/complete-tutorial-to-correct-videodxgkrnlcritical-errors-in-windows-environments/"><u>Complete Tutorial to Correct Video_Dxgkrnl_Critical Errors in Windows Environments</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-solo-adventures-top-single-player-games-perfect-for-sharing-with-friends/"><u>Enjoy Solo Adventures: Top Single-Player Games Perfect for Sharing with Friends</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-motorola-moto-g34-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Motorola Moto G34 5G Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-poco-f5-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Poco F5 Pro 5G Phone?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/shot-selection-mastery-making-every-frame-count-on-youtube/"><u>Shot Selection Mastery Making Every Frame Count on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/xperts-guide-to-360-video-conversion-and-youtube-sharing/"><u>The Expert's Guide to 360 Video Conversion and YouTube Sharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/troubleshooting-tips-eliminate-stutter-and-lag-in-fall-guys-pc-version/"><u>Troubleshooting Tips: Eliminate Stutter and Lag in Fall Guys PC Version</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-no-wi-fi-no-problem-discover-top-gaming-apps-for-android/"><u>[New] 2024 Approved No Wi-Fi, No Problem! Discover Top Gaming Apps for Android</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-become-a-gif-expert-in-snapchat-today/"><u>[New] Become a GIF Expert in Snapchat Today</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-achieve-flawless-live-videos-with-strategic-obs-utilization-for-2024/"><u>[Updated] Achieve Flawless Live Videos with Strategic OBS Utilization for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-personality-complimentary-youtube-graphics/"><u>2024 Approved Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-engaging-youtube-summaries-with-tailored-templates/"><u>2024 Approved Engaging YouTube Summaries with Tailored Templates</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/crafting-seamless-visuals-with-instagrams-chroma-key/"><u>Crafting Seamless Visuals with Instagram's Chroma Key</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube-for-2024/"><u>Easy Transition From Local to Global Stream Spotify Playlists on YouTube for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/free-online-conversion-tools-transform-your-jpeg-images-without-fee/"><u>Free Online Conversion Tools - Transform Your JPEG Images without Fee</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mobile-virtual-realms-the-best-10-headsets-ranking/"><u>Mobile Virtual Realms The Best 10 Headsets Ranking</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-3-safe-strategies-for-converting-youtube-videos-into-mp3-files/"><u>Top 3 Safe Strategies for Converting YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-videography-101-editing-essentials-taught/"><u>YouTube Videography 101 Editing Essentials Taught</u></a></li>
 </ul></div>
 

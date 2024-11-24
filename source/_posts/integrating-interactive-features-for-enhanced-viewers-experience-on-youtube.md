@@ -1,7 +1,7 @@
 ---
 title: "Integrating Interactive Features for Enhanced Viewers' Experience on Youtube"
-date: 2024-11-03T06:36:29.250Z
-updated: 2024-11-05T04:07:05.771Z
+date: 2024-11-17T23:02:29.700Z
+updated: 2024-11-24T22:44:22.869Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -65,19 +73,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,29 +93,13 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -153,19 +140,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -181,24 +155,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-building-dynamic-youtube-music-chains/"><u>[New] 2024 Approved Building Dynamic YouTube Music Chains</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-advanced-techniques-in-post-uploaded-youtube-content-enhancement/"><u>[New] Advanced Techniques in Post-Uploaded YouTube Content Enhancement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/urate-your-learning-best-15-science-yt-experts-for-2024/"><u>[New] Curate Your Learning Best 15 Science YT Experts for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-get-cheap-quality-gopro-cameras-today/"><u>[New] How to Get Cheap, Quality GoPro Cameras Today</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unsealing-the-secret-permanently-ditch-youtube-shorts/"><u>[New] In 2024, Unsealing the Secret Permanently Ditch YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-video-communities-eclipsing-youtube/"><u>[Updated] Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-content-quality-with-advanced-video-editing/"><u>[Updated] Enhancing Content Quality with Advanced Video Editing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-sky-high-selfies-and-beyond-an-insightful-analysis-of-dji-spark/"><u>[Updated] Sky High Selfies and Beyond An Insightful Analysis of DJI Spark</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-assessing-tseries-financial-outcomes-from-youtube-presence/"><u>2024 Approved Assessing TSeries’ Financial Outcomes From YouTube Presence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-customize-your-youtube-view-adjust-speed-settings/"><u>2024 Approved Customize Your YouTube View Adjust Speed Settings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videography-7-free-sound-effects-collection/"><u>2024 Approved Elevate Your Videography - 7 Free Sound Effects Collection</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/accelerate-yt-growth-strategies-for-1kplus-subscribers/"><u>Accelerate YT Growth Strategies for 1K+ Subscribers</u></a></li>
-<li><a href="https://games-able.techidaily.com/are-customizable-rgb-keyboards-justified-for-players/"><u>Are Customizable RGB Keyboards Justified for Players?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elite-gamers-showcase-premium-setups-unveiled/"><u>Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/geforce-experience-wont-open-issue-solved/"><u>GeForce Experience Won't Open Issue [Solved]</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-channels-monetization-status-at-a-glance/"><u>In 2024, Analyzing Channels Monetization Status at a Glance</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/score-unbeatable-prime-day-bargains-get-your-samsung-frame-tv-at-40-off-shop-now-for-top-deals/"><u>Score Unbeatable Prime Day Bargains: Get Your Samsung Frame TV at 40% Off - Shop Now for Top Deals!</u></a></li>
-<li><a href="https://win11.techidaily.com/shifting-focus-to-file-explorer-with-onedrive-connection/"><u>Shifting Focus to File Explorer with OneDrive Connection</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-installation-and-optimization-of-logitech-mx-master-docking-station/"><u>Step-by-Step Installation and Optimization of Logitech MX Master Docking Station</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-prominence-mastery-a-comprehensive-youtube-guide/"><u>[New] Channel Prominence Mastery A Comprehensive YouTube Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-consistent-viewing-automatic-youtube-video-playback-on-tv/"><u>[New] Consistent Viewing Automatic YouTube Video Playback on TV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-step-by-step-srt-to-xmlssattml-mastery-guide/"><u>[New] In 2024, Step-by-Step SRT to XML/SSA/TTML Mastery Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-video-showdown-determining-the-best-among-obs-and-twitch-hubs/"><u>[Updated] In 2024, Video Showdown Determining the Best Among OBS and Twitch Hubs</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2669985-9781515407416-aradia/"><u>Aradia | Free Book</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/behind-the-scenes-how-much-creators-earn-from-youtube-shorts-for-2024/"><u>Behind the Scenes How Much Creators Earn From YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decoding-chroma-techniques-from-raw-footage-to-final-cut/"><u>Decoding Chroma Techniques From Raw Footage to Final Cut</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/explore-10-premier-historical-youtube-networks/"><u>Explore 10 Premier Historical Youtube Networks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-vivo-y36i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-gionee-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Gionee</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-scouting-for-starred-youtube-conversations/"><u>In 2024, Scouting for Starred YouTube Conversations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-gear-for-youtube-beginners-essential-tech-guide/"><u>Top Gear for YouTube Beginners Essential Tech Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/understanding-virtual-realitys-basic-words/"><u>Understanding Virtual Reality's Basic Words</u></a></li>
+<li><a href="https://driver-download.techidaily.com/unlock-maximum-performance-download-steelseries-engine-software-optimized-for-windows-11/"><u>Unlock Maximum Performance - Download SteelSeries Engine Software, Optimized for Windows 11</u></a></li>
 </ul></div>
 

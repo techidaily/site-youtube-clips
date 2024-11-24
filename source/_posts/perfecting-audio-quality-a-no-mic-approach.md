@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-11-14T06:48:59.516Z
-updated: 2024-11-15T02:34:19.329Z
+date: 2024-11-20T21:30:46.060Z
+updated: 2024-11-24T21:39:34.563Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,7 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -69,10 +66,7 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
@@ -93,13 +87,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -107,13 +94,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -123,13 +103,25 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,20 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-building-authority-in-education-10-tips-for-youtube-channel-creation/"><u>[New] Building Authority in Education 10 Tips for YouTube Channel Creation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-capture-stillness-on-the-go-without-tripods/"><u>[New] Capture Stillness on the Go without Tripods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-charming-calls-verify-if-vocal-alteration-apps-are-real-then-find-others-for-2024/"><u>[New] Charming Calls Verify if Vocal Alteration Apps Are Real, Then Find Others for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comprehensive-guide-to-youtubes-subscription-advantages/"><u>[Updated] Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-and-easy-collage-mastery-for-instant-sharing/"><u>2024 Approved Quick and Easy Collage Mastery for Instant Sharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/culinary-carousel-swirling-up-top-food-network-names-for-2024/"><u>Culinary Carousel Swirling Up Top Food Network Names for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cut-down-clutter-how-to-efficiently-handle-unwanted-youtube-content-pcmobile-for-2024/"><u>Cut Down Clutter How to Efficiently Handle Unwanted YouTube Content (PC/Mobile) for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/cutting-out-visuals-from-video-to-still-images-in-windows-10/"><u>Cutting Out Visuals From Video to Still Images in Windows 10</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diagnosing-and-correcting-the-audio-device-graph-isolation-flaw-leading-to-high-cpu-use-on-pcs-with-windows-os/"><u>Diagnosing and Correcting the Audio Device Graph Isolation Flaw Leading to High CPU Use on PCs with Windows OS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-screen-recording-software-list-for-vloggers-for-2024/"><u>Essential Screen Recording Software List for Vloggers for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/expert-advice-overcoming-persistent-game-crashes-in-dota-2/"><u>Expert Advice: Overcoming Persistent Game Crashes in Dota 2</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-movement-a-look-at-intova-x/"><u>In 2024, Mastering Movement A Look at Intova X</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-visual-appeal-youtube-images-in-presentations/"><u>2024 Approved Enhancing Visual Appeal YouTube Images in Presentations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlocking-kinemasters-fullscreen-magic/"><u>2024 Approved Unlocking KineMaster's Fullscreen Magic</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/conquering-export-errors-for-srt-in-premiere-pro-for-2024/"><u>Conquering Export Errors for SRT in Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/vating-the-culture-of-creativity-within-youtube-shorts/"><u>Cultivating the Culture of Creativity Within YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-game-with-immediate-skilled-valorant-thumbnails-for-2024/"><u>Elevate Your Game with Immediate, Skilled Valorant Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/exploring-youtubes-operations-after-video-upload/"><u>Exploring YouTube's Operations After Video Upload</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/free-online-conversion-change-webm-files-into-wma-format-with-easywebmover/"><u>Free Online Conversion: Change WebM Files Into WMA Format with EasyWebMover</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>In 2024, Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-creating-stunning-youtube-openings-best-tools-list/"><u>In 2024, Creating Stunning YouTube Openings - Best Tools List</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-download-free-mcb-logo-templates/"><u>In 2024, Download Free MCB Logo Templates</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-realme-12plus-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Realme 12+ 5G Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-honor-90-gt-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Honor 90 GT Device</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-hash-list-boosting-youtube-views-to-6000plus/"><u>The Ultimate Hash List Boosting Youtube Views to $6,000+</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/time-warp-in-media-youtube-content-upside-down-for-2024/"><u>Time Warp in Media YouTube Content Upside Down for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-what-to-do-if-apple-refuses-your-payment-card/"><u>Troubleshooting Tips: What To Do If Apple Refuses Your Payment Card</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-selecting-top-notch-free-srt-translators-online-for-2024/"><u>Ultimate Guide Selecting Top-Notch Free SRT Translators Online for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-traction-techniques-for-million-sub-attainment/"><u>Youtube Traction Techniques for Million-Sub Attainment</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Dodging Account Penaltinas on Youtube"
-date: 2024-11-01T19:46:21.048Z
-updated: 2024-11-05T00:45:46.739Z
+date: 2024-11-21T21:21:28.323Z
+updated: 2024-11-24T16:14:19.760Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Copyright Strikes
 
 You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
@@ -57,10 +61,7 @@ Deleting your video, especially if you do so without contacting the rights holde
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Wrongful Copyright Strikes
@@ -84,16 +85,7 @@ To reverse a copyright strike where you believe your video should be protected a
 If your account has been suspended for accumulating multiple strikes, you will no longer be able to access the online counter-notification form and will have to send a free-form counter-notification. [Information on that can be found here](https://support.google.com/youtube/answer/6005919).
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Community Guidelines Strikes
@@ -111,10 +103,7 @@ Community Guidelines strikes expire after three months. As long as you only have
  Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Create Original Videos with Excellent Video Editor
@@ -124,10 +113,7 @@ Community Guidelines strikes expire after three months. As long as you only have
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,16 +131,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>[New] A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-diving-deep-into-instagrams-new-features/"><u>[Updated] In 2024, Diving Deep Into Instagram's New Features</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-profitability-on-youtube-average-view-count-for-success/"><u>2024 Approved Achieving Profitability on YouTube Average View Count for Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-the-payment-structure-on-youtube/"><u>2024 Approved Decoding the Payment Structure on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-change-youtube-video-playback-speed-desktopmobile/"><u>2024 Approved How to Change YouTube Video Playback Speed [Desktop/Mobile]</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/engaging-subjects-for-consistent-vlogging/"><u>Engaging Subjects for Consistent Vlogging</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-v29-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo V29 Without PUK Codes</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/repairing-video-stream-errors-h264-methods/"><u>Repairing Video Stream Errors: H.264 Methods</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamline-windows-11-with-android-powered-webcams/"><u>Streamline Windows 11 with Android-Powered Webcams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-2023-shift-in-facebooks-video-presentation-style/"><u>The 2023 Shift in Facebook’s Video Presentation Style</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/virtual-horizons-ranking-top-vr-gaming-titles/"><u>Virtual Horizons Ranking Top VR Gaming Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-crafting-timeless-videos-with-historical-flair/"><u>[New] Crafting Timeless Videos with Historical Flair</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-premier-portals-to-retro-playstation-gaming-on-your-desktop/"><u>[New] In 2024, Premier Portals to Retro PlayStation Gaming on Your Desktop</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-youtube-monetization-does-youtube-pay-monthly/"><u>[New] YouTube Monetization Does YouTube Pay Monthly?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-everything-uncovered-about-the-world-of-yt-shorts/"><u>[Updated] Everything Uncovered About the World of YT Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-the-secrets-to-outro-mastery-free-tutorials-1-6/"><u>[Updated] In 2024, Unlocking the Secrets to Outro Mastery (FREE Tutorials 1-6)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unleash-your-inner-artist-the-ultimate-gif-toolkit-for-memes/"><u>[Updated] Unleash Your Inner Artist The Ultimate GIF Toolkit for Memes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-bonds-before-buying-subscription-strategies-for-2024/"><u>Building Bonds Before Buying Subscription Strategies for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/capture-clarity-best-webcams-to-elevate-your-podcasts-for-2024/"><u>Capture Clarity Best Webcams to Elevate Your Podcasts for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-z-fold-5-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy Z Fold 5 Pattern Lock Screen</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-best-low-cost-drones-the-minute-leaders-reviewed/"><u>In 2024, Best Low-Cost Drones The Minute Leaders Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-charting-the-course-for-youtube-music-uploads/"><u>In 2024, Charting the Course for YouTube Music Uploads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discovering-the-potential-apple-devices-on-your-youtube-channel/"><u>In 2024, Discovering the Potential Apple Devices on Your YouTube Channel</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/premier-robotic-companions-online-for-2024/"><u>Premier Robotic Companions Online for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/prime-methods-for-youtube-content-into-mpeg-for-2024/"><u>Prime Methods for YouTube Content Into MPEG for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/virtually-profitable-gaming-channels/"><u>Virtually Profitable Gaming Channels</u></a></li>
 </ul></div>
 

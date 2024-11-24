@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Final Viewers' Interactions on YT"
-date: 2024-11-10T16:17:16.228Z
-updated: 2024-11-15T12:27:45.133Z
+date: 2024-11-22T20:07:33.429Z
+updated: 2024-11-24T22:20:47.628Z
 tags:
   - ai video
   - ai youtube
@@ -32,9 +32,17 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Use Youtube End Screen
 
@@ -65,10 +73,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Click “create” button. Select the timeline. In the end, apply.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The types of YouTube cards
@@ -79,10 +84,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4 Tips for Using YouTube Cards
@@ -95,13 +97,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
@@ -109,10 +104,7 @@ Now, that you are aware how to add YouTube end screen to your video, make use of
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,22 +122,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-1st-place-video-saver-download-anywhere-anytime/"><u>[New] 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-boost-your-channels-top-5-youtube-tricks-for-increased-visibility/"><u>[New] 2024 Approved Boost Your Channels Top 5 YouTube Tricks for Increased Visibility</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-boost-your-youtube-earnings-with-effective-adsense-use/"><u>[New] Boost Your YouTube Earnings with Effective AdSense Use</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-progression-reach-and-maintain-10k-viewer-threshold/"><u>[New] Channel Progression Reach and Maintain 10K Viewer Threshold</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-video-transfer-youtube-to-dailymotion-conversion/"><u>[New] In 2024, Mastering Video Transfer YouTube to Dailymotion Conversion</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[Updated] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-endless-entertainment-loop-youtube-videos-for-continuous-tv-viewing/"><u>[Updated] Endless Entertainment Loop YouTube Videos for Continuous TV Viewing</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-harnessing-the-power-of-movie-maker-an-animators-best-friend-for-2024/"><u>[Updated] Harnessing the Power of Movie Maker An Animator’s Best Friend for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-mastering-chroma-key-techniques-for-professional-videos/"><u>[Updated] Mastering Chroma Key Techniques for Professional Videos</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-pixelpie-slicer/"><u>2024 Approved PixelPie Slicer</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-honor-100-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-insightful-guide-to-utilizing-adobe-cloud-plus-non-adobe-strategies/"><u>In 2024, Insightful Guide to Utilizing Adobe Cloud + Non-Adobe Strategies</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-windows-11-clean-installation-with-revo-uninstaller-pro-version-4-techniques/"><u>Mastering Windows 11 Clean Installation with Revo Uninstaller Pro Version 4 Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prime-audio-solutions-for-creators/"><u>Prime Audio Solutions for Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/rallying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>Rallying Towards Partnership Reach the Critical 10K View Target Quickly</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-no-ping-issue-a-step-by-step-guide-to-rectifying-halo-infinite-errors/"><u>Solving the 'No Ping' Issue: A Step-by-Step Guide to Rectifying Halo Infinite Errors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>Streamline Video Analytics A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-collection-sites-for-quick-access-to-youtube-vids/"><u>[Updated] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-path-to-youtube-stardom-3-strategies-for-captivating-reaction-videos-for-2024/"><u>[Updated] Your Path to YouTube Stardom 3 Strategies for Captivating Reaction Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-5-headsets-a-youtube-gamers-guide/"><u>Best 5 Headsets A YouTube Gamer's Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-tips-on-inserting-captions-into-youtube-videos/"><u>Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/frosty-feats-celebrating-the-beijing-olympics-2022/"><u>Frosty Feats Celebrating the Beijing Olympics, 2022</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-effortlessly-engage-with-windows-11-service-tools/"><u>How to Effortlessly Engage with Windows 11 Service Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-set-up-a-no-cost-on-device-chatgpt-clone-for-windows-systems/"><u>How to Set Up a No-Cost, On-Device ChatGPT Clone for Windows Systems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>In 2024, Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-your-youtube-with-partner-videos/"><u>In 2024, Boosting Your YouTube with Partner Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/innovative-photography-with-insights-into-lut-use/"><u>Innovative Photography with Insights Into LUT Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lightweight-space-saving-moko-multi-device-bluetooth-keyboard/"><u>Lightweight, Space-Saving MoKo Multi-Device Bluetooth Keyboard</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfect-visual-experience-on-youtube-with-professional-techniques/"><u>Perfect Visual Experience on YouTube with Professional Techniques</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-xr-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone XR | Stellar</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/toms-authoritative-guide-to-modern-computing-and-hardware/"><u>Tom's Authoritative Guide to Modern Computing and Hardware</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-viewers-into-loyalists-with-essential-youtube-tips/"><u>Transforming Viewers Into Loyalists with Essential YouTube Tips</u></a></li>
 </ul></div>
 

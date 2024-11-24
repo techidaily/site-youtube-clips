@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Youtuber Convention Guide (Post-VidCon)\""
-date: 2024-11-09T09:30:43.934Z
-updated: 2024-11-15T05:55:30.921Z
+date: 2024-11-23T22:01:09.196Z
+updated: 2024-11-24T16:28:36.698Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -51,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -150,6 +158,10 @@ Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
 **Passes:**
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -227,24 +247,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[New] Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-notebooks-excellent-in-media-post-production/"><u>[New] Essential Notebooks Excellent in Media Post-Production</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-achieving-peak-picture-performance-without-dollars/"><u>2024 Approved Achieving Peak Picture Performance, Without Dollars</u></a></li>
-<li><a href="https://fox-http.techidaily.com/digital-alteration-hacks-tweaking-tiktok-numbers-for-2024/"><u>Digital Alteration Hacks Tweaking TikTok Numbers for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-vivo-y100a-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>In 2024, Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-earn-on-youtube-beginners-path-to-profitability/"><u>In 2024, Earn on YouTube Beginner's Path to Profitability</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G13? | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-issue-how-to-restart-an-unresponsive-amd-catalyst-control-panel/"><u>Solving the Issue: How to Restart an Unresponsive AMD Catalyst Control Panel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-urban-ecosystem-fostering-resilience-through-green-policies/"><u>The Urban Ecosystem Fostering Resilience Through Green Policies</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/wie-man-ein-betriebssystem-erfolgreich-von-einer-alten-ssd-auf-eine-neue-ssd-ubersetzt-windows-7-8-10-11/"><u>Wie Man Ein Betriebssystem Erfolgreich Von Einer Alten SSD Auf Eine Neue SSD Übersetzt - Windows 7, 8, 10, 11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] Creating a Multimedia Guide Adding Videos to Text Articles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-free-pass-to-premium-video-editing-tools/"><u>[Updated] In 2024, The Free Pass to Premium Video Editing Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-visionary-viewing-10-high-res-screens-for-2024/"><u>[Updated] Visionary Viewing #10 High-Res Screens for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-pixlr-15-essential-tips-for-enhanced-editing/"><u>2024 Approved Mastering Pixlr 15 Essential Tips for Enhanced Editing</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-sync-contacts-from-apple-iphone-6s-plus-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Sync Contacts from Apple iPhone 6s Plus to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/baldurs-gate-3-launch-glitches-sorted-out-embark-on-the-quest-today/"><u>Baldur's Gate 3 Launch Glitches Sorted Out - Embark on the Quest Today!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/effortless-transition-from-spotify-to-youtube-find-the-best-apps/"><u>Effortless Transition From Spotify to YouTube Find the Best Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-channels-youtubes-partner-program/"><u>Elevate Your Channels - YouTube's Partner Program</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-xiaomi-redmi-k70e-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Xiaomi Redmi K70E Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/one-click-humor-your-guide-to-the-ifunny-meme-app/"><u>One Click Humor Your Guide to the iFunny Meme App</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-iphone-imessage-disconnection-issues-step-by-step-guide/"><u>Resolving iPhone iMessage Disconnection Issues: Step-by-Step Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

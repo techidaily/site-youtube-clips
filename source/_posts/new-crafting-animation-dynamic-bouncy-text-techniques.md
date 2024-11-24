@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Animation  Dynamic, Bouncy Text Techniques\""
-date: 2024-11-01T19:25:39.020Z
-updated: 2024-11-05T01:48:39.704Z
+date: 2024-11-21T20:12:44.663Z
+updated: 2024-11-24T20:00:10.667Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -52,6 +56,10 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
@@ -62,6 +70,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -71,16 +83,7 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -96,10 +99,7 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -128,13 +128,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -148,13 +141,6 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -171,20 +157,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-filmopedia-answer-to-inquiries/"><u>[New] FilmoPedia Answer to Inquiries</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-essentialists-guide-to-iphone-sound-recording/"><u>[New] The Essentialist's Guide to iPhone Sound Recording</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-asus-proart-pa-329q-evaluation-the-highest-quality-in-4k-professional-displays/"><u>[Updated] 2024 Approved Asus ProArt PA 329Q Evaluation – The Highest Quality in 4K Professional Displays</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-tips-for-choosing-fpv-drone-blades-for-2024/"><u>[Updated] Essential Tips for Choosing FPV Drone Blades for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-boosting-engagement-youtube-strategies-for-increased-viewership/"><u>2024 Approved Boosting Engagement YouTube Strategies for Increased Viewership</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-every-creators-guide-to-youtube-revenue/"><u>2024 Approved Every Creator's Guide to YouTube Revenue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/disrupt-unbidden-youtube-content-feeds-for-2024/"><u>Disrupt Unbidden YouTube Content Feeds for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-filters-to-feeds-optimizing-your-360-video-for-youtube-publishing/"><u>From Filters to Feeds Optimizing Your 360 Video for YouTube Publishing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-deletion-methods-for-youtubes-backlogged-video-collection/"><u>In 2024, Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-platform-debate-which-appliance-prevails-podcast-or-youtube/"><u>In 2024, The Platform Debate Which Appliance Prevails – Podcast or YouTube?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/preview-techniques-for-websites-a-comprehensive-checklist/"><u>Preview Techniques for Websites: A Comprehensive Checklist</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/seamless-video-conferencing-with-zoom-and-gmail/"><u>Seamless Video Conferencing with Zoom & Gmail</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ultimate-routine-personalize-your-youtube-shorts-image-credits/"><u>Ultimate Routine Personalize Your YouTube Shorts Image Credits</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/hiest-webcast-wonders/"><u>Wealthiest Webcast Wonders</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-creator-studio-unlocking-the-power-of-your-channel/"><u>YouTube Creator Studio Unlocking the Power of Your Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-daily-dose-of-anime-joy-youtube-channel-rankings-new-list-2023/"><u>[New] Daily Dose of Anime Joy YouTube Channel Rankings, New List 2023</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-top-sites-for-downloading-desired-youtube-ringtones/"><u>[Updated] Top Sites for Downloading Desired YouTube Ringtones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/an-easy-to-follow-guide-adding-youtube-playlists-to-your-online-platform/"><u>An Easy-to-Follow Guide Adding YouTube Playlists to Your Online Platform</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/deep-dive-sonys-s6700-updates-review/"><u>Deep Dive Sony's S6700 Updates Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-youtube-videos-for-superior-quality-for-2024/"><u>Enhancing YouTube Videos for Superior Quality for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/football-film-breakdown-premier-insights-on-youtube/"><u>Football Film Breakdown Premier Insights on YouTube</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-the-persistent-lagging-and-crashing-issues-in-warframe/"><u>How to Fix the Persistent Lagging and Crashing Issues in Warframe</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dive-into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>In 2024, Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-frame-rate-issues-in-fallout-76-expert-advice-for-a-smoother-experience/"><u>Resolving Frame Rate Issues in Fallout 76: Expert Advice for a Smoother Experience</u></a></li>
+<li><a href="https://driver-error.techidaily.com/the-evolution-and-functionality-of-usb-composite-devices-a-comprehensive-guide/"><u>The Evolution and Functionality of USB Composite Devices: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-facetune-review-transform-your-image-quality/"><u>Ultimate Facetune Review Transform Your Image Quality</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/understanding-the-basics-a-comprehensive-guide-to-gif-images/"><u>Understanding the Basics: A Comprehensive Guide to GIF Images</u></a></li>
 </ul></div>
 

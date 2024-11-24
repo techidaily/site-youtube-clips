@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-11-13T08:49:28.265Z
-updated: 2024-11-15T07:47:05.035Z
+date: 2024-11-23T22:19:08.789Z
+updated: 2024-11-24T19:58:54.305Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -69,25 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-resource-for-creating-professional-impactful-videodumps/"><u>[New] 2024 Approved The Ultimate Resource for Creating Professional, Impactful Videodumps</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-5-dreamy-winter-scenes-as-youtube-backdrops/"><u>[New] 5 Dreamy Winter Scenes as YouTube Backdrops</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/arnings-epicenter-tech-gaming-on-youtube/"><u>[New] Earnings Epicenter Tech Gaming on YouTube</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-gif-mastery-on-your-desktop/"><u>[Updated] 2024 Approved Twitter Gif Mastery on Your Desktop</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-dominate-youtube-with-these-strategic-freefire-video-hashtags/"><u>[Updated] Dominate YouTube with These Strategic FreeFire Video Hashtags</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-quick-and-simple-thumbs-up-for-your-youtube-shorts/"><u>[Updated] Quick & Simple Thumbs Up for Your YouTube Shorts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-tailoring-your-linkedin-url/"><u>[Updated] Tailoring Your LinkedIn URL</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-proficient-strategies-for-hyperlink-integration-into-tiktok-profiles/"><u>2024 Approved Proficient Strategies for Hyperlink Integration Into TikTok Profiles</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-how-to-make-a-cool-youtube-video-intro-in-imovie-step-by-step/"><u>In 2024, How to Make a Cool YouTube Video Intro in iMovie (Step-by-Step)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mcb-template-pack-download-now/"><u>MCB Template Pack Download Now</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-the-prime-youtube-post-hours/"><u>Unlocking the Prime YouTube Post Hours</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-easily-cut-large-videos-faster-on-mac/"><u>Updated Easily Cut Large Videos Faster on Mac</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-method-quick-erasure-of-youtube-comments/"><u>[New] Cutting-Edge Method Quick Erasure of Youtube Comments</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-does-the-sub4sub-strategy-improve-content-consumption/"><u>[Updated] Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-optimized-approach-to-delete-unwanted-youtube-posts/"><u>[Updated] Optimized Approach to Delete Unwanted YouTube Posts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2023s-definitive-guide-to-perfecting-your-youtube-videos-understanding-size-specifications-and-dimensions/"><u>2023'S Definitive Guide to Perfecting Your YouTube Videos: Understanding Size Specifications and Dimensions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-driving-income-from-views-on-youtube/"><u>2024 Approved Driving Income From Views on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-video-decks-smart-description-templates/"><u>2024 Approved Elevate Video Decks Smart Description Templates</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-top-5-low-cost-solar-panels-powering-your-tech/"><u>2024 Approved Top 5 Low-Cost Solar Panels Powering Your Tech</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-income-101-from-ideas-to-earnings-in-action/"><u>2024 Approved YouTube Income 101 From Ideas to Earnings in Action</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/experience-high-definition-like-never-before-hitachis-ultra-hd-televisions-with-roku-built-in/"><u>Experience High Definition Like Never Before – Hitachi's Ultra HD Televisions with Roku Built-In</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-all-you-need-to-know-about-the-youtube-shorts-fund/"><u>In 2024, All You Need to Know About the YouTube Shorts Fund</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-deciphering-past-visual-content-inverse-queries-and-fb-techniques/"><u>In 2024, Deciphering Past Visual Content Inverse Queries and FB Techniques</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-video-speed-expert-tips-for-faster-render-and-upload/"><u>Skyrocket Your Video Speed Expert Tips for Faster Render & Upload</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unleashing-intelligence-at-home-how-home-assistant-elevates-smart-living/"><u>Unleashing Intelligence at Home: How Home Assistant Elevates Smart Living</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

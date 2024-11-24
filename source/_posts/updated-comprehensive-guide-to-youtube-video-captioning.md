@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Comprehensive Guide to YouTube Video Captioning"
-date: 2024-11-13T10:38:49.917Z
-updated: 2024-11-15T00:08:09.137Z
+date: 2024-11-20T21:59:30.741Z
+updated: 2024-11-24T16:18:40.765Z
 tags:
   - ai video
   - ai youtube
@@ -28,11 +28,19 @@ By captioning your YouTube videos you help to make them accessible to more poten
 
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
 
@@ -41,10 +49,7 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
@@ -72,10 +77,7 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -93,14 +95,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-6-free-youtube-outros-for-aspiring-filmmakers/"><u>[Updated] 6 FREE YouTube Outros for Aspiring Filmmakers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boost-video-quality-on-youtube-the-essential-webcams-guide/"><u>[Updated] Boost Video Quality on YouTube - The Essential Webcams Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-calculating-youtubes-adsense-gains-per-thousand-viewer-income/"><u>[Updated] Calculating Youtube's AdSense Gains Per Thousand Viewer Income</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-video-posting-pathway-for-twitter-and-tumblr-users/"><u>[Updated] In 2024, Video Posting Pathway for Twitter & Tumblr Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-collaboration-techniques-in-video-making-viewership-up/"><u>In 2024, Collaboration Techniques in Video Making, Viewership Up</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-xiaomi-14-ultra-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Xiaomi 14 Ultra to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/taming-erratic-errors-from-wins-protection-suite/"><u>Taming Erratic Errors From WINS Protection Suite</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-affordable-android-tablet-options-beyond-tcl-and-samsung-in-depth-review-on-zdnet/"><u>Top Affordable Android Tablet Options Beyond TCL and Samsung - In-Depth Review on ZDNet</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-decrypting-the-mystery-understanding-unlisted-content-on-youtube/"><u>[New] 2024 Approved Decrypting the Mystery Understanding 'Unlisted' Content on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-elite-systems-unveiled-the-best-of-the-bunch-for-2024/"><u>[New] Elite Systems Unveiled - The Best of the Bunch for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhance-youtube-video-speed-fast-render-and-upload-techniques/"><u>[New] Enhance YouTube Video Speed - Fast Render and Upload Techniques</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-giggle-geniuses-selecting-superior-memery-apps/"><u>[Updated] Giggle Geniuses Selecting Superior Memery Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>2024 Approved Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-income-smart-strategies-for-profit-from-youtube-mobile-content-for-2024/"><u>Boosting Income Smart Strategies for Profit From YouTube Mobile Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-size/"><u>Building Size</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-from-apple-iphone-13-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock From Apple iPhone 13 - 4 Easy Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-professionalism-the-best-practices-for-post-upload-editing/"><u>Crafting Professionalism The Best Practices for Post-Upload Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-quickly-resolve-outriders-continuous-crash-issues/"><u>How to Quickly Resolve Outriders Continuous Crash Issues</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ideal-top-7-video-apps-for-apple-devices/"><u>Ideal Top 7 Video Apps for Apple Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-breakout-8-channel-visionaries-amplifying-impact/"><u>In 2024, Breakout 8 Channel Visionaries Amplifying Impact</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immersive-health-experiences-enhanced-care/"><u>In 2024, Immersive Health Experiences, Enhanced Care</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-cancer-therapy-top-tier-clinic-boosts-efficiency-and-care-quality-with-abbyy-idp-integration/"><u>Revolutionizing Cancer Therapy: Top-Tier Clinic Boosts Efficiency and Care Quality with ABBYY IDP Integration</u></a></li>
 </ul></div>
 

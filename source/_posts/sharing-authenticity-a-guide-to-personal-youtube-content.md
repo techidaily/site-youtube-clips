@@ -1,7 +1,7 @@
 ---
 title: "\"Sharing Authenticity  A Guide to Personal YouTube Content\""
-date: 2024-11-12T05:38:12.512Z
-updated: 2024-11-15T06:03:03.090Z
+date: 2024-11-18T22:29:08.755Z
+updated: 2024-11-24T16:30:11.958Z
 tags:
   - ai video
   - ai youtube
@@ -46,15 +46,16 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
 
@@ -68,31 +69,29 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -105,13 +104,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -130,24 +122,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-exemplars-crafting-multimedia-narratives-with-images-and-melody/"><u>[New] 2024 Approved Exemplars Crafting Multimedia Narratives with Images & Melody</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-amplify-your-video-reach-with-these-key-seo-insights-1-11/"><u>[New] Amplify Your Video Reach with These Key SEO Insights (1-11)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-quality-videos-a-guide-to-apple-device-screen-recording/"><u>[New] Crafting Quality Videos A Guide to Apple Device Screen Recording</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-harness-the-power-of-post-production-top-11-techniques-for-vibrant-colors-for-2024/"><u>[New] Harness the Power of Post-Production Top 11 Techniques for Vibrant Colors for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-video-upload-your-guide-to-igtv/"><u>[Updated] In 2024, Mastering Video Upload Your Guide to IGTV</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-5-innovative-strategies-for-crafting-youtube-titles-and-tags/"><u>2024 Approved 5 Innovative Strategies for Crafting YouTube Titles & Tags</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-the-craft-of-background-image-acquisition/"><u>2024 Approved Mastering the Craft of Background Image Acquisition</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/achieving-profitability-at-half-a-million-viewers/"><u>Achieving Profitability at Half a Million Viewers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-tips-sharing-your-apple-devices-screen-with-youtube/"><u>Essential Tips Sharing Your Apple Devices Screen with YouTube</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/evaluating-the-longevity-of-electric-car-batteries-vs-gas-engine-life-spans/"><u>Evaluating the Longevity of Electric Car Batteries Vs. Gas Engine Life Spans</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/hits-at-hyperspeed-the-fast-track-to-100-million-views-on-youtube-in-24/"><u>Hits at Hyperspeed The Fast Track to 100 Million Views on YouTube in '24</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-x50i-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X50i Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/o-balance-youtube-with-a-full-time-job/"><u>How to Balance YouTube with a Full-Time Job</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-efficient-techniques-ios-screenshots-and-youtube-content-creation/"><u>In 2024, Efficient Techniques IOS Screenshots and YouTube Content Creation</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Vivo Y28 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Realme GT 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722998397781-red-dead-redemption-2-loading-problems-heres-how-to-get-unstuck/"><u>Red Dead Redemption 2 Loading Problems? Here's How to Get Unstuck</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/reverse-video-magic-online-step-by-step-guides/"><u>Reverse Video Magic Online Step-by-Step Guides</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-no-8-visionary-photomontage-creator-app/"><u>[New] The No. 8 Visionary Photomontage Creator App</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-transform-your-ideas-into-impactful-podcast-content-writing-tips-and-samples-for-2024/"><u>[New] Transform Your Ideas Into Impactful Podcast Content Writing Tips & Samples for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-visual-voyage-through-youtubes-2017-data-deluge/"><u>[Updated] A Visual Voyage Through Youtube's 2017 Data Deluge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-youtube-sound-ripper-collection-top-17-extractors-revealed-for-2024/"><u>[Updated] Free YouTube Sound Ripper Collection Top 17 Extractors Revealed for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>2024 Approved Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-alternatives-to-blockbuster-flicks-for-2024/"><u>Best Alternatives to Blockbuster Flicks for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/carryminati-financial-triumphs-with-ajey-nagar-for-2024/"><u>CarryMinati Financial Triumphs with Ajey Nagar for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-edit-like-a-championtop-strategies-for-beginner-youtubers/"><u>In 2024, Edit Like a Champion—Top Strategies for Beginner YouTubers</u></a></li>
+<li><a href="https://article-files.techidaily.com/making-your-mark-in-the-podcast-world-with-xml-mastery-for-2024/"><u>Making Your Mark in the Podcast World with XML Mastery for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mp3-broadcasting-toolkit-convert-upload-and-stream-youtube/"><u>MP3 Broadcasting Toolkit Convert, Upload & Stream YouTube</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-charting-the-best-affordable-virtual-studio-technology-enhancers-for-todays-producers/"><u>New 2024 Approved Charting the Best Affordable Virtual Studio Technology Enhancers for Todays Producers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-path-to-podcast-success-through-seo-excellence-for-2024/"><u>The Ultimate Path to Podcast Success Through SEO Excellence for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2024-11-13T11:13:50.041Z
-updated: 2024-11-14T16:39:09.918Z
+date: 2024-11-18T21:37:30.829Z
+updated: 2024-11-24T17:20:33.209Z
 tags:
   - ai video
   - ai youtube
@@ -47,23 +47,32 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
@@ -92,13 +101,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -106,10 +108,7 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -117,13 +116,6 @@ These are the tips to keep in mind when considering how to write a script for a 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -142,15 +134,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-seek-out-stimulating-youtube-snippets/"><u>[New] 2024 Approved Seek Out Stimulating YouTube Snippets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-commanding-youtube-realm-through-strategic-creator-studio-utilization/"><u>[New] Commanding YouTube Realm Through Strategic Creator Studio Utilization</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-prime-traffic-magnet-design/"><u>[New] In 2024, Prime Traffic Magnet Design</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-make-a-thumbnail-for-your-youtube-free-easily-in-2024/"><u>[Updated] How to Make a Thumbnail for Your YouTube Free Easily, In 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-formula-to-fame-elevating-subscriber-numbers-on-youtube/"><u>[Updated] The Formula to Fame Elevating Subscriber Numbers on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>In 2024, Earning on YouTube A Step-by-Step Guide for Newbies</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-streamline-youtube-sounds-to-mp3-using-mac/"><u>In 2024, Streamline YouTube Sounds to MP3 Using Mac</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/saving-parts-of-youtube-a-comprehensive-tutorial/"><u>Saving Parts of YouTube A Comprehensive Tutorial</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unleash-your-channels-premium-cost-free-intro-makers/"><u>Unleash Your Channels Premium, Cost-Free Intro Makers</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-google-pixel-8-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Google Pixel 8? Here is How | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-growth-in-30-minutes-viral-hashtag-insights/"><u>[New] Channel Growth in 30 Minutes Viral Hashtag Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-projects-with-enhancements/"><u>[New] Elevating Your YouTube Projects with Enhancements</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-creators-revolutionizing-virtual-environments/"><u>[New] Top Creators Revolutionizing Virtual Environments</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-leading-selection-no-cost-outstanding-lut-links/"><u>[Updated] 2024 Approved The Leading Selection No-Cost, Outstanding LUT Links</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-by-step-strategy-for-quick-removal-on-youtube/"><u>[Updated] In 2024, Step-by-Step Strategy for Quick Removal on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-income-through-effective-video-marketing/"><u>2024 Approved Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-increase-engagement-must-try-youtube-seo-tools/"><u>2024 Approved Increase Engagement Must-Try YouTube SEO Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/guide-to-safeguard-and-share-your-chatgpt-interactions/"><u>Guide to Safeguard and Share Your ChatGPT Interactions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-direct-encouraging-content-for-daily-living-vids/"><u>How to Direct Encouraging Content for Daily Living Vids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-budgetary-skynetting-massively-saving-cloud-data-costs/"><u>In 2024, Budgetary SkyNetting Massively Saving Cloud Data Costs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-for-macos-sierras-system-return-to-el-capitan/"><u>Step-by-Step for MacOS Sierra's System Return to El Capitan</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-samsung-galaxy-m14-4g-by-fonelab-android-recover-music/"><u>The way to get back lost music from Samsung Galaxy M14 4G</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleash-your-inner-vfx-guru-with-diy-techniques/"><u>Unleash Your Inner VFX Guru with DIY Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-lava-blaze-curve-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Lava Blaze Curve 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubes-updated-monetization-playbook/"><u>YouTube's Updated Monetization Playbook</u></a></li>
 </ul></div>
 

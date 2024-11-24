@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate YouTube Editor's Handbook  A Step-by-Step Journey\""
-date: 2024-11-08T03:37:54.955Z
-updated: 2024-11-14T19:08:02.891Z
+date: 2024-11-17T21:25:36.664Z
+updated: 2024-11-24T21:51:33.629Z
 tags:
   - ai video
   - ai youtube
@@ -51,14 +51,11 @@ Below is a video tutorial about how to add text and titles to video in Filmora, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-For more information on intros, check out our post on [How to Make a YouTube Intro?](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+For more information on intros, check out our post on [How to Make a YouTube Intro?](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### Part 2: Cuts
 
@@ -81,10 +78,7 @@ In the same vlog that Jake Paul gets chased down by his brother (above), twenty-
 ![Talladega Nights](https://media.giphy.com/media/3o7aTBRWaXiqticjBu/giphy.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 3: Transform
@@ -103,6 +97,10 @@ Camera shake is a video effect that makes the original clip appear like it was f
 
 A lot of comedy YouTubers change the color and levels of their videos in order to emphasize different moods. One common thing YouTubers do when they talk about anything slightly sad is to gradually fade out the colors in their talking head shots. In a cheesy way, the black and white look can emphasize a feeling of emptiness. For his “sad” reactions, PewDiePie often jump cuts into a black and white, slowed down clip of his sad face while playing some sad music in the background. To emphasize a darker message, some YouTubers increase the amount of shadows in their video. In the video below, while his daughter is delivering a darker message from 0:32 to 0:50, La Guardia Cross gradually adds more shadows around his daughter’s face through what appears to be a vignette effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Part 4: Transitions
 
 #### 1. Wipe
@@ -112,6 +110,10 @@ Many YouTubers transition from one scene into the next using a wipe transition. 
 #### 2. Zoom
 
 The zoom transition is quite similar to the wipe transition, except it uses a zoom effect. Many of the top YouTubers combine this transition with a lower-pitched “woosh” sound effect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 5: Visual Elements
 
@@ -134,13 +136,6 @@ A lot of cameras now come with a timelapse/hyperlapse function, requiring no fur
 Slowing down footage is another way YouTubers like to manipulate the passage of time. This technique can draw the audience’s attention into the intricacies of a movement captured on film. But if you stretch your video clip digitally in order to achieve this look, your video may not look so smooth – your software will need to create extra frames of footage based on your existing footage. The solution around this problem is to make sure to record your video at a very high frame rate.
 
 **![Slow Motion](https://media.giphy.com/media/hEZfnQRnS4eBO/giphy.gif)**
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 7: Audio
 
@@ -177,10 +172,7 @@ For those who want to make their YouTube videos better, I recommend Wondershare 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -198,14 +190,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-notetaking-for-mobile-photographers/"><u>[New] Innovative Notetaking for Mobile Photographers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-novices-pathway-to-writing-youtube-video-plans-for-2024/"><u>A Novice's Pathway to Writing YouTube Video Plans for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-online-privacy-youtubes-access-controls/"><u>Enhancing Online Privacy YouTube's Access Controls</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/essential-checklist-key-points-prior-to-acquiring-secondhand-ipad-devices/"><u>Essential Checklist: Key Points Prior to Acquiring Secondhand iPad Devices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/immersive-storytelling-journey-our-top-8-selections-for-2024/"><u>Immersive Storytelling Journey – Our Top 8 Selections for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-htc-u23-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your HTC U23 Screen | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/is-there-any-danger-in-employing-subforsub-for-youtube-popularity/"><u>Is There Any Danger in Employing Subforsub for YouTube Popularity?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/spark-interest-the-art-of-youtube-intros-in-imovie/"><u>Spark Interest The Art of YouTube Intros in iMovie</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-solving-elden-rings-multiplayer-connectivity-problems/"><u>Troubleshooting Guide: Solving Elden Ring's Multiplayer Connectivity Problems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videos-youtube-trailers-through-filmora/"><u>2024 Approved Elevate Your Videos YouTube Trailers Through Filmora</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-expert-guide-to-video-to-audio-10-best-tools-reviewed/"><u>2024 Approved Expert Guide to Video-to-Audio #10 Best Tools Reviewed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-tecno-pop-8-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Tecno Pop 8 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audience-appeal-the-ultimate-guide-to-youtube-video-formats/"><u>Audience Appeal The Ultimate Guide to YouTube Video Formats</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-on-iphone-13-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data on iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>In 2024, Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-nokia-c12-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Nokia C12 Pro FRP Bypass</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-backward-button-chronicles-youtubes-video-reversal/"><u>The Backward Button Chronicles YouTube's Video Reversal</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-monetization-matrix-how-maker-gains-from-shorter-videos/"><u>The Monetization Matrix How Maker Gains From Shorter Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-tecno-phantom-v-flip-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Tecno Phantom V Flip Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-guide-to-no-ad-android-video-tools/"><u>Ultimate Guide to No-Ad Android Video Tools</u></a></li>
 </ul></div>
 

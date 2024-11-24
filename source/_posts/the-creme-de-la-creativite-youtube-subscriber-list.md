@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2024-11-02T23:30:35.284Z
-updated: 2024-11-05T02:19:03.915Z
+date: 2024-11-18T18:57:08.859Z
+updated: 2024-11-24T17:10:35.517Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
@@ -59,10 +63,7 @@ YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in G
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  2\.  HolaSoyGerman
@@ -78,26 +79,20 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -109,6 +104,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -116,13 +115,6 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
  For tips on becoming YouTube famous like the creators above, [click here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
@@ -145,24 +137,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-effortless-media-migration-how-to-send-fb-movies-via-whatsapp/"><u>[New] In 2024, Effortless Media Migration How To Send FB Movies via WhatsApp</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-wallet-friendly-high-definition-equipment/"><u>[New] Wallet-Friendly High-Definition Equipment</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-collection-sites-for-quick-access-to-youtube-vids/"><u>[Updated] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mass-movement-mastery-the-drone-top-list/"><u>[Updated] Mass Movement Mastery The Drone Top List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-cheat-sheet-for-seamlessly-looping-videos-on-youtube/"><u>[Updated] Your Ultimate Cheat Sheet for Seamlessly Looping Videos on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/best-5-headsets-a-youtube-gamers-guide/"><u>Best 5 Headsets A YouTube Gamer's Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/delight-in-facebooks-forgotten-meme-kingdoms/"><u>Delight in Facebook's Forgotten Meme Kingdoms</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discover-the-power-of-10-second-beats-in-youtube-music/"><u>Discover the Power of 10-Second Beats in YouTube Music</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-gt-neo-5-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme GT Neo 5 Device SIM</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/expert-tips-on-inserting-captions-into-youtube-videos/"><u>Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-for-tales-of-arise-game-crash-issues-solutions-explored/"><u>Fixes for 'Tales of Arise' Game Crash Issues: Solutions Explored</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>In 2024, Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-ascending-the-podium-in-drone-racing-plus-essential-fpv-brands/"><u>In 2024, Ascending the Podium in Drone Racing + Essential FPV Brands</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-your-youtube-with-partner-videos/"><u>In 2024, Boosting Your YouTube with Partner Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-erase-the-obvious-techniques-for-masked-youtube-content/"><u>In 2024, Erase the Obvious Techniques for Masked YouTube Content</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-professional-looking-gopro-videos-without-shakiness/"><u>In 2024, Professional-Looking GoPro Videos without Shakiness</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/perfect-visual-experience-on-youtube-with-professional-techniques/"><u>Perfect Visual Experience on YouTube with Professional Techniques</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210196832-9781631596865-the-divination-handbook/"><u>The Divination Handbook | Free Book</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-viewers-into-loyalists-with-essential-youtube-tips/"><u>Transforming Viewers Into Loyalists with Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-all-about-youtube-micro-videos/"><u>[New] All About YouTube Micro Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-step-by-step-guide-how-to-watch-social-media-videos-on-your-apple-tv/"><u>[New] Step by Step Guide How to Watch Social Media Videos on Your Apple TV</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-ultimate-guide-to-zero-price-virtual-gatherings/"><u>[New] The Ultimate Guide to Zero-Price Virtual Gatherings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-turning-fans-into-followers-friends-and-profits/"><u>[Updated] 2024 Approved Turning Fans Into Followers, Friends, and Profits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-fresh-take-on-frigidity-crafting-inviting-backdrops/"><u>[Updated] A Fresh Take on Frigidity Crafting Inviting Backdrops</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-revel-in-every-box-with-these-strategies-for-2024/"><u>[Updated] Revel in Every Box with These Strategies for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-your-step-by-step-approach-to-youtube-copyright-mastery/"><u>[Updated] Your Step-by-Step Approach to YouTube Copyright Mastery</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-directly-embedding-google-meet-in-youtubes-video-library/"><u>2024 Approved Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ted-focus-youtubes-easy-ways-for-smoother-borders/"><u>Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/improving-audio-clarity-with-tvos-18-on-apple-tv-features-to-elevate-your-viewing-experience/"><u>Improving Audio Clarity with tvOS 18 on Apple TV - Features to Elevate Your Viewing Experience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-duration-decoded-a-guide-to-editing-youtube-videos/"><u>In 2024, Duration Decoded A Guide to Editing YouTube Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-into-sound-design-crafting-and-integrating-whatsapp-ringtone-on-devices/"><u>In 2024, Step Into Sound Design Crafting and Integrating WhatsApp Ringtone on Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-engagement-optimal-video-formats-guide/"><u>Mastering YouTube Engagement Optimal Video Formats Guide</u></a></li>
 </ul></div>
 

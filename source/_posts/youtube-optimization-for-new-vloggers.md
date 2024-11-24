@@ -1,7 +1,7 @@
 ---
 title: "YouTube Optimization for New Vloggers"
-date: 2024-11-14T06:22:31.951Z
-updated: 2024-11-14T22:34:02.254Z
+date: 2024-11-17T16:12:13.879Z
+updated: 2024-11-24T17:05:07.152Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Nothing complicated. No paid programs or expensive apps needed. We are going bac
 Ready?
 
 Let’s Go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -83,6 +87,10 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -200,13 +208,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -215,18 +216,15 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -235,6 +233,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -261,22 +263,12 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -293,19 +285,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-constructing-attention-grabbing-trailers-for-youtube/"><u>[New] Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[New] Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unleash-your-contents-potential-for-1m-views-on-youtube/"><u>[New] Unleash Your Content's Potential for 1M Views on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-broadview-networks-navigating-mcn-choices/"><u>[Updated] Broadview Networks Navigating MCN Choices</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-snapspectacular-high-quality-windowsmac-screenshots/"><u>[Updated] SnapSpectacular High-Quality Windows/Mac Screenshots</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-writers-toolkit-dialogue-and-narration-techniques-for-success-for-2024/"><u>[Updated] The Writer's Toolkit Dialogue and Narration Techniques for Success for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quelling-video-quirks-in-photobooths/"><u>2024 Approved Quelling Video Quirks in Photobooths</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/achieving-pristine-video-quality-on-youtube/"><u>Achieving Pristine Video Quality on YouTube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/curious-inquiry-from-an-apple-vision-pro-rep-measuring-matrimonial-affection-in-tech-sales-conversations-zdnet-insights/"><u>Curious Inquiry From an Apple Vision Pro Rep: Measuring Matrimonial Affection in Tech Sales Conversations | ZDNET Insights</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boost-engagement-on-youtube-by-adding-emojis/"><u>In 2024, Boost Engagement on YouTube by Adding Emojis</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-days-for-launching-a-podcast/"><u>In 2024, Ideal Days for Launching a Podcast</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-complete-guide-to-compliant-twitter-videos/"><u>In 2024, The Complete Guide to Compliant Twitter Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-the-art-of-crisp-photos-troubleshooting-techniques-for-iphone-focus-failures/"><u>Mastering the Art of Crisp Photos: Troubleshooting Techniques for iPhone Focus Failures</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcoming-common-issues-reactivating-a-non-operational-roku-display-unit/"><u>Overcoming Common Issues: Reactivating a Non-Operational Roku Display Unit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-bend-reality-with-your-own-animated-craftsmanship/"><u>[New] Bend Reality with Your Own Animated Craftsmanship</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-elevate-your-playthroughs-secrets-of-ps3-video-capture/"><u>[New] In 2024, Elevate Your Playthroughs Secrets of PS3 Video Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-affordable-methods-for-video-and-text-synergy/"><u>[Updated] Affordable Methods for Video and Text Synergy</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-earnings-expedition-navigating-your-way-to-wealth-with-youtube-mobile-content/"><u>2024 Approved Earnings Expedition Navigating Your Way to Wealth with YouTube Mobile Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-freefire-hashtags-to-skyrocket-video-views-on-youtube/"><u>2024 Approved Essential FreeFire Hashtags to Skyrocket Video Views on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mememolding-cutter/"><u>2024 Approved MemeMolding Cutter</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-keyword-optimization-in-podcast-seo/"><u>2024 Approved Navigating Keyword Optimization in Podcast SEO</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-sony-xperia-1-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audience-market-leaders-in-youtubes-short-clips-downloads-for-2024/"><u>Audience’ Market Leaders in YouTube's Short Clips Downloads for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-engagement-imovie-techniques-for-youtube-intros-for-2024/"><u>Enhancing Engagement IMovie Techniques for YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube-for-2024/"><u>Enjoy a Stream of Nine Complete Christmas Capsules on YouTube for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-infinix-smart-7-hd-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Infinix Smart 7 HD Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-avoiding-invisibility-strategies-for-effective-use-of-youtubes-featured-channels/"><u>In 2024, Avoiding Invisibility Strategies for Effective Use of Youtube's Featured Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-conveniently-connect-with-others-via-your-playlist/"><u>In 2024, Conveniently Connect with Others via Your Playlist</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-digital-consumption-practical-ways-to-monitor-your-internet-data-usage/"><u>Mastering Digital Consumption: Practical Ways to Monitor Your Internet Data Usage</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>New How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/obs-mac-integration-step-by-step-installation-walkthrough/"><u>OBS Mac Integration Step-by-Step Installation Walkthrough</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-art-of-podcast-blurbs-techniques-and-illustrations/"><u>The Art of Podcast Blurbs Techniques and Illustrations</u></a></li>
 </ul></div>
 

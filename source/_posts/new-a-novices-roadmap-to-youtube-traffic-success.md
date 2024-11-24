@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Roadmap to YouTube Traffic Success"
-date: 2024-11-08T03:08:10.629Z
-updated: 2024-11-15T00:55:39.627Z
+date: 2024-11-21T20:20:55.237Z
+updated: 2024-11-24T16:45:24.479Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Nothing complicated. No paid programs or expensive apps needed. We are going bac
 Ready?
 
 Let’s Go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -83,6 +87,10 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -190,13 +198,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -206,13 +207,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -227,6 +221,10 @@ Want to know more thumbnail maker? Check our picks of the [best free YouTube thu
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -261,10 +259,7 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -272,10 +267,7 @@ Do you have any questions about SEO? Please leave us a comment below.
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -293,21 +285,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-12-most-excellent-cost-free-video-apps-for-modern-devices/"><u>[New] 2024 Approved Top 12 Most Excellent, Cost-Free Video Apps For Modern Devices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unearthing-timeless-treasures-a-classic-lit-exploration/"><u>[New] 2024 Approved Unearthing Timeless Treasures A Classic Lit Exploration</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-kingdom-the-path-to-youtube-mastery/"><u>[New] Crafting Kingdom The Path to YouTube Mastery</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enter-the-world-of-online-promotion-exclusive-free-youtube-banner-access/"><u>[New] Enter the World of Online Promotion Exclusive Free YouTube Banner Access</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-epicurean-eminence-best-online-chefs-and-cooks/"><u>[New] Epicurean Eminence Best Online Chefs & Cooks</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-art-of-iphone-framing-finding-the-best-camera-positions/"><u>[New] In 2024, The Art of iPhone Framing Finding the Best Camera Positions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-effective-teacher-videos-on-youtube-top-10-strategies/"><u>[Updated] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-discovering-potential-youtubes-role-in-modern-education-strategies/"><u>[Updated] Discovering Potential YouTube's Role in Modern Education Strategies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/1715860153477-a-stepwise-approach-for-creating-an-interactive-skype-conversation-among-users-from-multiple-operating-systems-for-2024/"><u>A Stepwise Approach for Creating an Interactive Skype Conversation Among Users From Multiple Operating Systems. For 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-7-plusipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone 7 Plus/iPad/iPod</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/growth-strategies-for-youtube-videos-6-effortless-approaches-for-2024/"><u>Growth Strategies for YouTube Videos 6 Effortless Approaches for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-leading-websites-for-extracting-youtube-intros/"><u>In 2024, Leading Websites for Extracting YouTube Intros</u></a></li>
-<li><a href="https://extra-support.techidaily.com/photographic-pastime-iphone-x-retro-clicks-for-2024/"><u>Photographic Pastime IPhone X Retro Clicks for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-charging-up-your-video-empire/"><u>The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-elites-creator-conclave/"><u>YouTube Elites Creator Conclave</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-codes-of-conduct-for-the-yt-community/"><u>[New] Comprehensive Codes of Conduct for the Yt Community</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-film-color-correction-with-luts/"><u>[New] Mastering Film Color Correction with Luts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sony-xperia-xz-premium-an-odyssey-into-ultra-hd-phones/"><u>[New] Sony Xperia XZ Premium An Odyssey Into Ultra HD Phones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-flashstoppage-instant-video-quit-guide-for-2024/"><u>[Updated] FlashStoppage Instant Video Quit Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered-for-2024/"><u>Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy-for-2024/"><u>Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-streaming-experience-six-insightful-quizzes-for-fandom-enthusiasts-for-2024/"><u>Elevate Your Streaming Experience Six Insightful Quizzes for Fandom Enthusiasts for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-v29e-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo V29e for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-magic-vs-2-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Magic Vs 2</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-spark-10-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Spark 10 Pro FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-v2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic V2 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/investigating-the-economics-of-t-series-on-youtube/"><u>Investigating the Economics of T-Series on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimize-your-video-library-youtubes-to-dailymotion-directly/"><u>Optimize Your Video Library YouTubes to Dailymotion Directly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/subscribersilence-yearning-for-chatgpt-reopening/"><u>SubscriberSilence: Yearning for ChatGPT Reopening</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-9-premium-wedding-films-online-youtube-and-vimeo/"><u>Top 9 Premium Wedding Films Online Youtube & Vimeo</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid-for-2024/"><u>Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/vinyl-virtuoso-access-to-premium-dj-video-samples/"><u>Vinyl Virtuoso Access to Premium DJ Video Samples</u></a></li>
+<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-13t-pro-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my 13T Pro?</u></a></li>
 </ul></div>
 
