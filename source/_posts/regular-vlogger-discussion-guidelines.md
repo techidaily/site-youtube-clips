@@ -1,7 +1,7 @@
 ---
 title: "Regular Vlogger Discussion Guidelines"
-date: 2024-11-19T16:51:17.503Z
-updated: 2024-11-24T19:30:45.668Z
+date: 2024-11-26T17:20:49.070Z
+updated: 2024-12-04T01:26:24.912Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -55,11 +51,19 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -72,7 +76,7 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -92,7 +96,7 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -104,7 +108,7 @@ You could also just flick the camera on and tell the full story of your day like
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -112,10 +116,6 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,20 +132,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[New] Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-techniques-mastering-youtube-subtitlecc-additions/"><u>[New] Cutting-Edge Techniques Mastering YouTube Subtitle/CC Additions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-tech-for-new-channel-launches/"><u>[New] Essential Tech for New Channel Launches</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-evasion-techniques-for-breaking-free-from-shadowban/"><u>[New] Evasion Techniques for Breaking Free From Shadowban</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-elevate-your-video-calling-game-with-skype-and-obs/"><u>[New] In 2024, Elevate Your Video Calling Game with Skype & OBS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-visual-mastery-crop-and-edit-videos-like-pros/"><u>[New] Instagram Visual Mastery Crop and Edit Videos Like Pros</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-youtube-income-using-studio-anywhere-anyhow-for-2024/"><u>[Updated] Boosting YouTube Income Using Studio Anywhere, Anyhow for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-iphone-photo-techniques-mastering-leading-lines/"><u>[Updated] In 2024, IPhone Photo Techniques Mastering Leading Lines</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-your-shorts-appeal-with-personalized-thumbnails/"><u>2024 Approved Enhance Your Shorts' Appeal with Personalized Thumbnails</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-for-fixing-a-broken-fire-stick-remote-a-comprehensive-guide/"><u>Expert Tips for Fixing a Broken Fire Stick Remote – A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/fanbase-titans-the-10-most-subscribed-youtube-creators/"><u>Fanbase Titans The 10 Most Subscribed YouTube Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-optimize-your-youtube-shorts-templates-effectively/"><u>How to Optimize Your YouTube Shorts Templates Effectively</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-depth-look-at-youtubes-earnings-cycle/"><u>In-Depth Look at YouTube’s Earnings Cycle</u></a></li>
-<li><a href="https://fox-links.techidaily.com/incorporating-speech-recognition-into-slides-for-2024/"><u>Incorporating Speech Recognition Into Slides for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-advanced-streaming-equipment-for-broadcasters/"><u>[New] Advanced Streaming Equipment for Broadcasters</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-youtube-presence-with-ideal-video-formats/"><u>[New] Elevating Your YouTube Presence with Ideal Video Formats</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-anon-mastery-pcandroidios-edition/"><u>[New] Instagram Anon Mastery PC/Android/iOS Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-budget-friendly-webinar-strategies-for-youtube/"><u>[Updated] 2024 Approved Budget-Friendly Webinar Strategies for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cultivating-a-unique-vibe-in-your-own-mukbang-content/"><u>[Updated] Cultivating a Unique Vibe in Your Own Mukbang Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-online-audio-accessibility-ideal-tools-for-iphone-and-youtube/"><u>[Updated] Effortless Online Audio Accessibility Ideal Tools for iPhone & YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-infinix-note-30-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Infinix Note 30 Pro FRP Locks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-s24-ultra-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy S24 Ultra Phone?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-defending-your-youtube-profile/"><u>In 2024, Defending Your YouTube Profile</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-elevate-your-tiktok-game-expert-mac-video-editing-guide/"><u>In 2024, Elevate Your TikTok Game Expert Mac Video Editing Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-how-to-avoid-and-reverse-strikes-on-your-youtube-account/"><u>In 2024, How to Avoid and Reverse Strikes on Your YouTube Account</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-overcome-obstacles-with-these-top-10-motivation-flicks/"><u>In 2024, Overcome Obstacles with These Top 10 Motivation Flicks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-rectifying-identity-mix-up-in-fb-text-exchange/"><u>In 2024, Rectifying Identity Mix-Up in FB Text Exchange</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/no-8-advanced-online-photographic-merge-suite-for-2024/"><u>No. 8 Advanced Online Photographic Merge Suite for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/strategies-for-selective-success-in-the-youtube-realm/"><u>Strategies for Selective Success in the YouTube Realm</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-journey-to-crafting-wow-worthy-collage-art-for-2024/"><u>The Journey to Crafting Wow-Worthy Collage Art for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-shortcut-to-shorter-vids-on-youtube/"><u>The Shortcut to Shorter Vids on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/zoom-in-how-to-sequentially-play-youtube-videos-for-free/"><u>Zoom In How to Sequentially Play YouTube Videos for Free</u></a></li>
 </ul></div>
 

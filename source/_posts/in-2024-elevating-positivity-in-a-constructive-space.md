@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-11-23T22:19:08.789Z
-updated: 2024-11-24T19:58:54.305Z
+date: 2024-11-28T23:49:41.523Z
+updated: 2024-12-04T00:59:06.654Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,20 +77,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-method-quick-erasure-of-youtube-comments/"><u>[New] Cutting-Edge Method Quick Erasure of Youtube Comments</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-does-the-sub4sub-strategy-improve-content-consumption/"><u>[Updated] Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-optimized-approach-to-delete-unwanted-youtube-posts/"><u>[Updated] Optimized Approach to Delete Unwanted YouTube Posts</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/2023s-definitive-guide-to-perfecting-your-youtube-videos-understanding-size-specifications-and-dimensions/"><u>2023'S Definitive Guide to Perfecting Your YouTube Videos: Understanding Size Specifications and Dimensions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-driving-income-from-views-on-youtube/"><u>2024 Approved Driving Income From Views on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-video-decks-smart-description-templates/"><u>2024 Approved Elevate Video Decks Smart Description Templates</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-top-5-low-cost-solar-panels-powering-your-tech/"><u>2024 Approved Top 5 Low-Cost Solar Panels Powering Your Tech</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-income-101-from-ideas-to-earnings-in-action/"><u>2024 Approved YouTube Income 101 From Ideas to Earnings in Action</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/experience-high-definition-like-never-before-hitachis-ultra-hd-televisions-with-roku-built-in/"><u>Experience High Definition Like Never Before – Hitachi's Ultra HD Televisions with Roku Built-In</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-all-you-need-to-know-about-the-youtube-shorts-fund/"><u>In 2024, All You Need to Know About the YouTube Shorts Fund</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-deciphering-past-visual-content-inverse-queries-and-fb-techniques/"><u>In 2024, Deciphering Past Visual Content Inverse Queries and FB Techniques</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/skyrocket-your-video-speed-expert-tips-for-faster-render-and-upload/"><u>Skyrocket Your Video Speed Expert Tips for Faster Render & Upload</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unleashing-intelligence-at-home-how-home-assistant-elevates-smart-living/"><u>Unleashing Intelligence at Home: How Home Assistant Elevates Smart Living</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-precision-and-power-leading-kung-fu-vr-titles/"><u>[Updated] 2024 Approved Precision and Power Leading Kung Fu VR Titles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creating-compelling-sports-content-from-the-ground-up/"><u>[Updated] Creating Compelling Sports Content From the Ground Up</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-launch-a-captivating-livestream-with-minimal-subscribers/"><u>2024 Approved Launch a Captivating Livestream with Minimal Subscribers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-techniques-for-saving-teams-meetings-desktopmobile/"><u>2024 Approved Techniques for Saving Teams Meetings (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/celebrating-beauty-innovators-youtubes-elite-list/"><u>Celebrating Beauty Innovators YouTube's Elite List</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-study-aid-apps-the-top-6-selections-for-kids-and-their-families/"><u>Essential Study Aid Apps: The Top 6 Selections for Kids & Their Families</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-step-by-step-approach-to-discard-youtube-watch-later-items/"><u>In 2024, A Step-by-Step Approach to Discard YouTube Watch Later Items</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-x-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone X</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-art-of-using-cc-copyrights-wisely-for-2024/"><u>Mastering the Art of Using CC Copyrights Wisely for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/prime-165hz-display-for-gamers/"><u>Prime 165Hz Display for Gamers</u></a></li>
+<li><a href="https://techidaily.com/top-8-iphone-15-plus-smsmessagetext-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top 8 iPhone 15 Plus SMS/Message/Text Recovery Software | Stellar</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/what-you-need-to-know-about-vanishing-shorts-thumbnails-on-youtube/"><u>What You Need to Know About Vanishing Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-highest-pay-per-view-pioneers/"><u>YouTube's Highest Pay Per View Pioneers</u></a></li>
 </ul></div>
 

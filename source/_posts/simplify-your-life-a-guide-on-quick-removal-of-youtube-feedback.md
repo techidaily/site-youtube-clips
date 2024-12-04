@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-11-18T17:48:25.066Z
-updated: 2024-11-24T20:53:31.181Z
+date: 2024-11-30T17:35:29.272Z
+updated: 2024-12-03T18:49:40.622Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
@@ -50,10 +50,6 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -91,10 +87,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -116,7 +108,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -132,14 +124,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -163,22 +163,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-elite-screening-pacts-how-to-choose-a-cms/"><u>[New] Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-learn-to-optimize-your-watchlist-using-dual-screens-on-netflix/"><u>2024 Approved Learn to Optimize Your Watchlist Using Dual Screens on Netflix</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/1726029296610-mts/"><u>簡単！MTSファイルをコンパクトに詰める究極ガイド</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-edge-youtube-video-editing-techniques-premiere-pro/"><u>Cutting Edge YouTube Video Editing Techniques - Premiere Pro</u></a></li>
-<li><a href="https://driver-install.techidaily.com/easy-install-hassle-free-canon-scanner-drivers-for-pcs/"><u>Easy Install, Hassle-Free Canon Scanner Drivers for PCs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-live-play-with-professional-gear-lists-for-2024/"><u>Elevating Live Play with Professional Gear Lists for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/guide-to-ipad-navigation-systems-unveiling-the-models-that-offer-integrated-gps-for-tracking-and-location-services/"><u>Guide to iPad Navigation Systems: Unveiling the Models That Offer Integrated GPS for Tracking and Location Services</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Tecno Spark Go (2024) | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-apple-iphone-xs-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or Apple iPhone XS without iCloud Password or Apple ID?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-stop-dragon-age-origins-from-closing-unexpectedly-in-windows-10/"><u>How to Stop Dragon Age: Origins From Closing Unexpectedly in Windows 10</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-hiring-game-with-the-best-vids-in-town/"><u>In 2024, Elevate Your Hiring Game with the Best Vids in Town</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208523630-minecraft-stability-restored-correcting-video-card-driver-errors-on-your-windows-pc/"><u>Minecraft Stability Restored: Correcting Video Card Driver Errors On Your Windows PC</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/no-cost-yield-assessment-apps-for-videos/"><u>No-Cost Yield Assessment Apps for Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/step-into-wealthy-creator-land-via-youtube-shorts-revenue/"><u>Step Into Wealthy Creator Land via YouTube Shorts Revenue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamlining-earnings-with-youtube-studio-techniques/"><u>Streamlining Earnings with Youtube Studio Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-perfected-practice-of-combining-youtube-videos/"><u>The Perfected Practice of Combining YouTube Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-high-speed-internet-with-ourlinks-u631-usb-wi-fi-adaptor-miniature-design-meets-robust-performance/"><u>Unleash High-Speed Internet with Ourlink's U631 USB Wi-Fi Adaptor: Miniature Design Meets Robust Performance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-teaching-toolkit-how-to-craft-exceptional-videos-for-learning/"><u>[New] Elevating Your Teaching Toolkit How to Craft Exceptional Videos for Learning</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unleash-creativity-pivotal-pixlr-editing-strategies-for-2024/"><u>[New] Unleash Creativity Pivotal Pixlr Editing Strategies for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1-unbeatable-prime-day-offer-35-echo-pop-plus-blink-video-doorbell-duo-top-smart-home-savings-on-zdnet/"><u>1. Unbeatable Prime Day Offer: $35 Echo Pop + Blink Video Doorbell Duo - Top Smart Home Savings on ZDNet!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-elevate-your-visual-storytelling-mastering-pixizs-video-capabilities/"><u>2024 Approved Elevate Your Visual Storytelling Mastering Pixiz's Video Capabilities</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-visual-journey-to-crafting-a-user-friendly-subscribe-link/"><u>A Visual Journey to Crafting a User-Friendly Subscribe Link</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-earning-mastery-youtube-short-video-tips/"><u>In 2024, Earning Mastery Youtube Short Video Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlock-your-fb-potential-with-these-video-engagement-techniques/"><u>In 2024, Unlock Your FB Potential with These Video Engagement Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/stand-out-on-google-the-ultimate-thumbnail-font-guide/"><u>Stand Out on Google The Ultimate Thumbnail Font Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/tips-and-solutions-for-a-smooth-gameplay-in-tiny-tinas-wonderlands-without-any-pc-glitches/"><u>Tips and Solutions for a Smooth Gameplay in Tiny Tina's Wonderlands Without Any PC Glitches</u></a></li>
 </ul></div>
 

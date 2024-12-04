@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-17T19:46:06.389Z
-updated: 2024-11-24T20:46:32.473Z
+date: 2024-11-29T20:49:12.575Z
+updated: 2024-12-03T22:40:44.419Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,17 +143,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-photographic-presentation-prowess-frame-tech/"><u>[Updated] 2024 Approved Photographic Presentation Prowess Frame Tech</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-copycatting-charisma-making-ingenious-parodies/"><u>2024 Approved Copycatting Charisma Making Ingenious Parodies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-the-cord-on-costs-select-best-free-yt-title-makers-for-2024/"><u>Cutting the Cord on Costs - Select Best-Free YT Title Makers for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-youtubes-shorts-funding-mechanism-for-2024/"><u>Deciphering YouTube's Shorts Funding Mechanism for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/download-the-powerful-hevc-codec-at-no-cost-for-ultra-hd-video-support/"><u>Download the Powerful HEVC Codec at No Cost for Ultra HD Video Support</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/enabling-extra-protection-a-guide-to-turning-on-gmails-2fa/"><u>Enabling Extra Protection: A Guide to Turning On Gmail's 2FA</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fbs-viral-anthems-list-crafting-your-number-one-song/"><u>FB's Viral Anthems List Crafting Your Number One Song</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-vivo-v27-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo V27 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-integrating-audio-elements-within-mixed-media-videos-for-2024/"><u>New Integrating Audio Elements Within Mixed Media Videos for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/scan-and-savor-innovative-edible-qr-codes-made-with-3d-printing/"><u>Scan & Savor: Innovative Edible QR Codes Made with 3D Printing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-f15-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy F15 5G Device</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfecting-your-video-with-story-remix-and-windows-photos/"><u>[New] 2024 Approved Perfecting Your Video with Story Remix & Windows Photos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-3-easy-youtube-audio-extraction-methods-free-and-secure/"><u>[New] 3 Easy YouTube Audio Extraction Methods Free & Secure</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-charting-out-your-audience-youtubes-blueprint/"><u>[New] Charting Out Your Audience YouTube's Blueprint</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-youtube-visibility-with-tubebuddy/"><u>[New] Enhancing YouTube Visibility with TubeBuddy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/avigating-facebook-sharing-of-youtube-videos/"><u>[New] Navigating Facebook Sharing of YouTube Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-surrender-to-serenity-top-10-game-guides-for-2024/"><u>[New] Surrender to Serenity Top 10 Game Guides for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creative-commons-legalities-explained-simply/"><u>[Updated] Creative Commons Legalities Explained Simply</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-youtube-comments-with-emoji-skills/"><u>2024 Approved Elevating Your YouTube Comments with Emoji Skills</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/boost-your-social-interaction-skills-with-these-simple-snapchat-steps/"><u>Boost Your Social Interaction Skills with These Simple Snapchat Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-conference-room-to-youtube-google-meet-broadcasting/"><u>From Conference Room to Youtube Google Meet Broadcasting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-vivo-s17-by-drfone-android/"><u>Full Guide to Unlock Your Vivo S17</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-add-youtube-annotations-and-cards-in-2024/"><u>How to Add YouTube Annotations and Cards, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-add-transitions-in-kinemaster/"><u>In 2024, Add Transitions in Kinemaster</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-t-series-youtube-financial-gains/"><u>In 2024, Analyzing T-Series Youtube Financial Gains</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mouthwatering-movies-how-to-make-your-food-videography-shine/"><u>In 2024, Mouthwatering Movies How to Make Your Food Videography Shine</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/rise-and-shine-with-heimvisions-sunrise-alarm-an-in-depth-look-at-the-a80s-model/"><u>Rise and Shine with HeimVision's Sunrise Alarm - An In-Depth Look at the A80S Model</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>Tailored Trends The Pathway to a Specialized Youtube Niche</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-photographers-guide-to-pc-gaming-scenes-for-2024/"><u>The Photographer’s Guide to PC Gaming Scenes for 2024</u></a></li>
+<li><a href="https://discover-community.techidaily.com/transforma-tu-contenido-en-mp4-desde-mts-sin-gastar-dinero-tecnicas-simples-y-exitosas/"><u>Transforma Tu Contenido en MP4 Desde MTS Sin Gastar Dinero: Técnicas Simples Y Exitosas</u></a></li>
 </ul></div>
 

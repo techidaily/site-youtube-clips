@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-11-18T21:18:34.251Z
-updated: 2024-11-24T18:40:09.925Z
+date: 2024-11-26T21:00:45.484Z
+updated: 2024-12-03T18:09:46.121Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,14 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -41,10 +45,6 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -60,15 +60,15 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -91,7 +91,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -105,7 +105,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,22 +123,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-artful-annotation-distortion-techniques/"><u>[New] Artful Annotation Distortion Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-reach-new-heights-in-video-content-with-dji-drones/"><u>[Updated] 2024 Approved Reach New Heights in Video Content with DJI Drones</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-prime-7-cameras-elevating-virtual-event-coverage-and-vlogging-for-2024/"><u>[Updated] Prime 7 Cameras Elevating Virtual Event Coverage and Vlogging for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-visual-wonders-home-made-effects-demystified/"><u>2024 Approved Crafting Visual Wonders Home-Made Effects Demystified</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-critically-acclaimed-video-cards-for-clear-youtube-broadcasts/"><u>2024 Approved Critically Acclaimed Video Cards for Clear YouTube Broadcasts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/advanced-techniques-using-jump-cuts-effectively/"><u>Advanced Techniques Using Jump Cuts Effectively</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/capturing-moons-a-guide-to-proper-night-photography-techniques-for-2024/"><u>Capturing Moons A Guide to Proper Night Photography Techniques for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/conquer-your-screen-space-integrating-video-within-video-for-2024/"><u>Conquer Your Screen Space Integrating Video Within Video for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/cutting-edge-tips-for-outshining-others-in-facebooks-social-space/"><u>Cutting-Edge Tips for Outshining Others in Facebook's Social Space</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earning-mastery-youtube-short-video-tips/"><u>Earning Mastery Youtube Short Video Tips</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/master-the-migration-seamlessly-moving-data-from-sql-server-to-excel/"><u>Master the Migration: Seamlessly Moving Data From SQL Server to Excel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-freefire-a-gaming-youtubers-guide/"><u>Mastering the Art of FreeFire A Gaming Youtuber’s Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/maximizing-video-game-earnings/"><u>Maximizing Video Game Earnings</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/precision-editing-via-gpt-assistance/"><u>Precision Editing via GPT Assistance</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/smartphone-guide-crafting-engaging-video-content/"><u>Smartphone Guide Crafting Engaging Video Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-secret-sauce-to-outstanding-online-identity-creation/"><u>The Secret Sauce to Outstanding Online Identity Creation</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/top-10-tips-for-mastering-magix-video-pro-x-for-2024/"><u>Top 10 Tips for Mastering Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters/"><u>[New] Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length 156 Characters)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iscover-the-best-15-youtube-science-think-tanks-for-2024/"><u>[New] Discover the Best 15 YouTube Science Think Tanks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastermind-your-marketing-surge-to-1000-insta-supporters-each-month/"><u>[New] Mastermind Your Marketing Surge to 1,000 Insta Supporters Each Month</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unique-identity-creation-accessible-logo-base-and-personal-customization-for-no-cost-for-2024/"><u>[New] Unique Identity Creation Accessible Logo Base & Personal Customization for No-Cost for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-comprehensive-guide-to-crafting-engaging-youtube-outros/"><u>[Updated] Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-top-5-best-microphones-for-4k-camera/"><u>2024 Approved Top 5 Best Microphones for 4K Camera</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-engagement-top-10-video-response-insights/"><u>In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-end-game-for-youtube-content-pros-secrets-and-templates/"><u>In 2024, End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-rise-of-a-new-player-an-introduction-to-triller/"><u>In 2024, The Rise of a New Player An Introduction to Triller</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/seamless-share-youtube-videos-set-up-autoplay-on-fb/"><u>Seamless Share YouTube Videos Set Up Autoplay on FB</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-decision-embrace-a-youtube-mcn-or-not/"><u>The Ultimate Decision Embrace a YouTube MCN or Not</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/your-guide-to-facebook-video-angle-selection-for-2024/"><u>Your Guide to Facebook Video Angle Selection for 2024</u></a></li>
 </ul></div>
 

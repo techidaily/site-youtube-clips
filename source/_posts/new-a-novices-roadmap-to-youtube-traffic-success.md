@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Roadmap to YouTube Traffic Success"
-date: 2024-11-21T20:20:55.237Z
-updated: 2024-11-24T16:45:24.479Z
+date: 2024-11-28T20:14:54.764Z
+updated: 2024-12-03T23:52:02.506Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ Ready?
 
 Let’s Go!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -55,6 +51,10 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
@@ -89,7 +89,7 @@ Once you have an idea of what people are searching for related to your topic, yo
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
@@ -97,6 +97,10 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -164,6 +168,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -223,7 +231,7 @@ Well done finishing the video! You are almost there… but not there yet.
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Come on, keep going!
@@ -258,17 +266,9 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -285,24 +285,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-codes-of-conduct-for-the-yt-community/"><u>[New] Comprehensive Codes of Conduct for the Yt Community</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-film-color-correction-with-luts/"><u>[New] Mastering Film Color Correction with Luts</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-sony-xperia-xz-premium-an-odyssey-into-ultra-hd-phones/"><u>[New] Sony Xperia XZ Premium An Odyssey Into Ultra HD Phones</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-flashstoppage-instant-video-quit-guide-for-2024/"><u>[Updated] FlashStoppage Instant Video Quit Guide for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/climb-the-popularity-ladder-essential-youtube-seo-practices-uncovered-for-2024/"><u>Climb the Popularity Ladder Essential YouTube SEO Practices Uncovered for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy-for-2024/"><u>Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-streaming-experience-six-insightful-quizzes-for-fandom-enthusiasts-for-2024/"><u>Elevate Your Streaming Experience Six Insightful Quizzes for Fandom Enthusiasts for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-v29e-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo V29e for Free? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-magic-vs-2-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor Magic Vs 2</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-spark-10-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Spark 10 Pro FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-v2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic V2 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/investigating-the-economics-of-t-series-on-youtube/"><u>Investigating the Economics of T-Series on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/optimize-your-video-library-youtubes-to-dailymotion-directly/"><u>Optimize Your Video Library YouTubes to Dailymotion Directly</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/subscribersilence-yearning-for-chatgpt-reopening/"><u>SubscriberSilence: Yearning for ChatGPT Reopening</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-9-premium-wedding-films-online-youtube-and-vimeo/"><u>Top 9 Premium Wedding Films Online Youtube & Vimeo</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid-for-2024/"><u>Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android) for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/vinyl-virtuoso-access-to-premium-dj-video-samples/"><u>Vinyl Virtuoso Access to Premium DJ Video Samples</u></a></li>
-<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-13t-pro-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my 13T Pro?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-hues-in-harmony-applying-color-principles/"><u>[New] 2024 Approved Hues in Harmony Applying Color Principles</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-7-top-rated-free-mobile-apps-for-video-downloads/"><u>[New] 7 Top-Rated Free Mobile Apps for Video Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dance-of-words-crafting-bouncing-text-effects/"><u>[New] Dance of Words Crafting Bouncing Text Effects</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[New] Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-complete-guide-to-crafting-best-in-class-yt-thumbnails/"><u>[Updated] 2024 Approved A Complete Guide to Crafting Best-in-Class YT Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-creative-command-center-studio-for-youtubers/"><u>[Updated] 2024 Approved Creative Command Center Studio for YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos/"><u>[Updated] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-boost-achieve-youtube-affiliate-milestone-with-10k-vistas/"><u>[Updated] Channel Boost Achieve YouTube Affiliate Milestone with 10K Vistas</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guidelines-for-optimal-youtube-video-brightness/"><u>[Updated] In 2024, Guidelines for Optimal YouTube Video Brightness</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-ranking-creative-photo-and-video-shows-on-iphones-xr-i/"><u>[Updated] In 2024, Ranking Creative Photo & Video Shows on iPhones (XR-I)</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-the-viral-temporary-twitch-top-10-tweets/"><u>[Updated] In 2024, The Viral Temporary Twitch Top 10 Tweets</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-fixes-to-stop-the-abrupt-endings-in-phoenix-point-a-comprehensive-guide/"><u>Effective Fixes to Stop the Abrupt Endings in Phoenix Point – A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-channel-with-these-top-11-budget-friendly-tools/"><u>In 2024, Elevate Your Channel with These Top 11 Budget-Friendly Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/panoramica-tecnica-dellintelligenza-artificiale-di-winx-video-un-approccio-specializzato-per-i-metodi-avanzati-di-editing-video/"><u>Panoramica Tecnica Dell'intelligenza Artificiale Di WinX Video: Un Approccio Specializzato per I Metodi Avanzati Di Editing Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/positive-interaction-not-pressure-a-subscription-success-story/"><u>Positive Interaction, Not Pressure A Subscription Success Story</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/predicting-the-new-wave-of-social-media-infographic-style/"><u>Predicting the New Wave of Social Media - Infographic Style</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-imessage-delivery-issues-why-your-messages-were-not-sent-yesterday-explained/"><u>Understanding iMessage Delivery Issues: Why Your Messages Were Not Sent Yesterday - Explained</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/updating-your-amd-graphics-card-software-for-optimal-performance-on-win-10117/"><u>Updating Your AMD Graphics Card Software for Optimal Performance on Win 10/11/7</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-11-20T21:30:46.060Z
-updated: 2024-11-24T21:39:34.563Z
+date: 2024-12-01T19:08:14.546Z
+updated: 2024-12-03T19:28:11.025Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -48,7 +52,7 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -65,10 +69,6 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -82,6 +82,10 @@ _The pompom used in this video cost $2, but you might already have something tha
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
@@ -104,7 +108,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -114,14 +118,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,24 +138,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-visual-appeal-youtube-images-in-presentations/"><u>2024 Approved Enhancing Visual Appeal YouTube Images in Presentations</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlocking-kinemasters-fullscreen-magic/"><u>2024 Approved Unlocking KineMaster's Fullscreen Magic</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/conquering-export-errors-for-srt-in-premiere-pro-for-2024/"><u>Conquering Export Errors for SRT in Premiere Pro for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/vating-the-culture-of-creativity-within-youtube-shorts/"><u>Cultivating the Culture of Creativity Within YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-game-with-immediate-skilled-valorant-thumbnails-for-2024/"><u>Elevate Your Game with Immediate, Skilled Valorant Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exploring-youtubes-operations-after-video-upload/"><u>Exploring YouTube's Operations After Video Upload</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/free-online-conversion-change-webm-files-into-wma-format-with-easywebmover/"><u>Free Online Conversion: Change WebM Files Into WMA Format with EasyWebMover</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>In 2024, Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-creating-stunning-youtube-openings-best-tools-list/"><u>In 2024, Creating Stunning YouTube Openings - Best Tools List</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-download-free-mcb-logo-templates/"><u>In 2024, Download Free MCB Logo Templates</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-realme-12plus-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Realme 12+ 5G Phone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-honor-90-gt-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Honor 90 GT Device</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-hash-list-boosting-youtube-views-to-6000plus/"><u>The Ultimate Hash List Boosting Youtube Views to $6,000+</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/time-warp-in-media-youtube-content-upside-down-for-2024/"><u>Time Warp in Media YouTube Content Upside Down for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-what-to-do-if-apple-refuses-your-payment-card/"><u>Troubleshooting Tips: What To Do If Apple Refuses Your Payment Card</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-guide-selecting-top-notch-free-srt-translators-online-for-2024/"><u>Ultimate Guide Selecting Top-Notch Free SRT Translators Online for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-traction-techniques-for-million-sub-attainment/"><u>Youtube Traction Techniques for Million-Sub Attainment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-ace-list-of-low-cost-youtube-caption-tools/"><u>[New] Ace List of Low-Cost YouTube Caption Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-high-quality-sound-adjustment-apps-for-content-casters/"><u>[Updated] 2024 Approved High-Quality Sound Adjustment Apps for Content Casters</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-bespoke-urls-for-youtube-channels-an-easy-way-for-2024/"><u>[Updated] Bespoke URLs for YouTube Channels An Easy Way for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-swift-introduction-the-art-of-green-screening/"><u>[Updated] Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-power-of-zoom-in-kinemaster-editing/"><u>[Updated] Unveiling the Power of Zoom in Kinemaster Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-audiovisual-rhythm-optimal-dj-content-for-gatherings/"><u>2024 Approved Audiovisual Rhythm Optimal DJ Content for Gatherings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-top-30-cameras-frontal-screen-for-convenience/"><u>2024 Approved Top 30 Cameras Frontal Screen for Convenience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/end-your-videos-professionally-with-these-free-tools-top-6/"><u>End Your Videos Professionally with These Free Tools (Top 6)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leading-8-linux-tools-for-seamless-editing/"><u>Leading 8 Linux Tools for Seamless Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streaming-success-secrets-unveiling-monetization-on-dm-and-yo/"><u>Streaming Success Secrets Unveiling Monetization on Dm & Yo</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-complete-sony-fdr-x1000-videography-guide/"><u>The Complete Sony FDR-X1000 Videography Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-science-behind-stopping-photo-booth-movies/"><u>The Science Behind Stopping Photo Booth Movies</u></a></li>
 </ul></div>
 

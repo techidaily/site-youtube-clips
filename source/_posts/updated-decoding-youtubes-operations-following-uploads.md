@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Decoding YouTube’s Operations Following Uploads"
-date: 2024-11-18T20:24:47.819Z
-updated: 2024-11-24T18:14:29.620Z
+date: 2024-11-28T18:29:35.430Z
+updated: 2024-12-03T23:16:24.998Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,17 +85,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-accelerated-conversion-of-yt-content-for-mac-screens/"><u>[Updated] Accelerated Conversion of YT Content for MAC Screens</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-inshot-guide-successfully-load-tracks-into-videos/"><u>2024 Approved InShot Guide Successfully Load Tracks Into Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-masters-building-marvels-virtual-horizons/"><u>2024 Approved Masters Building Marvel's Virtual Horizons</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/comparing-the-three-faces-of-ai-understanding-public-private-and-personal-systems/"><u>Comparing the Three Faces of AI: Understanding Public, Private and Personal Systems</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/drafting-dynamic-news-endings/"><u>Drafting Dynamic News Endings</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enjoy-uninterrupted-youtube-with-effective-adblocking-methods-for-2024/"><u>Enjoy Uninterrupted YouTube with Effective Adblocking Methods for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Infinix Note 30 VIP Racing Edition?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/movavi-solutions-discover-who-we-are/"><u>Movavi Solutions - Discover Who We Are</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-essence-of-time-stretching-detailed-review-of-slomo-2e1924-for-2024/"><u>The Essence of Time Stretching Detailed Review of SloMo, 2E1924 for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-money-trail-for-youtube-creators-revenue-realization/"><u>The Money Trail for YouTube Creators Revenue Realization</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-get-ready-to-pause-a-beginners-guide-to-freezing-frames-in-videos/"><u>Updated In 2024, Get Ready to Pause A Beginners Guide to Freezing Frames in Videos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-8-best-screen-recorders-with-no-lag-for-2024/"><u>[New] Top 8 Best Screen Recorders with No Lag for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-captivate-audiences-unveiling-secrets-for-striking-youtube-banners/"><u>[Updated] Captivate Audiences Unveiling Secrets for Striking YouTube Banners</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-vlc-screen-recorder-review/"><u>[Updated] VLC Screen Recorder Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-a-path-to-profit-calculating-video-view-requirements/"><u>2024 Approved Charting a Path to Profit Calculating Video View Requirements</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-solution-for-stopping-youtube-video-previews/"><u>2024 Approved The Ultimate Solution for Stopping YouTube Video Previews</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/does-the-sub4sub-strategy-improve-content-consumption-for-2024/"><u>Does the Sub4Sub Strategy Improve Content Consumption for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/double-trouble-replaying-youtube-videos-on-your-set-for-2024/"><u>Double Trouble Replaying YouTube Videos on Your Set for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transform-your-brand-with-a-decades-worth-of-smm-wisdom-distilled-into-10-steps/"><u>In 2024, Transform Your Brand with a Decade's Worth of SMM Wisdom, Distilled Into 10 Steps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-your-videos-potential-with-smooth-narrative-flows/"><u>In 2024, Unlocking Your Videos' Potential with Smooth Narrative Flows</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/masters-choice-10-leading-photo-backdrop-swap-tools/"><u>Master's Choice 10 Leading Photo Backdrop Swap Tools</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-oppo-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Oppo</u></a></li>
+<li><a href="https://win-blog.techidaily.com/web-mpeg-movavi/"><u>WEB 내부에서 무료 MPEG 표현식을 모딩하는 방법 - MOVAVI</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubes-best-10-cutting-edge-reaction-ideas/"><u>YouTube's Best 10 Cutting-Edge Reaction Ideas</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Background Dimming in Videos\""
-date: 2024-10-29T02:38:36.886Z
-updated: 2024-11-04T17:51:30.896Z
+date: 2024-11-30T19:40:19.610Z
+updated: 2024-12-04T00:34:50.259Z
 tags:
   - ai video
   - ai youtube
@@ -60,13 +60,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -74,10 +67,7 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -88,7 +78,15 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -98,15 +96,16 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
@@ -114,13 +113,6 @@ You see, the video background is blurred, and the people are highlighted. Now it
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,24 +129,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-animators-playground-building-your-own-visual-treats-for-2024/"><u>[New] Animator’s Playground Building Your Own Visual Treats for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-guide-to-mobile-video-sharing-on-youtube/"><u>[New] Comprehensive Guide to Mobile Video Sharing on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-12-facebook-marketing-tips-for-business-beginners-and-pros/"><u>[Updated] 2024 Approved 12 Facebook Marketing Tips for Business (Beginners and Pros)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-slicephoto-inspection/"><u>[Updated] 2024 Approved SlicePhoto Inspection</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-bite-sized-content-on-youtube/"><u>[Updated] Bite-Sized Content on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-clandestine-call-collectors-a-stealthy-apps-review-androidios-for-2024/"><u>[Updated] Clandestine Call Collectors A Stealthy Apps Review (Android/iOS) for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creating-convincing-news-final-buzzes/"><u>[Updated] Creating Convincing News Final Buzzes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-essential-youtube-end-screen-templates-for-content-makers/"><u>[Updated] Essential YouTube End Screen Templates for Content Makers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/audiovisual-excellence-ranking-the-top-5-zoom-transcription-apps/"><u>Audiovisual Excellence Ranking the Top 5 Zoom Transcription Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-a-successful-course-in-youtube-keywords/"><u>Charting a Successful Course in YouTube Keywords</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-conference-call-to-youtube-stream-how-to-broadcast-google-meet/"><u>From Conference Call to YouTube Stream - How To Broadcast Google Meet</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-realme-narzo-60x-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Realme Narzo 60x 5G.</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-sony-xperia-1-v-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Sony Xperia 1 V Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/innovating-mukbang-content-with-fresh-creative-ideas/"><u>Innovating Mukbang Content with Fresh, Creative Ideas</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonic-vibes-3d-earpiece-assessment/"><u>Sonic Vibes 3D Earpiece Assessment</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/stealthy-ios-youtube-bgm-sessions/"><u>Stealthy iOS YouTube BGM Sessions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-your-watching-with-edge-free-youtube-content/"><u>Streamline Your Watching with Edge-Free YouTube Content</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unpacking-the-need-for-diversification-in-tech-after-recent-microsoft-service-interruptions/"><u>Unpacking the Need for Diversification in Tech After Recent Microsoft Service Interruptions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tackling-the-challenge-of-locating-fbs-most-watched-videos-2e23/"><u>[Updated] Tackling the Challenge of Locating Fb's Most-Watched Videos (2E23)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-get-videoproc-app-streamlined-video-editing-on-the-go/"><u>1. Get VideoProc App: Streamlined Video Editing on the Go</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-diy-digital-footprint-creating-youtube-thumbnails-from-mobile-devices/"><u>2024 Approved DIY Digital Footprint Creating YouTube Thumbnails From Mobile Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-your-projects-with-free-green-screens-from-these-online-hubs/"><u>2024 Approved Enhance Your Projects with Free Green Screens From These Online Hubs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-equipment-showcasing-gameplay-innovations-for-2024/"><u>Elite Equipment Showcasing Gameplay Innovations for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-footage-to-fame-premiere-pro-edition-tricks-for-youtube/"><u>From Footage to Fame Premiere Pro Edition Tricks for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-footage-to-frame-crafting-youtube-thumbnails-on-mobile-devices/"><u>From Footage to Frame Crafting YouTube Thumbnails on Mobile Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-top-15-non-copyrighted-music-for-montages/"><u>New Top 15 Non Copyrighted Music for Montages</u></a></li>
+<li><a href="https://article-files.techidaily.com/perfect-video-title-generators-for-youtube-for-2024/"><u>Perfect Video Title Generators for YouTube for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/quick-tips-eliminate-signature-bg-in-minutes/"><u>Quick Tips Eliminate Signature Bg in Minutes</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210970349-9780645886542-the-gemini-story/"><u>The Gemini Story | Free Book</u></a></li>
 </ul></div>
 

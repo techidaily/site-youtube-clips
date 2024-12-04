@@ -1,7 +1,7 @@
 ---
 title: "Varied Ideas for Daily Vlogging Talks"
-date: 2024-11-19T20:03:02.816Z
-updated: 2024-11-24T22:22:04.064Z
+date: 2024-12-01T23:11:39.848Z
+updated: 2024-12-04T00:35:34.857Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -62,7 +58,7 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -74,6 +70,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -92,19 +92,23 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -112,10 +116,6 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,18 +132,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-all-about-camstudio-screen-recorder-efficiency/"><u>[New] In 2024, All About CamStudio Screen Recorder Efficiency</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-dynamic-videos-made-easy-with-best-stabilizers/"><u>[Updated] Dynamic Videos Made Easy with Best Stabilizers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-efficient-video-marketing-incorporating-timestamps-effectively/"><u>2024 Approved Efficient Video Marketing Incorporating Timestamps Effectively</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-innovating-with-youtube-studio-editor-for-next-gen-videos/"><u>2024 Approved Innovating with YouTube Studio Editor for Next-Gen Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earnings-on-youtube-the-crucial-number-of-video-views-for-money-for-2024/"><u>Earnings on YouTube The Crucial Number of Video Views for Money for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/efficient-solutions-to-fix-windows-network-error-code-0x800704cf/"><u>Efficient Solutions to Fix 'Windows Network Error Code 0X800704CF'</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/get-ready-for-the-apple-vision-pro-pre-orders-opening-january-19-hit-stores-february-2-latest-gadgets-update/"><u>Get Ready for the Apple Vision Pro – Pre-Orders Opening January 19, Hit Stores February 2 | Latest Gadgets Update</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-cheapest-way-designing-successful-youtube-ad-campaigns/"><u>In 2024, The Cheapest Way Designing Successful YouTube Ad Campaigns</u></a></li>
-<li><a href="https://win-news.techidaily.com/raid4/"><u>RAID陣列を効率よくコピーするためのシンプルな4ステップガイド</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-choosing-youtube-friendly-video-formats/"><u>The Essential Guide to Choosing YouTube-Friendly Video Formats</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/unlocking-apple-iphone-se-2020-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking Apple iPhone SE (2020) Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
-<li><a href="https://fox-links.techidaily.com/what-is-a-haul-video-and-how-to-edit-it/"><u>What Is a Haul Video and How to Edit It</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-monetization-techno-gamerz-youtube-income-2024/"><u>YouTube Monetization Techno Gamerz YouTube Income 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-cutting-edge-videotelephony-solutions-list/"><u>[New] Cutting-Edge Videotelephony Solutions List</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-navigating-video-sharing-from-imovie-to-the-vimeo-network-for-2024/"><u>[New] Navigating Video Sharing From iMovie to the Vimeo Network for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-compre-written-guide-on-incorporating-markup-features-in-youtube/"><u>[Updated] Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-customizing-iphone-tones-a-step-by-step-guide-for-2024/"><u>[Updated] Customizing iPhone Tones A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-the-perfect-aesthetic-with-controlled-lighting-for-2024/"><u>Crafting the Perfect Aesthetic with Controlled Lighting for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expertly-chosen-top-5-premium-drones-for-professionals-for-2024/"><u>Expertly Chosen Top 5 Premium Drones for Professionals for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/exploring-8-truly-effective-video-marketing-strategies/"><u>Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/find-your-fit-understanding-basic-to-pro-plans-at-vimeo-for-2024/"><u>Find Your Fit Understanding Basic to Pro Plans at Vimeo for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/from-ordinary-to-extraordinary-crafting-winning-slideshows-and-perfecting-images-in-win11-photos-app/"><u>From Ordinary to Extraordinary: Crafting Winning Slideshows & Perfecting Images in Win11 Photos App</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-depth-analysis-of-youtube-adrevenue-average-payout-per-1000-viewers-engagement/"><u>In-Depth Analysis of YouTube AdRevenue Average Payout per 1,000 Viewers' Engagement</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/professional-opinions-best-9-digital-microphone-capture-gear-for-2024/"><u>Professional Opinions Best 9 Digital Microphone Capture Gear for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/understanding-and-optimizing-your-contents-spotlight-placement/"><u>Understanding and Optimizing Your Content's Spotlight Placement</u></a></li>
 </ul></div>
 
