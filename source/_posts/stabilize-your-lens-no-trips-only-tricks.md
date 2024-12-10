@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-11-27T21:33:05.584Z
-updated: 2024-12-03T20:53:26.045Z
+date: 2024-12-09T17:29:29.829Z
+updated: 2024-12-10T16:21:26.441Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -38,15 +38,7 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -61,6 +53,10 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -87,6 +83,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -96,7 +96,7 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -122,7 +122,7 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,18 +140,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-design-channels-get-free-visuals-now/"><u>[New] Design Channels - Get Free Visuals Now</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-new-heights-top-10-adventure-channels/"><u>[New] Discover New Heights Top 10 Adventure Channels</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-dissecting-youtubes-activities-post-uploading-videos-for-2024/"><u>[New] Dissecting YouTube's Activities Post-Uploading Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-step-up-your-game-techniques-for-bordered-instagram-videos/"><u>[New] Step Up Your Game Techniques for Bordered Instagram Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-demystifying-the-anatomy-of-a-great-yt-short-video/"><u>[Updated] Demystifying the Anatomy of a Great YT Short Video</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-restore-functionality-for-non-working-steelseries-gg-controller-engines-in-windows-os/"><u>How To Restore Functionality for Non-Working SteelSeries GG Controller Engines in Windows OS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-covert-content-creation-how-to-invisibly-alter-videos/"><u>In 2024, Covert Content Creation How to Invisibly Alter Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-engagement-with-these-10-premier-youtube-seo-instruments/"><u>In 2024, Elevate Engagement with These 10 Premier YouTube SEO Instruments</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-potential-7-exceptional-services-for-digital-art-nfts/"><u>In 2024, Unleash Potential 7 Exceptional Services for Digital Art NFTs</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-connectivity-problems-with-cast-feature-for-windows-11-devices/"><u>Resolving Connectivity Problems with Cast Feature for Windows 11 Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/winxvideo-transformez-toute-video-et-audio-en-accelerant-sa-vitesse-avec-la-puissance-du-gpu/"><u>Winxvideo: Transformez Toute Vidéo Et Audio en Accélérant Sa Vitesse Avec La Puissance Du GPU</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-create-professional-minecraft-graphics/"><u>[Updated] Create Professional Minecraft Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-download-custom-mcb-banner-packs/"><u>[Updated] Download Custom MCB Banner Packs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unveiling-the-hidden-treasure-of-royalty-free-graphics/"><u>[Updated] Unveiling the Hidden Treasure of Royalty-Free Graphics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-youtube-viewing-with-faster-or-slower-video-pace/"><u>2024 Approved Enhancing YouTube Viewing with Faster or Slower Video Pace</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/do-youtubers-get-paid-monthly/"><u>Do YouTubers Get Paid Monthly?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-gaming-with-the-latest-intel-hd-graphics-4400-drivers-download/"><u>Enhance Gaming with the Latest Intel HD Graphics 4400 Drivers Download</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flavorful-follows-top-food-vloggers-to-track/"><u>Flavorful Follows Top Food Vloggers to Track</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-tecno-spark-10-4g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Tecno Spark 10 4G to iPad | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-solutions-for-smooth-gaming-on-assassins-creed-valhalla-lag-free-adventure-awaits/"><u>Quick Solutions for Smooth Gaming on Assassin's Creed Valhalla – Lag-Free Adventure Awaits</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solving-ms-drivers-for-winos-graphics-rendering/"><u>Solving MS Drivers for WINOS Graphics Rendering</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-for-addressing-pin-verification-problems-on-w11w10-pcs/"><u>Steps for Addressing PIN Verification Problems on W11/W10 PCs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-cam-gear-mastering-low-speed-video-recording-for-2024/"><u>Ultimate Cam Gear Mastering Low-Speed Video Recording for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unleashing-your-channels-potential-increase-youtube-views/"><u>Unleashing Your Channel's Potential Increase YouTube Views</u></a></li>
 </ul></div>
 

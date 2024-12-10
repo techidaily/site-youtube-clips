@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dissecting the Narrative in YouTube Dialogues"
-date: 2024-11-30T22:05:23.229Z
-updated: 2024-12-04T03:03:03.153Z
+date: 2024-12-03T18:09:22.229Z
+updated: 2024-12-10T18:00:48.366Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -74,7 +78,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -110,7 +114,7 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -123,14 +127,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -157,7 +157,7 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -175,24 +175,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-efficient-techniques-for-youtube-shorts-revenue/"><u>[New] Efficient Techniques for YouTube Shorts Revenue</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-essential-steps-for-crafting-stunning-slow-mo-videos-on-tiktok-for-2024/"><u>[New] Essential Steps for Crafting Stunning Slow Mo Videos on TikTok for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlocking-the-secrets-to-building-trust-with-fb-giveaways/"><u>[New] Unlocking the Secrets to Building Trust with FB Giveaways</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-visual-stories-in-25-steps-blending-pictures-for-maximum-engagement-for-2024/"><u>[New] Visual Stories in 25 Steps Blending Pictures for Maximum Engagement for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[Updated] 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[Updated] 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-audio-visual-synopsis-creator/"><u>2024 Approved Audio Visual Synopsis Creator</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie/"><u>2024 Approved Cut, Trim & Enhance YouTube Editing Tips for the Rookie</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-daily-blog-key-practices-and-avoidance-tactics/"><u>2024 Approved Elevate Your Daily Blog Key Practices and Avoidance Tactics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/behind-the-goals-a-comprehensive-look-at-fifa-19s-dominance-in-e-sports-entertainment/"><u>Behind the Goals: A Comprehensive Look at FIFA 19'S Dominance in E-Sports Entertainment</u></a></li>
-<li><a href="https://extra-information.techidaily.com/blueprint-for-a-personalized-high-definition-editing-haven-for-2024/"><u>Blueprint for a Personalized, High-Definition Editing Haven for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/clearing-up-confusion-a-guide-to-understanding-youtube-strikes-for-2024/"><u>Clearing Up Confusion A Guide to Understanding YouTube Strikes for 2024</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/clonage-de-disques-durs-vers-un-ssd-samsung-sans-cables-guide-simple-et-efficace/"><u>Clonage De Disques Durs Vers Un SSD Samsung Sans Câbles : Guide Simple Et Efficace</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creating-profit-on-youtube-the-ultimate-list-of-top-business-channels-for-2024/"><u>Creating Profit on YouTube The Ultimate List of Top Business Channels for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-nokia-c12-plus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Nokia C12 Plus to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revitalize-your-rpg-sessions-integrating-chatgpt-for-deeper-dandd-gameplay/"><u>Revitalize Your RPG Sessions: Integrating ChatGPT for Deeper D&D Gameplay</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-process-for-installing-latest-drivers-on-razer-blade-17-windows-compatibility/"><u>Step-by-Step Process for Installing Latest Drivers on Razer Blade 17 | Windows Compatibility</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transform-your-viewing-experience-activating-av1-on-youtube/"><u>Transform Your Viewing Experience Activating AV1 on YouTube</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722998642840-why-is-the-microsoft-teams-chatbot-keeps-freezing-and-crashing-heres-the-solution/"><u>Why Is the Microsoft Teams Chatbot Keeps Freezing and Crashing? Here's the Solution!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-voice-changes-in-psgames/"><u>[New] 2024 Approved Mastering Voice Changes in PSGames</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-freeing-up-youtube-views-no-more-grey-lines/"><u>[New] In 2024, Freeing Up YouTube Views No More Grey Lines</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-eradicate-green-screen-from-mac-produced-videos/"><u>[New] The Ultimate Guide to Eradicate Green Screen From Mac-Produced Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>[Updated] 2024 Approved Brief but Impactful Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-spectacular-visuals-the-power-of-tiktok-effects/"><u>[Updated] Spectacular Visuals The Power of TikTok Effects</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-add-radial-blur-effect-to-photos-in-photoshop/"><u>2024 Approved How to Add Radial Blur Effect to Photos in Photoshop</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/design-your-closure-the-best-free-youtube-tutorials/"><u>Design Your Closure The Best Free YouTube Tutorials</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/edit-like-a-pro-10-must-know-tips-for-newbies-for-2024/"><u>Edit Like a Pro 10 Must-Know Tips for Newbies for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-yt-content-creation-with-windows-movie-maker-for-2024/"><u>Elevate Your YT Content Creation with Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-video-discoverability-with-ideal-thumbnail-widths-and-height-for-2024/"><u>Enhancing Video Discoverability with Ideal Thumbnail Widths and Height for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-re-watch-lost-youtube-scenes-online-simple-steps/"><u>How to Re-Watch Lost YouTube Scenes Online Simple Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-autoplay-youtube-on-mobile-no-distractions/"><u>In 2024, AutoPlay YouTube on Mobile, No Distractions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-easy-way-to-spot-and-view-trending-youtube-feedback/"><u>The Easy Way to Spot and View Trending YouTube Feedback</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-re5-pc-startup-issues-a-comprehensive-guide/"><u>Troubleshooting RE5 PC Startup Issues: A Comprehensive Guide</u></a></li>
 </ul></div>
 

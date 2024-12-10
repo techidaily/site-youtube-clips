@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-11-28T23:49:41.523Z
-updated: 2024-12-04T00:59:06.654Z
+date: 2024-12-08T17:16:02.950Z
+updated: 2024-12-10T16:07:36.726Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,18 +77,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-precision-and-power-leading-kung-fu-vr-titles/"><u>[Updated] 2024 Approved Precision and Power Leading Kung Fu VR Titles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creating-compelling-sports-content-from-the-ground-up/"><u>[Updated] Creating Compelling Sports Content From the Ground Up</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-launch-a-captivating-livestream-with-minimal-subscribers/"><u>2024 Approved Launch a Captivating Livestream with Minimal Subscribers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-techniques-for-saving-teams-meetings-desktopmobile/"><u>2024 Approved Techniques for Saving Teams Meetings (Desktop/Mobile)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/celebrating-beauty-innovators-youtubes-elite-list/"><u>Celebrating Beauty Innovators YouTube's Elite List</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-study-aid-apps-the-top-6-selections-for-kids-and-their-families/"><u>Essential Study Aid Apps: The Top 6 Selections for Kids & Their Families</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-a-step-by-step-approach-to-discard-youtube-watch-later-items/"><u>In 2024, A Step-by-Step Approach to Discard YouTube Watch Later Items</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-x-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone X</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-the-art-of-using-cc-copyrights-wisely-for-2024/"><u>Mastering the Art of Using CC Copyrights Wisely for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/prime-165hz-display-for-gamers/"><u>Prime 165Hz Display for Gamers</u></a></li>
-<li><a href="https://techidaily.com/top-8-iphone-15-plus-smsmessagetext-recovery-software-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Top 8 iPhone 15 Plus SMS/Message/Text Recovery Software | Stellar</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/what-you-need-to-know-about-vanishing-shorts-thumbnails-on-youtube/"><u>What You Need to Know About Vanishing Shorts Thumbnails on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-highest-pay-per-view-pioneers/"><u>YouTube's Highest Pay Per View Pioneers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-youtube-timestamp-addition-for-desktop-and-mobile-devices/"><u>[Updated] In 2024, Mastering YouTube Timestamp Addition for Desktop & Mobile Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-snapquarter-testimony/"><u>[Updated] In 2024, SnapQuarter Testimony</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-deciphering-the-innovative-world-of-youtube-studio/"><u>2024 Approved Deciphering the Innovative World of YouTube Studio</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-poco-f5-pro-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Poco F5 Pro 5G Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/5-star-channel-cutting-long-urls-down-for-youtube-videos-for-2024/"><u>5-Star Channel Cutting Long URLs Down for YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-list-makeup-tutorials-who-to-watch/"><u>A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivate-crowds-social-media-growth-hacks-for-youtube-for-2024/"><u>Captivate Crowds Social Media Growth Hacks for YouTube for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/to-update-or-not-exploring-the-benefits-of-ios-17/"><u>To Update or Not: Exploring the Benefits of iOS 17</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-dev-error-6634-in-call-of-duty-warzone-tip-list-2022/"><u>Troubleshooting Steps for Dev Error 6634 in Call of Duty: Warzone (Tip List 2022)</u></a></li>
 </ul></div>
 

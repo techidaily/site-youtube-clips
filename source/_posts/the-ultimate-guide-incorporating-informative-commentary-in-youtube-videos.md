@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-11-30T00:53:14.736Z
-updated: 2024-12-03T23:24:45.620Z
+date: 2024-12-03T16:00:19.397Z
+updated: 2024-12-10T16:51:39.819Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 2: How to Add YouTube Annotations](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -58,17 +58,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -77,7 +73,15 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -89,14 +93,14 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -136,10 +140,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -155,15 +155,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-does-the-sub4sub-strategy-improve-content-consumption/"><u>[New] Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tep-by-step-approach-to-finding-youtube-collaborators/"><u>[New] Step-by-Step Approach to Finding YouTube Collaborators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uccessful-youtubing-master-end-credits-and-makers-sources-for-2024/"><u>[New] Successful YouTubing Master End Credits and Makers' Sources for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elite-channel-analyzer-top-youtube-positioning-tool/"><u>[Updated] Elite Channel Analyzer Top YouTube Positioning Tool</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-essential-guide-to-tapered-music-transitions-in-premiere-pro/"><u>[Updated] The Essential Guide to Tapered Music Transitions in Premiere Pro</u></a></li>
-<li><a href="https://ai-video.techidaily.com/9-best-french-video-translators-online-and-download-options/"><u>9 Best French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-strategies-to-recover-and-fix-broken-system-files-on-windows-11/"><u>Effective Strategies to Recover and Fix Broken System Files on Windows 11</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-video-visibility-11-secrets-of-successful-seo-for-2024/"><u>Elevate Your Video Visibility 11 Secrets of Successful SEO for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/laugh-o-matic-crafting-gags-on-the-house-rate/"><u>Laugh-O-Matic Crafting Gags on the House Rate</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-art-of-disregarding-harmful-youtube-comments/"><u>The Art of Disregarding Harmful YouTube Comments</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-craft-engaging-videos-with-7-free-premium-soundscapes/"><u>[New] Craft Engaging Videos with 7 Free, Premium Soundscapes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-enhance-watch-list-with-film-selections/"><u>[New] In 2024, Enhance Watch List with Film Selections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-social-splendor-leading-story-filter-hits/"><u>[New] In 2024, Social Splendor Leading Story Filter Hits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ultimate-guide-yi-hero-cam-and-its-dynamic-features/"><u>[New] In 2024, Ultimate Guide Yi Hero Cam & Its Dynamic Features</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[Updated] Boost Your Channels A Guide to Best YouTube SEO Resources</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-enhancing-click-through-rates-with-three-distinct-writing-models-for-ads/"><u>2024 Approved Enhancing Click-Through Rates with Three Distinct Writing Models for Ads</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-motorola-edge-40-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Motorola Edge 40 Phone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/live-streaming-made-simple-google-meet-to-youtube-guide/"><u>Live Streaming Made Simple Google Meet to YouTube Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-images-your-complete-thumbnail-handbook/"><u>Mastering YouTube Images Your Complete Thumbnail Handbook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-xiaomi-civi-3-disney-100th-anniversary-edition-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Xiaomi Civi 3 Disney 100th Anniversary Edition Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-8-proven-video-growth-and-promotion-strategies/"><u>Top 8 Proven Video Growth & Promotion Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/visualizing-2023-social-medias-next-big-thing/"><u>Visualizing 2023 Social Media's Next Big Thing</u></a></li>
 </ul></div>
 

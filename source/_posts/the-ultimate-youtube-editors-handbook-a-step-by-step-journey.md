@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate YouTube Editor's Handbook  A Step-by-Step Journey\""
-date: 2024-11-29T21:27:23.426Z
-updated: 2024-12-04T02:05:08.065Z
+date: 2024-12-08T16:55:11.607Z
+updated: 2024-12-10T17:26:34.215Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ YouTube videos have a certain look and feel that many viewers have come to expec
 | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 1: Introduction
@@ -56,6 +56,10 @@ Below is a video tutorial about how to add text and titles to video in Filmora, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For more information on intros, check out our post on [How to Make a YouTube Intro?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: Cuts
 
@@ -93,10 +97,6 @@ Camera shake is a video effect that makes the original clip appear like it was f
 
 A lot of comedy YouTubers change the color and levels of their videos in order to emphasize different moods. One common thing YouTubers do when they talk about anything slightly sad is to gradually fade out the colors in their talking head shots. In a cheesy way, the black and white look can emphasize a feeling of emptiness. For his “sad” reactions, PewDiePie often jump cuts into a black and white, slowed down clip of his sad face while playing some sad music in the background. To emphasize a darker message, some YouTubers increase the amount of shadows in their video. In the video below, while his daughter is delivering a darker message from 0:32 to 0:50, La Guardia Cross gradually adds more shadows around his daughter’s face through what appears to be a vignette effect.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Part 4: Transitions
 
 #### 1. Wipe
@@ -130,11 +130,7 @@ Slowing down footage is another way YouTubers like to manipulate the passage of 
 **![Slow Motion](https://media.giphy.com/media/hEZfnQRnS4eBO/giphy.gif)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 7: Audio
@@ -169,10 +165,14 @@ For those who want to make their YouTube videos better, I recommend Wondershare 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -190,15 +190,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-treasure-trove-of-9-complete-holiday-flicks-free-streaming/"><u>[Updated] A Treasure Trove of 9 Complete Holiday Flicks, Free Streaming</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-harmonizing-history-best-theme-songs-in-anime/"><u>[Updated] Harmonizing History Best Theme Songs in Anime</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-six-simplest-strategies-to-craft-your-mc-dwelling/"><u>[Updated] In 2024, Six Simplest Strategies to Craft Your MC Dwelling</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-earning-potential-in-beauty-blogging/"><u>2024 Approved Earning Potential in Beauty Blogging</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-motives-to-break-free-from-the-social-media-giant/"><u>6 Motives to Break Free From the Social Media Giant</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-listening-pleasure-constructing-a-youtube-playlist/"><u>In 2024, Enhance Listening Pleasure Constructing a YouTube Playlist</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-iphone-11-pro-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked iPhone 11 Pro</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-troubleshooting-resolving-battlefield-5-startup-problems/"><u>Ultimate Troubleshooting: Resolving Battlefield 5 Startup Problems</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/web-development-hacks-embedding-youtubes-playlists-effortlessly/"><u>Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-instant-reachers-handbook-livestreaming-on-facebook-via-smartphones/"><u>[New] Instant Reachers' Handbook Livestreaming on Facebook via Smartphones</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-get-paid-on-youtube-from-adsense-to-your-bank-account/"><u>[Updated] 2024 Approved How To Get Paid on YouTube - From AdSense to Your Bank Account</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-step-by-step-guide-to-dominating-the-youtube-viewership-game/"><u>[Updated] A Step-by-Step Guide to Dominating the YouTube Viewership Game</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-amass-higher-views-with-powerful-youtube-tags/"><u>2024 Approved Amass Higher Views with #Powerful YouTube Tags</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dive-deep-into-the-world-of-creator-studio/"><u>2024 Approved Dive Deep Into the World of Creator Studio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>2024 Approved Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-walkthrough-for-imovie-and-youtube-collaboration/"><u>A Comprehensive Walkthrough for iMovie and YouTube Collaboration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adding-videos-to-written-work-a-budget-friendly-way/"><u>Adding Videos to Written Work A Budget-Friendly Way</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/affordable-minecraft-video-graphics-for-2024/"><u>Affordable Minecraft Video Graphics for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breakdown-of-youtubes-monetization-update/"><u>Breakdown of YouTube's Monetization Update</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-connectivity-made-simple-easy-to-use-youtube-buttons/"><u>Channel Connectivity Made Simple Easy-to-Use YouTube Buttons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-stylish-reliable-fitbit-charge/"><u>Comprehensive Examination of the Stylish, Reliable Fitbit Charge</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/skyline-scanning-smartphone-panorama-techniques/"><u>Skyline Scanning Smartphone Panorama Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-honor-play-7t-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Honor Play 7T for Parents | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-withings-move-smartwatch-an-affair-of-retro-design-and-modern-features-our-complete-assessment/"><u>Unveiling The Withings Move Smartwatch: An Affair of Retro Design and Modern Features, Our Complete Assessment</u></a></li>
 </ul></div>
 

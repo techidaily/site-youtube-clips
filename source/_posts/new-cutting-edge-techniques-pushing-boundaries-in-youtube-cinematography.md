@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting Edge Techniques  Pushing Boundaries in YouTube Cinematography\""
-date: 2024-09-26T16:24:58.526Z
-updated: 2024-10-01T20:15:00.232Z
+date: 2024-12-04T17:46:00.736Z
+updated: 2024-12-10T17:03:54.144Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -123,24 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-smooth-playback-overcoming-booty-freezes/"><u>[New] Unlocking Smooth Playback Overcoming Booty Freezes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-pro-level-cams-for-aspiring-youtube-creators/"><u>[Updated] Pro-Level Cams for Aspiring YouTube Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-building-blueprint-reaching-1k-subs-rapidly-for-2024/"><u>Channel Building Blueprint Reaching 1K Subs Rapidly for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-image-makeovers-on-the-house/"><u>Channel Image Makeovers on the House</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discover-the-top-30-free-intro-creators-on-youtube-for-2024/"><u>Discover the Top 30 Free Intro Creators on YouTube for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/effective-ways-to-prevent-crashes-in-outpost-infinity-on-your-pc-gaming-experience/"><u>Effective Ways to Prevent Crashes in Outpost: Infinity on Your PC Gaming Experience</u></a></li>
-<li><a href="https://article-posts.techidaily.com/from-camera-to-feed-ig-photo-tutorial-for-2024/"><u>From Camera to Feed IG Photo Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-entertainment-galore-top-free-film-series-on-youtube/"><u>In 2024, Effortless Entertainment Galore Top Free Film Series on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-video-marketing-with-youtube-thumbnails/"><u>In 2024, Elevating Video Marketing with YouTube Thumbnails</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/is-an-artificially-intelligent-film-your-next-must-watch-choice/"><u>Is an Artificially Intelligent Film Your Next Must-Watch Choice?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/methods-for-disabling-auto-sleep-on-your-apple-computer/"><u>Methods for Disabling Auto-Sleep on Your Apple Computer</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-vocal-visions-utilizing-your-iphone-as-an-audio-identifier-tool/"><u>Updated 2024 Approved Vocal Visions Utilizing Your iPhone as an Audio Identifier Tool</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dodge-digital-watchers-accelerating-view-count-growth/"><u>[New] Dodge Digital Watchers Accelerating View Count Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-tips-for-flv-file-fusion-on-youtube/"><u>[New] Essential Tips for FLV File Fusion on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-pocket-playlist-portraits-actors-and-audio-art/"><u>[Updated] 2024 Approved Pocket Playlist Portraits Actors & Audio Art</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-step-by-step-approach-to-crafting-customized-youtube-alerts-and-notifications/"><u>[Updated] A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-auditing-video-content-monetization-success/"><u>[Updated] Auditing Video Content Monetization Success</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-final-act-of-severing-tiktok-ties-temporarily/"><u>[Updated] In 2024, The Final Act of Severing TikTok Ties Temporarily</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-get-snapchat-on-mac/"><u>2024 Approved How to Get Snapchat on Mac?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/efficient-techniques-to-transform-dvd-media-into-mp4-using-windows-11-or-macos-a-comprehensive-guide/"><u>Efficient Techniques to Transform DVD Media Into MP4 Using Windows 11 or macOS: A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/evaluating-security-concerns-when-diving-into-digital-assets-with-yl-software-experts/"><u>Evaluating Security Concerns When Diving Into Digital Assets with YL Software Experts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/hitman-3-analysis-the-ultimate-conclusion/"><u>Hitman 3 Analysis: The Ultimate Conclusion</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/how-to-add-music-to-any-snapchat-video-for-2024/"><u>How to Add Music to Any Snapchat Video for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-titles-essential-hd-video-playback-tools-freepaid/"><u>In 2024, Top Titles Essential HD Video Playback Tools (Free/Paid)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/maximize-space-free-20plus-storage-options-with-limits-up-to-1tb-for-2024/"><u>Maximize Space Free 20+ Storage Options With Limits (Up To 1TB) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-elite-makeup-vloggers-shaping-2024s-beauty-scene/"><u>The Elite Makeup Vloggers Shaping 2024'S Beauty Scene</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/turn-the-tide-how-to-make-a-youtube-playlist-run-backward/"><u>Turn the Tide How to Make a YouTube Playlist Run Backward</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-reviews-unleashing-joy-in-yard-work-with-the-ultimate-remote-controlled-lawnmower/"><u>ZDNet Reviews: Unleashing Joy in Yard Work with the Ultimate Remote-Controlled Lawnmower</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

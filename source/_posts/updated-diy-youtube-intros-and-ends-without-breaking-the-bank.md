@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-11-29T20:49:12.575Z
-updated: 2024-12-03T22:40:44.419Z
+date: 2024-12-04T17:56:02.529Z
+updated: 2024-12-10T17:21:51.377Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,24 +143,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-perfecting-your-video-with-story-remix-and-windows-photos/"><u>[New] 2024 Approved Perfecting Your Video with Story Remix & Windows Photos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-3-easy-youtube-audio-extraction-methods-free-and-secure/"><u>[New] 3 Easy YouTube Audio Extraction Methods Free & Secure</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-charting-out-your-audience-youtubes-blueprint/"><u>[New] Charting Out Your Audience YouTube's Blueprint</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-youtube-visibility-with-tubebuddy/"><u>[New] Enhancing YouTube Visibility with TubeBuddy</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/avigating-facebook-sharing-of-youtube-videos/"><u>[New] Navigating Facebook Sharing of YouTube Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-surrender-to-serenity-top-10-game-guides-for-2024/"><u>[New] Surrender to Serenity Top 10 Game Guides for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-creative-commons-legalities-explained-simply/"><u>[Updated] Creative Commons Legalities Explained Simply</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-youtube-comments-with-emoji-skills/"><u>2024 Approved Elevating Your YouTube Comments with Emoji Skills</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/boost-your-social-interaction-skills-with-these-simple-snapchat-steps/"><u>Boost Your Social Interaction Skills with These Simple Snapchat Steps</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-conference-room-to-youtube-google-meet-broadcasting/"><u>From Conference Room to Youtube Google Meet Broadcasting</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-vivo-s17-by-drfone-android/"><u>Full Guide to Unlock Your Vivo S17</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-add-youtube-annotations-and-cards-in-2024/"><u>How to Add YouTube Annotations and Cards, In 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-add-transitions-in-kinemaster/"><u>In 2024, Add Transitions in Kinemaster</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-analyzing-t-series-youtube-financial-gains/"><u>In 2024, Analyzing T-Series Youtube Financial Gains</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mouthwatering-movies-how-to-make-your-food-videography-shine/"><u>In 2024, Mouthwatering Movies How to Make Your Food Videography Shine</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/rise-and-shine-with-heimvisions-sunrise-alarm-an-in-depth-look-at-the-a80s-model/"><u>Rise and Shine with HeimVision's Sunrise Alarm - An In-Depth Look at the A80S Model</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>Tailored Trends The Pathway to a Specialized Youtube Niche</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-photographers-guide-to-pc-gaming-scenes-for-2024/"><u>The Photographer’s Guide to PC Gaming Scenes for 2024</u></a></li>
-<li><a href="https://discover-community.techidaily.com/transforma-tu-contenido-en-mp4-desde-mts-sin-gastar-dinero-tecnicas-simples-y-exitosas/"><u>Transforma Tu Contenido en MP4 Desde MTS Sin Gastar Dinero: Técnicas Simples Y Exitosas</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-a-guide-to-essential-asmr-video-facts/"><u>[Updated] 2024 Approved A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-novice-to-vlogger-the-top-10-editing-techniques/"><u>[Updated] In 2024, From Novice to Vlogger The Top 10 Editing Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-balancing-act-watching-multiple-videos-on-one-screen/"><u>2024 Approved Balancing Act Watching Multiple Videos on One Screen</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-collaboration-unified-watch-experience-across-platforms/"><u>2024 Approved Channel Collaboration Unified Watch Experience Across Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>2024 Approved Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-youtube-visibility-mastering-titles-and-tags-for-2024/"><u>Boosting YouTube Visibility Mastering Titles & Tags for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-creators-preferences-vimeo-or-youtube-for-2024/"><u>Content Creators' Preferences Vimeo or YouTube for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-analysis-of-ideal-tablets-for-academic-success-in-depth-guide-zdnet/"><u>Expert Analysis of Ideal Tablets for Academic Success - In-Depth Guide | ZDNet</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-12-mini-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 12 mini without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-itel-p40-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Itel P40 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-pinnacle-play-best-of-royale-multiplayer-matches/"><u>In 2024, Pinnacle Play Best of Royale Multiplayer Matches</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-lava-blaze-curve-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Lava Blaze Curve 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-vivo-y100-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Vivo Y100 Device</u></a></li>
 </ul></div>
 

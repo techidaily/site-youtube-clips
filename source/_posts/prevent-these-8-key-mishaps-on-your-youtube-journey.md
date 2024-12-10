@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-11-26T21:00:45.484Z
-updated: 2024-12-03T18:09:46.121Z
+date: 2024-12-08T17:47:49.604Z
+updated: 2024-12-10T16:25:28.439Z
 tags:
   - ai video
   - ai youtube
@@ -31,13 +31,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -46,11 +46,19 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -59,10 +67,6 @@ Many new YouTubers make the mistake of titling their videos in an ineffective wa
 Big YouTubers can take advantage of non-searched, curiosity evoking titles like “You won’t believe what just happened…” because they already have a huge following. Their channels aren’t depending on getting discovered through search. But yours is. So come up with titles that people are actually searching.
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
 
@@ -90,10 +94,6 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -105,7 +105,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,17 +123,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-best-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters/"><u>[New] Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length 156 Characters)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iscover-the-best-15-youtube-science-think-tanks-for-2024/"><u>[New] Discover the Best 15 YouTube Science Think Tanks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastermind-your-marketing-surge-to-1000-insta-supporters-each-month/"><u>[New] Mastermind Your Marketing Surge to 1,000 Insta Supporters Each Month</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-unique-identity-creation-accessible-logo-base-and-personal-customization-for-no-cost-for-2024/"><u>[New] Unique Identity Creation Accessible Logo Base & Personal Customization for No-Cost for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comprehensive-guide-to-crafting-engaging-youtube-outros/"><u>[Updated] Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-top-5-best-microphones-for-4k-camera/"><u>2024 Approved Top 5 Best Microphones for 4K Camera</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-engagement-top-10-video-response-insights/"><u>In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-end-game-for-youtube-content-pros-secrets-and-templates/"><u>In 2024, End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-the-rise-of-a-new-player-an-introduction-to-triller/"><u>In 2024, The Rise of a New Player An Introduction to Triller</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/seamless-share-youtube-videos-set-up-autoplay-on-fb/"><u>Seamless Share YouTube Videos Set Up Autoplay on FB</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-ultimate-decision-embrace-a-youtube-mcn-or-not/"><u>The Ultimate Decision Embrace a YouTube MCN or Not</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/your-guide-to-facebook-video-angle-selection-for-2024/"><u>Your Guide to Facebook Video Angle Selection for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-crafting-softer-beats-with-ableton/"><u>[Updated] Crafting Softer Beats with Ableton</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-engineering-engaging-media-excerpts/"><u>[Updated] Engineering Engaging Media Excerpts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-twitch-sharing-techniques-for-facebook-integration-for-2024/"><u>[Updated] Twitch Sharing Techniques for Facebook Integration for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-guide-to-gathering-gold-from-guided-goods-gazes-online-for-2024/"><u>A Guide to Gathering Gold From Guided Goods' Gazes Online for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/craft-standout-videos-with-professional-free-banner-samples/"><u>Craft Standout Videos with Professional, Free Banner Samples</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-content-sharing-your-guide-to-youtubeplustiktok-linkup-for-2024/"><u>Cutting-Edge Content Sharing Your Guide to YouTube+TikTok Linkup for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/engineer-meme-creation-in-adobe-for-2024/"><u>Engineer Meme Creation in Adobe for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/gaming-heaven-a-treasure-trove-of-superb-offline-ios-game-titles-for-2024/"><u>Gaming Heaven A Treasure Trove of Superb Offline iOS Game Titles for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>In 2024, AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mobile-filmmakers-secrets-creating-viral-thumbnails-for-youtube/"><u>Mobile Filmmaker’s Secrets Creating Viral Thumbnails for YouTube</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamline-your-gaming-experience-switch-plus-mac/"><u>Streamline Your Gaming Experience: Switch + Mac</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-motorola-g54-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Motorola G54 5G</u></a></li>
 </ul></div>
 

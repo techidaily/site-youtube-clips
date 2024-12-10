@@ -1,7 +1,7 @@
 ---
 title: "\"Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade\""
-date: 2024-11-28T21:35:56.321Z
-updated: 2024-12-04T02:24:34.247Z
+date: 2024-12-07T17:47:35.085Z
+updated: 2024-12-10T16:59:26.837Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,12 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
@@ -64,7 +60,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -80,7 +76,7 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make Your Videos Stand Out with Powerful Video Editor
@@ -88,10 +84,14 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,15 +108,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-the-process-of-clearing-up-browsers-watched-videos/"><u>[New] In 2024, Navigating the Process of Clearing Up Browser's Watched Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-vidma-screen-capture-a-thorough-examination-and-alternative-options-for-2024/"><u>[New] Vidma Screen Capture - A Thorough Examination & Alternative Options for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-earning-strategies-for-successful-youtube-shorts-must-haves-earnings-prospects/"><u>[Updated] Earning Strategies for Successful Youtube Shorts Must-Haves, Earnings Prospects</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ensuring-your-zoom-appointments-match-iphoneandroidpc-calendars-for-2024/"><u>[Updated] Ensuring Your Zoom Appointments Match iPhone/Android/PC Calendars for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-detailed-review-all-about-gecatas-recording-mechanism/"><u>[Updated] In 2024, Detailed Review All About Gecata's Recording Mechanism</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/cartoonify-photos-wirelessly-on-pcs-macs-and-more/"><u>Cartoonify Photos Wirelessly on PCs, Macs, and More</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-content-control-youtube-vs-creative-commons-license/"><u>In 2024, Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-guide-to-forming-powerful-content-partnerships-on-youtube/"><u>In 2024, Essential Guide to Forming Powerful Content Partnerships on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transform-your-set-design-top-8-sites-providing-free-green-screen-footage-and-backdrop/"><u>Transform Your Set Design Top 8 Sites Providing Free Green Screen Footage & Backdrop</u></a></li>
-<li><a href="https://article-helps.techidaily.com/ultimate-undertaking-decoding-digital-picture-resolutions-for-2024/"><u>Ultimate Undertaking Decoding Digital Picture Resolutions for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-weighing-in-virtual-reality-pros-and-cons/"><u>[New] 2024 Approved Weighing In Virtual Reality Pros & Cons</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/08069826-new-boost-your-content-access-free-vocal-sfx/"><u>[New] Boost Your Content Access Free Vocal SFX</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-diving-deep-youtubes-best-immersive-experiences/"><u>2024 Approved Diving Deep YouTube's Best Immersive Experiences</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>2024 Approved Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breakdown-of-steps-perfecting-idevice-video-features-on-youtube-for-2024/"><u>Breakdown of Steps Perfecting iDevice Video Features on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-your-youtube-shorts-profits-key-requirements-and-earning-potential/"><u>In 2024, Boosting Your Youtube Shorts Profits Key Requirements & Earning Potential</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/increase-viewership-swiftly-5-strategy-unveiled/"><u>Increase Viewership Swiftly - $5 Strategy Unveiled</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/movavi-bmp-jpg/"><u>Movavi 편집기: BMP 사진에서 JPG로 원활한 변환 - 단계별 가이드</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-free-online-video-compression-top-10-picks-with-no-downloads-for-2024/"><u>New Free Online Video Compression Top 10 Picks with No Downloads for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/organizing-chaos-a-guide-to-streamlining-linux-and-open-source-docs/"><u>Organizing Chaos: A Guide to Streamlining Linux & Open Source Docs</u></a></li>
+<li><a href="https://app-tips.techidaily.com/revolutionize-conversations-with-these-top-10-artificial-intelligence-chatbot-tools/"><u>Revolutionize Conversations with These Top 10 Artificial Intelligence Chatbot Tools</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/understanding-the-lifesaving-potential-of-apple-watch-fall-detection-tips-for-activation-and-use-digital-wellness-hub/"><u>Understanding the Lifesaving Potential of Apple Watch Fall Detection - Tips for Activation and Use | Digital Wellness Hub</u></a></li>
 </ul></div>
 

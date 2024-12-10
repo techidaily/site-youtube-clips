@@ -1,7 +1,7 @@
 ---
 title: "YouTube Prodigy Vs. Creative Hub Beta Edition"
-date: 2024-11-28T21:46:00.363Z
-updated: 2024-12-03T16:39:46.388Z
+date: 2024-12-03T17:56:54.160Z
+updated: 2024-12-10T16:37:11.376Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ---
 
 ## Why YouTube Is Getting Rid of Classic Creator Studio?
@@ -53,7 +57,7 @@ Undoubtedly, YouTube updated its Creator Studio to offer a tool that enables its
 ![ YouTube Studio Beta](https://images.wondershare.com/filmora/article-images/youtube-studio-beta.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube Studio (Beta), for many YouTubers, is now the default. However, for the time being, creators can still switch back to the Classic view (as some of the features are still being built). YouTube’s objective is to receive data of their own by understanding how creators are using the new Studio and gaining feedback to improve upon it.
@@ -79,7 +83,7 @@ In the past, there has been a lot of speculations about how creators should trea
 ![YouTube Studio Beta Optimization Tips](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-optimization.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2. Recent Video Data
@@ -90,10 +94,6 @@ YouTube wants you to know how your videos are performing in the first few days. 
 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-recent-video-data.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3. Video Analysis
 
 In the Classic Creator Studio, you couldn’t get an aggregated view of all the important video data on one dashboard. You would have to click to each set of analytics individually and then dive deeper. This ate up your precious content creation time and made it hard to combine insights. Now with Studio Beta, you can see all the critical data in one spot. Right away, you can see how that video is performing through different factors. This will let you know where audience retention is dropping off or which traffic source is supplying most of the views.
@@ -101,7 +101,7 @@ In the Classic Creator Studio, you couldn’t get an aggregated view of all the 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-video-analysis.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4. Watch Time Funnel
@@ -116,6 +116,10 @@ If the average view duration is not up to your standards, then you will have to 
 
 ![YouTube Creator Studio Watch Time Funnel](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-watch-time-funnel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5. Traffic Sources
 
 YouTube now presents all the different traffic sources in one easy-to-find page in the Reach Viewer tab, so creators no longer have to click between them to analyze where their traffic is coming from. This new design is far less intimidating and messy. At a glance, you can now see where the majority of your audiences are coming from.
@@ -127,10 +131,6 @@ YouTube has always put a lot of value into its analytic tools, and with YouTube 
 _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please let us know in the comments below._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,24 +147,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-efficient-windows-11-recorders-to-ace-your-content/"><u>[New] 2024 Approved Efficient Windows 11 Recorders to Ace Your Content</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-ultimate-screencast-blueprint-tools-and-techniques-mastery/"><u>[New] 2024 Approved The Ultimate Screencast Blueprint Tools & Techniques Mastery</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cut-beyond-youtube-unveiling-the-top-5-video-editor-options/"><u>[New] Cut Beyond Youtube Unveiling the Top 5 Video Editor Options</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-discover-top-ten-unforgettable-youtube-vr-videos/"><u>[New] Discover Top Ten Unforgettable YouTube VR Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-insights-on-asmr-videos/"><u>[New] Essential Insights on ASMR Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-obs-vs-twitch-hub-best-platform-debate/"><u>[New] In 2024, OBS Vs. Twitch Hub Best Platform Debate</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-identifying-high-impact-keywords-for-effective-youtube-marketing/"><u>[Updated] Identifying High-Impact Keywords for Effective YouTube Marketing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-breakdown-of-popular-elements-in-youtube-shorts/"><u>2024 Approved Breakdown of Popular Elements in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-branding-101-brainstorm-techniques/"><u>2024 Approved Channel Branding 101 Brainstorm Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-end-screen-design-made-easy-with-our-templates-and-tutorials/"><u>2024 Approved End-Screen Design Made Easy with Our Templates & Tutorials</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/2tb1tb-nvme/"><u>安全啟動下從2TB硬碟自由複製到1TB NVMe驅動器</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-stepwise-approach-to-designing-powerful-edu-vids-on-social-media-for-2024/"><u>A Stepwise Approach to Designing Powerful Edu-Vids on Social Media for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/harmonizing-tracks-in-youtube-music/"><u>Harmonizing Tracks in YouTube Music</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-audiovisual-alchemy-formulating-your-youtube-playlist/"><u>In 2024, Audiovisual Alchemy Formulating Your YouTube Playlist</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-the-earnings-algorithm-of-tseries-online-channel/"><u>In 2024, Decoding the Earnings Algorithm of TSeries Online Channel</u></a></li>
-<li><a href="https://os-tips.techidaily.com/ipad-ownership-is-it-worth-your-investment-essential-insights-for-potential-buyers/"><u>IPad Ownership: Is It Worth Your Investment? Essential Insights for Potential Buyers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-mkv-movies-on-motorola-razr-40-is-it-possible-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Play MKV movies on Motorola Razr 40, is it possible?</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/unlock-and-reboot-expert-tips-for-restoring-access-to-your-dells-bios-settings/"><u>Unlock & Reboot: Expert Tips for Restoring Access to Your Dell's BIOS Settings</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/why-and-how-to-purge-app-data-from-your-android-improve-performance-and-free-up-space/"><u>Why and How to Purge App Data From Your Android - Improve Performance & Free Up Space!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-reverse-silent-tweets-audible-video-connection/"><u>[New] 2024 Approved Reverse Silent Tweets Audible Video Connection</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-audiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[New] Audiovisual Symphony Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfecting-the-art-of-compelling-mosaic-imagery/"><u>[New] Perfecting the Art of Compelling Mosaic Imagery</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-instant-inspiration-free-video-intro-kits/"><u>[Updated] 2024 Approved Instant Inspiration - Free Video Intro Kits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-path-to-igtv-popularity-top-strategies-unveiled/"><u>[Updated] 2024 Approved The Ultimate Path to IGTV Popularity Top Strategies Unveiled</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-the-undercover-upscalers-guide-to-clear-visuals/"><u>[Updated] In 2024, The Undercover Upscaler's Guide to Clear Visuals</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-taggification-top-7-affordable-online-extractors-for-youtube/"><u>In 2024, Cutting-Edge Taggification Top 7 Affordable Online Extractors for YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-youtubes-revenue-model-for-video-clips/"><u>In 2024, Decoding YouTube's Revenue Model for Video Clips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-filmoras-prime-selective-screen-change-list/"><u>In 2024, Filmora's Prime Selective Screen Change List</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-apple-iphone-xr-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On Apple iPhone XR in the Best Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mac-screen-alignment-rapid-video-format-changes/"><u>Mac Screen Alignment Rapid Video Format Changes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/mastering-video-editing-in-windows-11-your-movie-maker-primer-for-2024/"><u>Mastering Video Editing in Windows 11 - Your Movie Maker Primer for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/personal-vlogs-that-resonate-deeply-with-viewers/"><u>Personal Vlogs That Resonate Deeply With Viewers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/trace-your-lost-touchpad-to-device-master/"><u>Trace Your Lost Touchpad to Device Master!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/triple-your-traffic-techniques-against-bots/"><u>Triple Your Traffic Techniques Against Bots</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-the-secrets-to-effective-imagery-discovery-on-facebook-platforms/"><u>Unlocking the Secrets to Effective Imagery Discovery on Facebook Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/vlog-anxieties-unmasked-how-to-combat-them/"><u>Vlog Anxieties Unmasked How to Combat Them</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/wealthiest-webcast-wonders/"><u>Wealthiest Webcast Wonders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/winning-the-subscriber-race-on-youtube/"><u>Winning the Subscriber Race on YouTube</u></a></li>
 </ul></div>
 

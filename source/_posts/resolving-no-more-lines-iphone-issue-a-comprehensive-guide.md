@@ -1,7 +1,7 @@
 ---
 title: Resolving 'No More Lines' IPhone Issue - A Comprehensive Guide
-date: 2024-12-02T22:06:17.789Z
-updated: 2024-12-03T22:35:07.170Z
+date: 2024-12-04T17:08:38.907Z
+updated: 2024-12-10T17:08:27.737Z
 tags:
   - iphone
   - apple
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
  Below, we'll briefly discuss what this error means, why it shows up on your iPhone, and teach you everything you can do to get rid of it. So, let's get started, shall we?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Does the "Last Line No Longer Available" Error on iPhone Mean?
 
  An iPhone on a Dual SIM setup can display a "Last Line No Longer Available" error when it has trouble detecting the default or preferred line while attempting to make a phone call. It mainly appears on [the various iPhone 13 models](https://www.makeuseof.com/what-are-all-iphone-13-models/) but can also be a problem on other [dual SIM-supported iPhone models](https://www.makeuseof.com/which-iphone-models-support-dual-sim/) , including the new iPhone 14.
@@ -32,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 
  Let's go through each possible way to fix the "Last Line No Longer Available" iPhone error.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Switch Phone Lines Manually on iPhone
 
  Tapping the**Call** option on the "Last Line No Longer Available" pop-up automatically puts the call through the other line on your iPhone. If that doesn't work as well, try switching numbers manually.
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/f7921a39c56c18854a738fb18f72fdf7d073d9479
 * While placing a call from the "Favorites" and "Recents" lists, tap the**Info** button and choose the number you want.
 
 ![Switch lines in Phone dialer.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/1-switch-lines-dialer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Switch lines in Favorites and Recents.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/2-switch-lines-favorites.jpg)
 
@@ -57,10 +53,6 @@ Close
 
 ![Toggling Airplane Mode on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/3-toogle-airplane-mode.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Restart Your iPhone
 
  Another quick way to fix the "Last Line No Longer" available error requires that you reboot your iPhone. Since iOS does not feature a "Restart" option, you must turn off the device and manually boot it back up.
@@ -69,15 +61,23 @@ Close
 
 ![iPhone Settings app.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/4-iphone-settings.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![General preferences on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/5-general-preferences.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Slide to Power Off screen on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/6-power-off-screen.jpeg)
 
-Close
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Close
 
 ## 4\. Clear Your iPhone's Call History
 
@@ -97,16 +97,16 @@ Close
 
 ![Deleting call logs on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/8-delete-call-log.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Clearing all recent calls on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/9-clear-all-recents.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Update the Carrier Settings on iPhone
@@ -133,17 +133,9 @@ Close
 
 ![Line selection screen for cellular data.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/13-select-mobile-date-line.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  You may also want to try experimenting by setting the**Allow Cellular Data Switching** option to on or off.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Disable Automatic Network Selection on iPhone
 
@@ -167,11 +159,11 @@ Close
 
 ![Disabling Wi-Fi calling on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/17-disable-wifi-calling-2.jpeg)
 
-Close
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Close
 
 ## 9\. Install the Latest Software Updates
 
@@ -179,9 +171,17 @@ Close
 
 ![General preferences screen on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/18-general-preferences.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Updating the system software on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/19-update-iphone.jpeg)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Reset Network Settings on iPhone
 
@@ -191,10 +191,6 @@ Close
 
 ![Transfer on Reset screen on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/21-reset-screen.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Reset menu on iPhone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/22-reset-network-settings.jpeg)
 
 Close
@@ -202,6 +198,10 @@ Close
  A network settings reset wipes your iPhone's cellular settings and preferences, but they should automatically update after the device reboots itself. Contact your carrier if they don't.
 
  Resetting the network settings on your iPhone deletes all the saved Wi-Fi hotspots and passwords. You must manually rejoin any networks afterward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Say Goodbye to the "Last Line No Longer Available" Error
 
@@ -224,21 +224,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>[New] Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-essential-10-family-friendly-movies-for-summertime-bliss/"><u>[Updated] 2024 Approved Essential 10 Family-Friendly Movies for Summertime Bliss</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-essential-guide-to-creating-stunning-boomerangs/"><u>[Updated] 2024 Approved The Essential Guide to Creating Stunning Boomerangs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-avoiding-storage-woes-removing-youtube-media/"><u>[Updated] Avoiding Storage Woes Removing YouTube Media</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-free-online-tools-perfect-your-beats-like-a-pro-dj/"><u>[Updated] In 2024, Free Online Tools Perfect Your Beats Like a Pro DJ</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-carbon-footprint-reduction-in-the-cityscape-revolution/"><u>2024 Approved Carbon Footprint Reduction in the Cityscape Revolution</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-ultimate-guide-to-the-top-webcams-for-windows-10/"><u>2024 Approved The Ultimate Guide to the Top Webcams for Windows 10</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-rivalry-unique-approach-to-shared-creative-task/"><u>AI Rivalry: Unique Approach to Shared Creative Task</u></a></li>
-<li><a href="https://win11.techidaily.com/augmenting-app-guard-features-with-graphical-upgrades-on-edge/"><u>Augmenting App Guard Features with Graphical Upgrades on Edge</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-engagement-with-solutions-to-common-shorts-challenges/"><u>Enhancing Engagement with Solutions to Common Shorts Challenges</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-safeguard-games-add-password-protection-to-your-nintendo-switch/"><u>How to Safeguard Games: Add Password Protection to Your Nintendo Switch</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/lightning-share-youtube-playlist-hacks/"><u>Lightning Share YouTube Playlist Hacks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-your-impact-the-most-effective-video-formats-for-youtube/"><u>Streamline Your Impact The Most Effective Video Formats for YouTube</u></a></li>
-<li><a href="https://techtrends.techidaily.com/tech-essentials-for-students-discovering-the-indispensable-9-items-every-learner-needs-in-classrooms-today/"><u>Tech Essentials for Students: Discovering the Indispensable 9 Items Every Learner Needs in Classrooms Today</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/trim-perfect-clearing-thin-lines-on-youtube/"><u>Trim Perfect Clearing Thin Lines on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/visual-vocabulary-complimentary-youtube-art-tools/"><u>Visual Vocabulary Complimentary YouTube Art Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-precision-in-practice-tailoring-ps4-recordings-to-suit-your-style/"><u>[New] Precision in Practice Tailoring PS4 Recordings to Suit Your Style</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-from-raw-feedback-a-critical-review-of-top-video-editors-for-youtube-for-2024/"><u>[Updated] From Raw Feedback A Critical Review of Top Video Editors for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>2024 Approved Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discovering-the-top-5-smarter-url-lengtheners-for-youtube/"><u>2024 Approved Discovering the Top 5 Smarter URL Lengtheners for YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-memes-for-iphone/"><u>2024 Approved Memes for iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-the-comprehensive-guide-to-using-luts-in-video-editing/"><u>2024 Approved The Comprehensive Guide to Using LUTs in Video Editing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-personal-barriers-in-yt-content-creation-for-2024/"><u>Breaking Personal Barriers in YT Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captivating-audiences-on-a-shoestring-budget-youtube-shorts-success-tips/"><u>Captivating Audiences on a Shoestring Budget – YouTube Shorts Success Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac-for-2024/"><u>Clearing Up that Persistent Green Tint in YouTube Videos on Mac for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-youtubes-algorithm-the-role-of-keyword-optimization-for-2024/"><u>Decoding YouTube's Algorithm The Role of Keyword Optimization for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-diagnose-and-repair-the-infamous-50ngateway-error/"><u>How To Diagnose and Repair the Infamous 50nGateway Error</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-plus-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Plus To Other iPhone devices? | Dr.fone</u></a></li>
 </ul></div>
 

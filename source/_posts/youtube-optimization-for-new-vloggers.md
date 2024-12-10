@@ -1,7 +1,7 @@
 ---
 title: "YouTube Optimization for New Vloggers"
-date: 2024-11-30T16:19:18.939Z
-updated: 2024-12-03T17:27:56.858Z
+date: 2024-12-06T18:06:16.859Z
+updated: 2024-12-10T16:28:01.891Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
@@ -84,15 +88,15 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ####  
 
@@ -160,6 +164,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -194,6 +202,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -204,6 +216,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -212,19 +228,11 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -233,10 +241,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -262,10 +266,6 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -285,16 +285,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-enhance-video-visibility-using-creator-studio-wisdom/"><u>[Updated] Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
-<li><a href="https://win-blog.techidaily.com/banish-the-shadows-fixing-elden-rings-troublesome-boot-screen-issue/"><u>Banish the Shadows: Fixing Elden Ring's Troublesome Boot Screen Issue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-mastery-leverage-customizable-description-templates-for-more-followers/"><u>Channel Mastery Leverage Customizable Description Templates for More Followers</u></a></li>
-<li><a href="https://win-able.techidaily.com/common-in-prostate-cancer-osteoblastic-lesions-can-lead-to-osteosclerosis-and-structurally-unsound-bones/"><u>Common in Prostate Cancer, Osteoblastic Lesions Can Lead to Osteosclerosis and Structurally Unsound Bones.</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hasty-upgrade-lenovo-usb-c-docking-solution/"><u>Hasty Upgrade: Lenovo USB-C Docking Solution</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-red-magic-9-proplus-phone-without-pin-by-drfone-android/"><u>How to Unlock Nubia Red Magic 9 Pro+ Phone without PIN</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/professional-selfies-elevating-your-online-presence/"><u>Professional Selfies Elevating Your Online Presence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-10-music-reactions-on-yt-a-year-end-review/"><u>Top 10 Music Reactions on YT A Year-End Review</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/top-mp4-to-facebook-video-converter-2023-edition/"><u>Top MP4-to-Facebook Video Converter 2023 Edition</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-viral-video-tags-tips-for-popular-youtube-shorts/"><u>Top Viral Video Tags Tips for Popular YouTube Shorts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unbeatable-bargain-video-content-websites/"><u>Unbeatable Bargain Video Content Websites</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-convenient-tactics-for-transferring-imovie-projects-to-vimeo/"><u>[New] Convenient Tactics for Transferring iMovie Projects to Vimeo</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-srgb-standardization-the-next-step-beyond-traditional-rgb/"><u>[New] In 2024, Srgb Standardization The Next Step Beyond Traditional Rgb</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-setting-the-scene-a-complete-guide-to-adding-custom-sounds-and-ringtones-on-android/"><u>[New] Setting the Scene A Complete Guide to Adding Custom Sounds and Ringtones on Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-link-driven-success-a-backlink-blueprint-for-channels/"><u>2024 Approved Crafting Link-Driven Success A Backlink Blueprint for Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-guide-never-see-youtube-shorts-again/"><u>2024 Approved Effortless Guide Never See YouTube Shorts Again</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-guide-to-maximizing-channels-earnings-through-trailers-for-2024/"><u>A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-lava-blaze-curve-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Lava Blaze Curve 5G</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-free-youtube-intro-makers-to-create-awesome-intros-for-2024/"><u>Best Free YouTube Intro Makers to Create Awesome Intros for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-buzz-factor-with-these-3-dynamic-approaches-to-youtube-video-reactions-for-2024/"><u>Boost Your Buzz Factor with These 3 Dynamic Approaches to YouTube Video Reactions for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-branding-101-brainstorm-techniques-for-2024/"><u>Channel Branding 101 Brainstorm Techniques for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comprehensive-instructions-for-disposing-of-video-downloads/"><u>Comprehensive Instructions for Disposing of Video Downloads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/conserve-space-not-time-youtube-video-length-adjustment-for-2024/"><u>Conserve Space, Not Time YouTube Video Length Adjustment for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-perfect-youtube-introend-videos-at-no-cost-for-2024/"><u>Crafting Perfect YouTube Intro/End Videos at No Cost for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-backstage-to-center-stage-mastering-twitter-livestreaming/"><u>From Backstage to Center Stage Mastering Twitter Livestreaming</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-and-fixing-the-dreaded-steam-error-code-130-successfully/"><u>Troubleshooting and Fixing the Dreaded Steam Error Code 130 Successfully</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-x50i-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor X50i Hard Reset | Dr.fone</u></a></li>
 </ul></div>
 

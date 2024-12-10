@@ -1,7 +1,7 @@
 ---
 title: "The Power of Politeness in Growing Your Audience"
-date: 2024-11-30T23:01:12.864Z
-updated: 2024-12-03T22:58:05.881Z
+date: 2024-12-04T17:56:20.472Z
+updated: 2024-12-10T18:06:12.736Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -59,7 +59,7 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Get to The Point Quickly
@@ -72,11 +72,11 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -89,7 +89,7 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
@@ -97,7 +97,7 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -115,22 +115,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-no-fuss-tactics-for-saving-vimeo-footage/"><u>[New] 2024 Approved No-Fuss Tactics for Saving Vimeo Footage</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-pre-upgrade-essentials-a-comprehensive-guide/"><u>[New] 2024 Approved Pre-Upgrade Essentials A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-direct-transfer-solution-youtube-content-on-dailymotion-now/"><u>[New] Direct Transfer Solution YouTube Content on Dailymotion Now</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-fourfold-guide-to-podcasting-in-education-via-mac-for-2024/"><u>[New] Fourfold Guide to Podcasting in Education via Mac for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-drone-trailblazers-the-most-attentive-models/"><u>[Updated] 2024 Approved Drone Trailblazers The Most Attentive Models</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-facesavedownloader-suite-mobile-pc/"><u>[Updated] 2024 Approved FaceSaveDownloader Suite (Mobile, PC)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-guide-to-travel-blogs-on-youtube/"><u>[Updated] 2024 Approved The Ultimate Guide to Travel Blogs on Youtube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-choosing-the-right-lights-and-cameras-for-youtube-videos/"><u>[Updated] Choosing the Right Lights & Cameras for YouTube Videos</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-12plus-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-eternal-void-a-complete-ban-on-youtube-short-video-feature/"><u>In 2024, Eternal Void A Complete Ban on YouTube Short Video Feature</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-time-management-for-youtubers-with-day-jobs/"><u>Mastering Time Management for YouTubers with Day Jobs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/power-players-unleashed-youtubes-female-elite/"><u>Power Players Unleashed YouTube’s Female Elite</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-solutions-to-unplugged-nvidia-card-issues-get-back-to-gaming/"><u>Step-by-Step Solutions to Unplugged Nvidia Card Issues - Get Back To Gaming</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-hidden-face-technique-for-anonymous-content-sharing/"><u>The Hidden Face Technique for Anonymous Content Sharing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-youtube-creator-summit-a-getaway-for-top-talent/"><u>The YouTube Creator Summit - A Getaway for Top Talent</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transition-tactics-your-youtube-videos-on-instagram/"><u>Transition Tactics Your YouTube Videos on Instagram</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-samsung-galaxy-m14-4g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Samsung Galaxy M14 4G Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-counteracting-bot-influence-for-higher-traffic/"><u>[New] Counteracting Bot Influence for Higher Traffic</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-calculating-youtubes-income-potential-with-cpm-rates/"><u>[Updated] Calculating YouTube's Income Potential with CPM Rates</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>2024 Approved DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-game-with-immediate-skilled-valorant-thumbnails/"><u>2024 Approved Elevate Your Game with Immediate, Skilled Valorant Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback-for-2024/"><u>Average Earnings Per View What's the Income for YouTubers per Ad Playback for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/guide-to-adding-your-domain-to-the-safe-senders-list-on-macos-mail/"><u>Guide to Adding Your Domain to the Safe Senders List on macOS Mail</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-v30-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-digital-discussion-documentary/"><u>In 2024, Digital Discussion Documentary</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-embarking-on-the-online-world-starting-a-facebook-life/"><u>In 2024, Embarking on the Online World Starting a Facebook Life</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-11x-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme 11X 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/quick-guide-to-correcting-hidden-shorts-on-youtube/"><u>Quick Guide to Correcting Hidden Shorts on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-untold-elements-of-instagram-story-engagement/"><u>The Untold Elements of Instagram Story Engagement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/understanding-youtubes-legal-framework-vs-cc/"><u>Understanding YouTube's Legal Framework Vs. CC</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-oppo-k11-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Oppo K11 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

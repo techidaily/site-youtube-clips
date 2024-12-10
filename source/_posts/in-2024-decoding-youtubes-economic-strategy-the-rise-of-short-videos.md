@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Decoding YouTube’s Economic Strategy  The Rise of Short Videos\""
-date: 2024-12-02T01:01:47.853Z
-updated: 2024-12-03T17:19:13.753Z
+date: 2024-12-07T17:37:20.373Z
+updated: 2024-12-10T16:26:07.028Z
 tags:
   - ai video
   - ai youtube
@@ -24,15 +24,15 @@ YouTube offers content creators a platform for creating a lucrative career. Of t
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1\. YouTube Shorts Fund: Introduction and Benefits**
 
 YouTube launched YouTube Shorts Funds in 2021 to financially support creators who produce engaging and popular Shorts content. The monetization scheme would distribute $100 million to high-performing creators on the platform. The creators would receive high engagement and views from their Shorts for funding.
 
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-1.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The main objective of the YouTube Shorts fund is to encourage creativity, diversity, and innovation in Shorts content creation. The fund operated between 2021 and 2022\. It lets creators earn $100 - $10,000 a month for their content.
 
@@ -71,10 +71,6 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -93,7 +89,7 @@ The YPP Shorts Fund program includes the following features:
 * **Commerce Product Addendum** – Additional monetization features, including Super Chats. Channel Memberships, Super Thanks, and Super Stickers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **How Much Can You Make with Short** **s**
@@ -101,7 +97,7 @@ The YPP Shorts Fund program includes the following features:
 The amount of money you can make on Shorts often varies. It can be hard to make decent money on Shorts sometimes, and other times it brings in a nice chunk of revenue. Unfortunately, the earnings are not as spectacular as the long YouTube videos. Most creators agree that the revenue per thousand views (RPM) for shorts is around $0.05 - $0.07\. This would translate to about $50 - $70 for a million Shorts views. Although the ad revenue is relatively lower, you can generate more revenue with the shopping features. This will depend on how wee you keep your audience active and engaged.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 3\. How to Use YouTube Shorts Funding: Application and Activation**
@@ -111,7 +107,7 @@ The process of applying for and activating YouTube Short Funding is simple. You 
 ![youtube shorts fund monetization module](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-4.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Head over to the YouTube Studio. Sign in to your account to accept the terms. Be sure to use a web browser because the YouTube app will not allow you to make these changes. Accept the terms and follow these steps to turn on the ads:
@@ -122,7 +118,7 @@ Head over to the YouTube Studio. Sign in to your account to accept the terms. Be
 4. **Setp 4**: Save your settings and the ads will be active.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 4\. Editing YouTube Shorts for More Revenue with Wondershare Filmora**
@@ -139,6 +135,10 @@ Filmora can help create visually appealing and engaging videos, ultimately incre
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
@@ -148,7 +148,7 @@ Texts tell the audience what is happening in the video. It is also a great way t
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -176,18 +176,19 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/igital-cash-creation-a-closer-look-at-vids-vs-videos-for-2024/"><u>[New] Digital Cash Creation A Closer Look at Vids Vs. Videos for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-to-send-a-snap-from-memoriescamera-roll-on-snapchat/"><u>[New] How to Send a Snap From Memories/Camera Roll on Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-archive-your-antics-a-practical-guide-to-capturing-and-storing-gif-images-from-twitter/"><u>[Updated] Archive Your Antics A Practical Guide to Capturing and Storing GIF Images From Twitter</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[Updated] Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-leading-10-4k-dslr-shoulder-rigs/"><u>Cutting Edge Leading 10 4K DSLR Shoulder Rigs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dancefloor-dynamics-free-pristine-dj-template-videos-for-2024/"><u>Dancefloor Dynamics Free, Pristine DJ Template Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevate-your-viewing-game-with-concurrent-channel-watches-for-2024/"><u>Elevate Your Viewing Game with Concurrent Channel Watches for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-one-off-to-firm-follower-an-ethical-approach/"><u>From One-Off to Firm Follower An Ethical Approach</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-5-video-editing-software-excluding-youtube/"><u>In 2024, Essential 5 Video Editing Software Excluding Youtube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-ultimate-guide-to-facebook-friendly-xbox-play/"><u>In 2024, The Ultimate Guide to Facebook-Friendly Xbox Play</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-price-guide-for-cloud-storage-services/"><u>In 2024, Ultimate Price Guide for Cloud Storage Services</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-7-free-online-music-services-on-iphone-and-android-our-expert-picks/"><u>Top 7 Free Online Music Services on iPhone & Android: Our Expert Picks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-epic-viewership-winners-youtubes-ultimate-list/"><u>[New] Epic Viewership Winners YouTube's Ultimate List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mastering-the-art-of-iphone-speech-capture/"><u>[New] In 2024, Mastering the Art of iPhone Speech Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[Updated] Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[Updated] Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unearthing-vivas-video-capabilities/"><u>2024 Approved Unearthing Viva's Video Capabilities</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-mov-video-editing-software-top-6-cutting-tools/"><u>Free MOV Video Editing Software Top 6 Cutting Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-and-practicing-with-creative-commons-licenses/"><u>In 2024, Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-driving-engagement-and-growth-the-role-of-brand-in-youtube-success/"><u>In 2024, Driving Engagement and Growth The Role of Brand in YouTube Success</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lg-digital-cinema-31mu97-b-4k-monitor-review-for-2024/"><u>LG Digital Cinema 31MU97-B 4K Monitor Review for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-alan-wake-amidst-2024-comprehensive-solutions-to-prevent-game-freezes/"><u>Mastering Alan Wake Amidst 2024: Comprehensive Solutions to Prevent Game Freezes</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/reverting-thinkcentre-computer-back-to-original-factory-settings-four-effective-methods/"><u>Reverting ThinkCentre Computer Back to Original Factory Settings: Four Effective Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/standout-6-platforms-empowering-biz-marketing-for-2024/"><u>Standout 6 Platforms Empowering Biz Marketing for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/strategic-approach-eradicate-screen-lines-in-computers-and-notebooks/"><u>Strategic Approach: Eradicate Screen Lines in Computers and Notebooks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transformar-video-de-h265-en-h-264-gratis-con-garantia-de-alta-fidelidad-visual/"><u>Transformar Video De H.265 En H. 264 Gratis Con Garantía De Alta Fidelidad Visual</u></a></li>
 </ul></div>
 

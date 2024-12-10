@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Youtuber Convention Guide (Post-VidCon)\""
-date: 2024-12-01T22:47:33.091Z
-updated: 2024-12-04T00:58:49.992Z
+date: 2024-12-04T16:01:38.693Z
+updated: 2024-12-10T16:29:53.843Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -85,7 +81,7 @@ You have a two-week window (usually the first half of May) to submit your choice
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -122,6 +118,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -147,7 +147,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -161,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -200,10 +204,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -247,18 +247,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-boosting-strategies-effortless-sponsorship-securing-tips/"><u>[New] Channel Boosting Strategies Effortless Sponsorship Securing Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cultivating-a-visionary-channel-with-best-video-ideas-for-2024/"><u>[New] Cultivating a Visionary Channel with Best Video Ideas for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-setting-up-a-stream-discord-edition-101/"><u>[New] Setting Up a Stream Discord Edition 101</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-slow-motion-showcase-top-cameras-with-unparalleled-snapshot-power-for-2024/"><u>[New] Slow-Motion Showcase Top Cameras with Unparalleled Snapshot Power for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-craft-stellar-channels-best-10-apps-for-artistic-banner-design/"><u>[Updated] Craft Stellar Channels Best 10 Apps for Artistic Banner Design</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-lava-yuva-2-pro-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Lava Yuva 2 Pro</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-14-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How to Change Your Apple iPhone 14 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-efficiently-transfer-vids-from-premiere-to-youtube/"><u>In 2024, Efficiently Transfer Vids From Premiere to YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-production-7-best-free-sounds-for-editors/"><u>In 2024, Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/jest-journeys-charting-7-comedic-paths-to-viral-videos/"><u>Jest Journeys Charting 7 Comedic Paths to Viral Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/making-a-mark-jujutsu-kaisen-on-the-tiktok-scene-for-2024/"><u>Making a Mark Jujutsu Kaisen on the TikTok Scene for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/understanding-and-executing-ps5-remote-reset/"><u>Understanding and Executing PS5 Remote Reset</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/when-youre-not-who-you-think-during-a-facebook-call-for-2024/"><u>When You're Not Who You Think During a Facebook Call for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-achieving-a-million-on-the-map-a-strategic-view-to-sub-guide/"><u>[Updated] Achieving a Million on the Map A Strategic View-to-Sub Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-decoding-youtubes-earning-rules-update/"><u>[Updated] Decoding YouTube's Earning Rules Update</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-cinema-youtubes-compreranche-guide-for-filmmakers/"><u>2024 Approved Crafting Cinema YouTube's Compreranche Guide for Filmmakers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-definition-screens-selecting-your-optimal-4k-display/"><u>2024 Approved High Definition Screens Selecting Your Optimal 4K Display</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/bypass-latency-with-av1-in-youtube-settings/"><u>Bypass Latency with AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-upgrade-the-beginners-roadmap-to-video-mastery-for-2024/"><u>Channel Upgrade The Beginner's Roadmap to Video Mastery for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/chemical-treatment/"><u>Chemical Treatment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>In 2024, Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-xiaomi-civi-3-by-drfone-android/"><u>In 2024, How to Bypass FRP from Xiaomi Civi 3?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-mpow-bluetooth-driver-updates-available-easy-installation-for-windows-1087-users/"><u>Latest MPOW Bluetooth Driver Updates Available – Easy Installation for Windows 10/8/7 Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-meets-portability-with-facebooks-new-launch/"><u>Portal Meets Portability with Facebook’s New Launch</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/precision-in-visuals-how-to-blur-backgrounds-on-teamblend/"><u>Precision in Visuals How to Blur Backgrounds on Teamblend</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/premium-film-experiences-yts-best-of-lists/"><u>Premium Film Experiences YT's Best Of Lists</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-issue-of-voicemod-application-malfunction-top-strategies-revealed/"><u>Solving the Issue of Voicemod Application Malfunction – Top Strategies Revealed!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-efficient-youtube-follow-link-design/"><u>The Essential Guide to Efficient YouTube Follow Link Design</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-how-to-record-and-save-youtube-videos-without-spending-a-penny/"><u>The Ultimate Guide How To Record and Save YouTube Videos without Spending a Penny</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unlocking-efficiency-a-comprehensive-review-of-superior-network-servers-and-enclosures/"><u>Unlocking Efficiency: A Comprehensive Review of Superior Network Servers & Enclosures</u></a></li>
 </ul></div>
 

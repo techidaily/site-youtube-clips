@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-11-30T23:10:25.967Z
-updated: 2024-12-03T20:51:58.039Z
+date: 2024-12-03T17:47:54.538Z
+updated: 2024-12-10T17:56:27.094Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -52,6 +56,10 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -74,7 +82,7 @@ It is always best to use a current photo of yourself. Many times viewers will go
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
@@ -97,10 +105,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -112,10 +116,6 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -138,7 +138,7 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Touch Up YouTube Videos with Filmora
@@ -150,7 +150,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -168,20 +168,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>[New] Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-behind-the-scenes-insider-knowledge-for-youtube-video-production/"><u>[New] Behind the Scenes Insider Knowledge for YouTube Video Production</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-branding-excellence-youtube-naming-masterclass/"><u>[New] Branding Excellence YouTube Naming Masterclass</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-for-new-gopro-users-here-are-essential-accessories/"><u>[Updated] 2024 Approved For New GoPro Users, Here Are Essential Accessories</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-conquering-competition-crafting-standout-youtube-advertising-banners/"><u>[Updated] Conquering Competition Crafting Standout YouTube Advertising Banners</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-ultimate-macos-experience-with-screenflow-reviewed/"><u>[Updated] The Ultimate MacOS Experience with ScreenFlow Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-female-youtubers-lastest/"><u>[Updated] Top 10 Female YouTubers [Lastest]</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-cost-effective-strategies-to-combine-videos-with-text/"><u>2024 Approved Cost-Effective Strategies to Combine Videos with Text</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-framed-to-impress-your-guide-to-tweets-in-high-definition/"><u>2024 Approved Framed to Impress Your Guide to Tweets in High Definition</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-of-lut-customization-in-premiere/"><u>2024 Approved Unveiling the Secrets of LUT Customization in Premiere</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-motorola-defy-2-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Motorola Defy 2 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ai-powered-document-management-comparative-analysis-of-abbyy-vs-pegasystems-solutions/"><u>AI-Powered Document Management: Comparative Analysis of ABBYY Vs. Pegasystems Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogues-fortified-facebooks-implementation-of-end-to-point-encryption-on-instagrammessenger/"><u>Digital Dialogues Fortified: Facebook's Implementation of End-To Point Encryption on Instagram/Messenger.</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/optimizing-content-editing-youtube-descriptions-and-titles-for-growth/"><u>Optimizing Content Editing YouTube Descriptions & Titles for Growth</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/supercharge-your-media-download-sounds-for-editing/"><u>Supercharge Your Media Download Sounds for Editing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-relish-free-movie-playback-pc-and-mac-style/"><u>[New] 2024 Approved Relish Free Movie Playback, PC & Mac Style</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expert-tips-for-snagging-superior-pixels-without-spending-for-2024/"><u>[New] Expert Tips for Snagging Superior Pixels Without Spending for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-direct-route-uploading-from-youtube-to-dailymotion/"><u>[Updated] Direct Route Uploading From YouTube to Dailymotion</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-go-green-integrate-subscriptions-in-ads/"><u>[Updated] In 2024, Go Green Integrate Subscriptions in Ads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-proven-pathways-to-profit-with-youtube-short-videos/"><u>[Updated] Proven Pathways to Profit with YouTube Short Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-spark-change-with-these-10-inspirational-classics/"><u>[Updated] Spark Change with These 10 Inspirational Classics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-sharing-the-spotlight-involving-viewers-in-your-journey/"><u>2024 Approved Sharing the Spotlight Involving Viewers in Your Journey</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dive-into-the-world-of-youtuber-shorts-for-2024/"><u>Dive Into the World of Youtuber Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-seamlessly-integrate-captions-into-youtube-videos/"><u>How to Seamlessly Integrate Captions Into YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-youtubes-features-to-improve-visuals/"><u>Leveraging YouTube's Features to Improve Visuals</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/los-mejores-conversores-libres-de-video-en-windows-western-family-pictures-a-recent-trend-in-modern-art/"><u>Los Mejores Conversores Libres De Vídeo en Windows #WESTERN FAMILY PICTURES, A RECENT TREND IN MODERN ART</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-disabling-the-mute-symbol-on-your-iphone-15-pro/"><u>Step-by-Step Guide: Disabling the Mute Symbol on Your iPhone 15 Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/visual-branding-mastery-implementing-watermarks-and-logos-into-video-content/"><u>Visual Branding Mastery Implementing Watermarks & Logos Into Video Content</u></a></li>
 </ul></div>
 

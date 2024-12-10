@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Echoes of Exploration  Your Step-by-Step Blueprint to Becoming a Travel Vlogger\""
-date: 2024-11-30T00:24:30.114Z
-updated: 2024-12-04T02:51:23.564Z
+date: 2024-12-06T16:25:02.567Z
+updated: 2024-12-10T17:41:38.722Z
 tags:
   - ai video
   - ai youtube
@@ -37,15 +37,19 @@ Below, I have prepared a comprehensive guide on how to become a travel vlogger.
 | Table of Contents [PART 1: TRAVEL VLOGGING EQUIPMENT](#TravelVloggingEquipment) [1.1 Travel Vlogging Cameras](#TravelVloggingCameras) [How To Choose A Travel Vlogging Camera](#WhatToLookForInAVloggingCamera)[Cameras That Are Good For Travel Vlogging](#CamerasThatAreGoodForTravelVlogging)[Lenses That Are Good For Travel Vlogging](#LensesThatAreGoodForTravelVlogging) [1.2 Travel Vlogging Accessories](#TravelVloggingAccessories) [Camera Accessories That Are Good For Travel Vlogging](#CameraAccessoriesThatAreGoodForTravelVlogging)[Smartphone Accessories That Are Good For Travel Vlogging](#SmartphoneAccessoriesThatAreGoodForTravelVlogging)[Camera Mounted Shotgun Microphone For Travel Vlogging](#CameraMountedShotgunMicrophonesforTravelVlogging)[Other Useful Travel Vlogging Accessories](#OtherUsefulTravelVloggingAccessories) [PART 2: TRAVEL VIDEO IDEAS](#TRAVELVIDEOIDEAS) [PART 3: TRAVEL VIDEO EDITING](#TRAVELVIDEOEDITING) [Video Editing Software](#VideoEditingSoftwares)[Travel-Themed Video Effects](#TravelThemedVideoEffects)[Music Libraries](#MusicLibraries)[Sound Effects](#SoundEffects) [PART 4: TRAVEL VLOGGING TIPS](#TRAVELVLOGGINGTIPS) |
 | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Create Your Travel Vlog with Wondershare FilmoraX
 
 Wondershare FilmoraX is a video editing application that offers a lot of editing features that can be used both by a beginner and professionals alike. You can easily cut, split and trim your video, and apply transitions, filters, and texts, etc. to your travel vlog. What's more, its advanced color grading settings and audio keyframing will add a unique flavor to your travel vlog. Just get started and make your video go viral!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## PART 1: TRAVEL VLOGGING EQUIPMENT
 
@@ -82,43 +86,47 @@ Considering my list on what to look for in a travel vlogging camera, I’ve prep
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-eos1.png)                | February2018  | Mirrorless    | Fully Articulated | **Yes** | $-   |
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/panasonic-lumix2.png)     | January2018   | Mirrorless    | Fully Articulated | **Yes** | $$$ |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 | GoProHero6 Black           | ![GoPro Hero6](https://images.wondershare.com/filmora/article-images/gopro-hero3.png)             | September2017 | Action Camera | **No**            | **Yes** | $-    |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-eos4.png)               | August2017    | Mirrorless    | Flip-Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 | CanonEOS6D Mark II         | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/canon-eos5.png)         | June2017      | Mid-size SLR  | Fully Articulated | **Yes** | $$  |
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-eos6.png)                | June2017      | Compact SLR   | Fully Articulated | **Yes** | $    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-eos7.png)                | February2017  | Mid-size SLR  | Fully Articulated | **Yes** | $-   |
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/canon-eos8.png)                 | February2017  | Mirrorless    | Flip-Up           | **Yes** | $    |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/sony-cyber-shot9.png)       | October2016   | Compact       | Flip-Up           | **No**  | $-   |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 | PanasonicLumix DMCG85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/panasonic-lumix10.png)     | September2016 | Mirrorless    | Fully Articulated | **Yes** | $-   |
 | PanasonicLumix DMCLX10     | ![Panasonic LX10](https://images.wondershare.com/filmora/article-images/panasonic-lumix11.png)    | September2016 | Compact       | Flip-Up           | **No**  | $    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-eos12.png)               | February2016  | Mid-size SLR  | Fully Articulated | **Yes** | $$   |
 
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/canon-powershot13.png) | February2016  | Compact       | Flip-Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####
 
@@ -144,17 +152,13 @@ Check out my [Best Camera Lens for YouTube](https://tools.techidaily.com/wonders
 | ------------------------------------------------------------------------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 | ![GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/gorilla-pod2.jpg)         | **2\. GorillaPod SLR-Zoom with Ballhead** Wrap your camera around structures that your regular tripod can't stay on. You can also hold out your camera further away from you using the GorillaPod as a selfie stick to fit in more of your background into your selfie shot.                                                                                                                         |
 | ![Stabilizing Gimbal](https://images.wondershare.com/filmora/article-images/stablizing-gimbal3.jpg)    | **3\. Stabilizing Gimbal** Get super-smooth shots with a stabilizing gimbal.                                                                                                                                                                                                                                                                                                                         |
 
 | ![Travel LED Light](https://images.wondershare.com/filmora/article-images/camera-led4.jpg)             | **4\. On-Camera LED Light** Is there not enough light? Add an LED light to your camera's hot/cold shoe.                                                                                                                                                                                                                                                                                              |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 | ![ND Filters](https://images.wondershare.com/filmora/article-images/neutral-density-filters5.jpg)      | **5\. Neutral Density (ND) Filters** Is it too bright outside to have your [aperture](https://tools.techidaily.com/wondershare/filmora/download/) wide open but you still want to get that [cinematic look](https://tools.techidaily.com/wondershare/filmora/download/)? You can add ND filters to your lenses so that you can do just that in very bright conditions. |
 
@@ -163,7 +167,7 @@ Check out my [Best Camera Lens for YouTube](https://tools.techidaily.com/wonders
 | ![Drone](https://images.wondershare.com/filmora/article-images/drone7.jpg)                             | **7\. Drone** When it comes to travel vlogging, wide shots that establish the scene and setting are important. Drones are great for taking these kinds of wide shots from high places that you would not be able to get to by foot.                                                                                                                                                                  |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ####
@@ -402,10 +406,6 @@ Here in this article, I shared travel vlogging cameras &accessories, travel vide
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -423,22 +423,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-end-screen-essentials-for-social-media-success-on-youtube/"><u>[New] End-Screen Essentials for Social Media Success on YouTube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-steady-visual-commencement/"><u>[New] In 2024, Steady Visual Commencement</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-sensory-storytelling-crafting-engaging-food-videos-for-2024/"><u>[New] Sensory Storytelling Crafting Engaging Food Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-art-of-repeated-imagery-in-instagram-videos-for-2024/"><u>[New] The Art of Repeated Imagery in Instagram Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[Updated] Boosting Channel Profitability FameBit-Powered Sponsorship Tactics</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-decoding-the-art-of-asmr-filmmaking-techniques-for-2024/"><u>[Updated] Decoding the Art of ASMR Filmmaking Techniques for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-is-a-brief-subscribe-beneficial-for-content-consumption/"><u>[Updated] Is a Brief Subscribe Beneficial for Content Consumption?</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/1-transfert-ultime-de-fichiers-macx-mediatrans-le-meilleur-gestionnaire-multimedia-pour-apple-devices/"><u>1. Transfert Ultime De Fichiers: MacX MediaTrans - Le Meilleur Gestionnaire Multimédia Pour Apple Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/designing-custom-youtube-music-sequences-for-2024/"><u>Designing Custom YouTube Music Sequences for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-speaker-emitting-crackles-on-windows-107-systems-a-complete-solution/"><u>How to Fix a Speaker Emitting Crackles on Windows 10/7 Systems - A Complete Solution</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-make-video-thumbnails-for-youtube/"><u>How to Make Video Thumbnails for YouTube</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-vivo-x-flip-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo X Flip Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cementing-your-place-in-youtube-by-mastering-creative-studio-techniques/"><u>In 2024, Cementing Your Place in YouTube by Mastering Creative Studio Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-ideal-youtube-playlist-an-easy-step-by-step-method/"><u>In 2024, Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform/"><u>In 2024, Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-complete-screen-recorders-playbook/"><u>In 2024, The Complete Screen Recorder's Playbook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tech-savvy-tips-for-downloading-youtube-playlists-fast/"><u>Tech-Savvy Tips for Downloading YouTube Playlists Fast</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-20-most-popular-memes-on-reddit-and-twitter/"><u>[Updated] 2024 Approved 20 Most Popular Memes on Reddit and Twitter</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-charting-new-heights-with-popular-youtube-content/"><u>[Updated] Charting New Heights with Popular YouTube Content</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-yourself-from-paywalls-with-these-subtitle-getters-for-2024/"><u>[Updated] Free Yourself From Paywalls with These Subtitle Getters for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/create-customizable-page-turning-ebooks-for-apple-devices-using-flipbuilder-technology/"><u>Create Customizable Page-Turning Ebooks for Apple Devices Using FlipBuilder Technology</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/direct-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/"><u>Direct Access to Streams How to Download YouTube Videos to Your iOS Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/download-youtube-videos-anywhere-anytime-free-android-tips/"><u>Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effective-approaches-to-downloading-hectic-tiktok-archives-for-2024/"><u>Effective Approaches to Downloading Hectic TikTok Archives for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engaging-vlogger-subjects-each-day/"><u>Engaging Vlogger Subjects Each Day</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-ensuring-your-game-works-correctly-by-validating-its-data/"><u>Expert Advice: Ensuring Your Game Works Correctly by Validating Its Data</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expressiveness-in-yt-adopting-emojis/"><u>Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-breakthrough-youtube-success-essential-tips-from-creator-studio-guide/"><u>In 2024, Breakthrough YouTube Success Essential Tips From Creator Studio Guide</u></a></li>
+<li><a href="https://discover-great.techidaily.com/solve-gmail-not-synching-on-outlook-mac-issue-discover-the-best-top-ranked-solutions/"><u>Solve Gmail Not Synching on Outlook Mac Issue: Discover the Best Top-Ranked Solutions</u></a></li>
 </ul></div>
 

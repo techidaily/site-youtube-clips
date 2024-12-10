@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2024-11-29T22:12:20.456Z
-updated: 2024-12-04T01:50:49.202Z
+date: 2024-12-07T17:01:37.228Z
+updated: 2024-12-10T16:09:22.675Z
 tags:
   - win11
   - win10
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
  If you’ve recently upgraded to Windows 10 Fall Creators Update, version 1709, and found that your **Start menu is not opening** , making it impossible to use the very handy Search feature, you’re not alone.
 
  Many Windows 10 users are reporting this problem as well. But no worries, we’re here to help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fixes for ‘Windows 10 Start Menu Not Working’
 
@@ -45,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1: Relog into your account
@@ -61,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a59dfeba.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3) Check if your Start menu works all right now.
@@ -69,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
  If the same problem keeps reoccurring, you may need to try other methods below.
 
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2: Create a new user account
 
@@ -79,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
@@ -91,10 +95,6 @@ net user newusername newpassword /add
  We are using the username**“easeware”** and password “**drivereasy”** as an example in the screenshot, you can set them as per your own preference.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8bbeac77b.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 5) Restart your computer and log into the new user account.
 
@@ -116,13 +116,13 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b931f18df7.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When prompted with the following notification, tick the box for**Delete the driver software for this device** and click**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b939274834.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) Restart your computer after the uninstall of both of your video card driver and your sound card driver.
 
@@ -148,10 +148,6 @@ net user newusername newpassword /add
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4: Disable or uninstall third-party antivirus programs
 
  If you’ve installed antivirus or anti-malware programs such as Norton, Kaspersky, AVG, Avast Behavior Shield or Malwarebytes, you should **temporarily**   turn them off or disable them to see if they’re causing your Start menu not working problem. If your computer’s Start menu returns to normal when they’re off, you should contact the vendor of the software to see if they can provide some help.
@@ -159,10 +155,6 @@ net user newusername newpassword /add
  Note that Microsoft has its own default anti-malware, **Windows Defender** . It’s automatically enabled even if you also have other antivirus applications installed. Even if you disable your other antivirus programs, Windows Defender is always there for you during that certain time range. So, no need to worry too much about temporarily turning antivirus off.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5: Uninstall Dropbox
 
@@ -174,13 +166,13 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2) View by**Category** , then click**Uninstall a program** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b984aa9035.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  3) Find Dropbox, and click**Uninstall** to get it removed from your computer.
 
@@ -212,17 +204,25 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4) Type**sfc /scannow** in and press the**Enter** key on your keyboard. Wait for a while for the process to complete.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b9c44015d6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If the result you see is the same with the screen shot above, your system files are all right, and you should move on and run another test. 5) Copy and paste the following command in, and press the Enter key on your keyboard. Still, it could take a while, wait with patience.
 
@@ -234,10 +234,6 @@ DISM /Online /Cleanup-Image /RestoreHealth
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8: Reinstall Cortana
 
  The reason why your Start menu and Cortana is not working could be that they are installed wrong, somehow. You can reinstall them to get the Start menu feature back. Here is how:
@@ -245,6 +241,10 @@ DISM /Online /Cleanup-Image /RestoreHealth
  1) Right-click the task bar on your desktop at the bottom and click **Task Manager** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
@@ -290,22 +290,19 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-chart-topping-content-youtubes-top-5/"><u>[New] Chart-Topping Content YouTube's Top 5</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-elevating-ppt-impact-through-high-quality-recordings/"><u>[New] In 2024, Elevating PPT Impact Through High-Quality Recordings</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-transforming-trips-into-tales-the-roadmap-to-becoming-a-travel-blogger/"><u>[Updated] 2024 Approved Transforming Trips Into Tales The Roadmap to Becoming a Travel Blogger</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieving-professional-level-youtube-streams-using-wirecast/"><u>[Updated] Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-professional-content-on-youtube-via-enhancements/"><u>[Updated] Crafting Professional Content on YouTube via Enhancements</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhance-info-blocks-templates-for-youtube-titles/"><u>[Updated] Enhance Info Blocks Templates for YouTube Titles</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-for-students-discover-the-top-10-historical-youtube-channels-now/"><u>2024 Approved For Students, Discover the Top 10 Historical YouTube Channels Now</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-securing-your-gaming-victories-through-fbx/"><u>2024 Approved Securing Your Gaming Victories Through FBX</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/beyond-boundaries-channel-youtube-for-exciting-green-screens-for-2024/"><u>Beyond Boundaries Channel Youtube for Exciting Green Screens for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/efficiently-managing-youtube-videos-with-the-watch-later-feature-for-2024/"><u>Efficiently Managing YouTube Videos with the Watch Later Feature for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-a14-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/quick-steps-to-validate-your-youtube-login/"><u>Quick Steps to Validate Your YouTube Login</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-might-of-innovation-how-noctua-reinvented-heat-dissipation-for-nvidias-gh200-superchip/"><u>The Might of Innovation: How Noctua Reinvented Heat Dissipation for Nvidia's GH200 Superchip</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-samsung-galaxy-a14-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Samsung Galaxy A14 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforma-videos-de-caf-a-m4a-libremente-y-sin-gasto-utilizando-la-herramienta-en-linea-de-movavi/"><u>Transforma Vídeos De CAF a M4A Libremente Y Sin Gasto Utilizando La Herramienta en Línea De Movavi</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1726030596949-windows-114/"><u>Windows 11におけるマイク録音テクニックトップ4</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-jumping-into-the-virtual-discussions-via-google-for-2024/"><u>[New] Jumping Into the Virtual Discussions via Google for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-rank-your-download-preferences-with-our-top-5-list-for-2024/"><u>[New] Rank Your Download Preferences with Our Top 5 List for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-surge-strategy-using-youtube-outros-for-rapid-expansion/"><u>[Updated] Channel Surge Strategy Using YouTube Outros for Rapid Expansion</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-expert-insights-leveraging-discords-video-call-capabilities/"><u>2024 Approved Expert Insights Leveraging Discord's Video Call Capabilities</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/fixing-the-infamous-black-loading-screen-in-nba-2k21-2024-update/"><u>Fixing the Infamous Black Loading Screen in NBA 2K21 - 2024 Update</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-xs-max-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock iPhone XS Max 3 Ways To Unlock</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>In 2024, Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-easy-and-inexpensive-techniques-for-youtube-cards/"><u>In 2024, Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-11-pro-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>In 2024, iPhone 11 Pro Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/samsung-tv-revival-strategies-a-complete-walkthrough-of-system-restores/"><u>Samsung TV Revival Strategies: A Complete Walkthrough of System Restores</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-encyclopedia-of-touch-based-gesture-analytics/"><u>The Encyclopedia of Touch-Based Gesture Analytics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-path-to-youtube-wealth-top-revenue-tactics/"><u>The Path to YouTube Wealth Top Revenue Tactics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-pathway-to-online-success-building-a-new-youtube-channel/"><u>The Pathway to Online Success Building a New YouTube Channel</u></a></li>
 </ul></div>
 
