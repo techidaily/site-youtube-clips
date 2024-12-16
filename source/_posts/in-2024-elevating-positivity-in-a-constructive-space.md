@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-12-08T17:16:02.950Z
-updated: 2024-12-10T16:07:36.726Z
+date: 2024-12-09T18:30:23.264Z
+updated: 2024-12-16T18:19:16.849Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,14 +77,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mastering-youtube-timestamp-addition-for-desktop-and-mobile-devices/"><u>[Updated] In 2024, Mastering YouTube Timestamp Addition for Desktop & Mobile Devices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-snapquarter-testimony/"><u>[Updated] In 2024, SnapQuarter Testimony</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-deciphering-the-innovative-world-of-youtube-studio/"><u>2024 Approved Deciphering the Innovative World of YouTube Studio</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-poco-f5-pro-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Poco F5 Pro 5G Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/5-star-channel-cutting-long-urls-down-for-youtube-videos-for-2024/"><u>5-Star Channel Cutting Long URLs Down for YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-list-makeup-tutorials-who-to-watch/"><u>A-List Makeup Tutorials Who to Watch ?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/captivate-crowds-social-media-growth-hacks-for-youtube-for-2024/"><u>Captivate Crowds Social Media Growth Hacks for YouTube for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/to-update-or-not-exploring-the-benefits-of-ios-17/"><u>To Update or Not: Exploring the Benefits of iOS 17</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-dev-error-6634-in-call-of-duty-warzone-tip-list-2022/"><u>Troubleshooting Steps for Dev Error 6634 in Call of Duty: Warzone (Tip List 2022)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-earning-through-youtube-an-overview/"><u>[New] Earning Through YouTube An Overview</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-efficient-name-alteration-for-meet-sessions-laptopmobile/"><u>[New] Efficient Name Alteration for Meet Sessions (Laptop/Mobile)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-a-viral-traction-with-6-strategic-steps-in-youtube-marketing/"><u>[Updated] 2024 Approved Creating a Viral Traction with 6 Strategic Steps in YouTube Marketing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>[Updated] Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dive-into-windows-new-horizons-the-latest-iteration-for-2024/"><u>[Updated] Dive Into Windows' New Horizons The Latest Iteration for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>2024 Approved Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-does-your-channel-benefit-from-regular-youtube-payments/"><u>2024 Approved Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-nix-youtube-snippet-playback-on-all-devices/"><u>2024 Approved Nix YouTube Snippet Playback on All Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/aspect-ratios-unveiled-your-guide-to-stellar-yt-images-for-2024/"><u>Aspect Ratios Unveiled Your Guide to Stellar YT Images for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpts-new-voice-mastering-prompt-and-command-interactions/"><u>ChatGPT's New Voice: Mastering Prompt and Command Interactions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engage-and-inspire-viewers-animated-subscribers-in-filmora-explained-for-2024/"><u>Engage and Inspire Viewers - Animated Subscribers in Filmora Explained for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-creativity-6-aplus-apps-for-instagram-reels/"><u>In 2024, Elevate Your Creativity 6 A+ Apps for Instagram Reels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-apps-best-10-software-to-capture-your-screens/"><u>In 2024, Essential Apps Best 10 Software to Capture Your Screens</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-panasonic-hx-a1-actioncam-in-depth-review/"><u>In 2024, Panasonic HX-A1 ActionCam In-Depth Review</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-5-best-mp4-video-editors-totally-free-for-2024/"><u>New Top 5 Best MP4 Video Editors Totally Free for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/strategies-to-handle-exclusive-video-formats/"><u>Strategies to Handle Exclusive Video Formats</u></a></li>
 </ul></div>
 

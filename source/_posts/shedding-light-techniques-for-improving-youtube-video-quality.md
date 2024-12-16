@@ -1,7 +1,7 @@
 ---
 title: "\"Shedding Light  Techniques for Improving YouTube Video Quality\""
-date: 2024-12-08T16:26:12.343Z
-updated: 2024-12-10T17:18:17.053Z
+date: 2024-12-09T20:08:21.392Z
+updated: 2024-12-16T19:25:42.126Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -47,15 +51,7 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -63,11 +59,19 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -84,7 +88,7 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
@@ -94,7 +98,7 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -104,10 +108,6 @@ As a YouTuber, you may not only want yourself to be seen optimally with proper l
 What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
 
@@ -132,24 +132,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-answers.techidaily.com/solved-apex-legends-not-loading-quickly-and-easily/"><u>[Solved] Apex Legends Not Loading | Quickly & Easily</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-visibility-with-instagrams-highlight-system/"><u>[Updated] Maximizing Visibility with Instagram's Highlight System</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-the-painters-touch-mastering-color-artistry/"><u>[Updated] The Painter's Touch Mastering Color Artistry</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/10-best-cost-free-subtitle-grabs-from-youtube-for-2024/"><u>10 Best Cost-Free Subtitle Grabs From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-how-to-make-a-youtube-intro-video/"><u>2024 | How to Make a YouTube Intro Video？</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-peak-performance-in-video-submissions-on-youtube/"><u>2024 Approved Achieving Peak Performance in Video Submissions on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-creating-continuous-viewing-pleasure-on-television/"><u>2024 Approved Creating Continuous Viewing Pleasure on Television</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elite-screening-pacts-how-to-choose-a-cms/"><u>2024 Approved Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-youtube-presence-with-strategic-banners/"><u>2024 Approved Enhancing YouTube Presence with Strategic Banners</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-the-breathtaking-beijing-winter-games-of-2022/"><u>2024 Approved The Breathtaking Beijing Winter Games of 2022</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-unbeatable-chatgpt-plugins-to-transform-your-site-today/"><u>5 Unbeatable ChatGPT Plugins to Transform Your Site Today</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-comprehensive-guide-to-creating-viral-youtube-shorts-videos/"><u>A Comprehensive Guide to Creating Viral YouTube Shorts Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/avoid-common-mistakes-in-youtube-livestreaming-with-best-webcams-for-2024/"><u>Avoid Common Mistakes in YouTube Livestreaming with Best Webcams for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/carve-out-your-chatai-masterpiece/"><u>Carve Out Your ChatAI Masterpiece</u></a></li>
-<li><a href="https://win-online.techidaily.com/est-ce-que-la-desolidarisation-donedrive-entraine-la-suppression-des-fichiers/"><u>Est-Ce Que La Désolidarisation D'OneDrive Entraîne La Suppression Des Fichiers ?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-prime-construction-tips-for-mc-community-abodes/"><u>In 2024, Prime Construction Tips for MC Community Abodes</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/mxfwav-movavi/"><u>MXFとWAVファイルの無料オンライン変換 - Movavi</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-uneven-sound-discover-why-your-airpods-have-volume-discrepancies-and-how-to-correct-it/"><u>Solving Uneven Sound: Discover Why Your AirPods Have Volume Discrepancies & How to Correct It</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/1716465306641-stylish-profiles-easy-downloads/"><u>Stylish Profiles, Easy Downloads!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-guide-to-budget-friendly-4k-cameras/"><u>[New] In 2024, Ultimate Guide to Budget-Friendly 4K Cameras</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-earning-on-tiktok-step-by-step-8-methods/"><u>[Updated] 2024 Approved The Ultimate Guide to Earning on TikTok, Step by Step (8 Methods)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-how-to-block-spotifys-unrequested-podcast-episodes-for-2024/"><u>[Updated] How to Block Spotify's Unrequested Podcast Episodes for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/capture-attention-yt-imagery-and-its-dimension-magic-for-2024/"><u>Capture Attention YT Imagery and Its Dimension Magic for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-screen-time-youtubes-top-movies-list/"><u>Cutting Edge Screen Time YouTube's Top Movies List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-infinix-note-30i-device-sim-by-drfone-android/"><u>Easily Unlock Your Infinix Note 30i Device SIM</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-engagement-through-thoughtful-youtube-tags-for-2024/"><u>Enhancing Engagement Through Thoughtful YouTube Tags for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-features-of-new-cycwagen-e-cargo-bike-a-personal-encounter/"><u>Explore the Features of New CycWagen E-Cargo Bike: A Personal Encounter</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-affordable-techniques-to-enhance-written-content-with-media/"><u>In 2024, Affordable Techniques to Enhance Written Content with Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dual-watch-dynamics-navigating-youtube-in-parallel/"><u>In 2024, Dual-Watch Dynamics Navigating YouTube in Parallel</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-xiaomi-redmi-k70-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Xiaomi Redmi K70 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-trending-14-moving-text-design-illustrations/"><u>In 2024, Trending 14 Moving Text Design Illustrations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/instant-grooves-lasting-stories-making-sense-of-music-shorts/"><u>Instant Grooves, Lasting Stories Making Sense of Music Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlined-approach-to-validate-your-yt-identity/"><u>Streamlined Approach to Validate Your YT Identity</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-strategy-guide-to-boosting-view-count-on-youtube-shorts/"><u>The Ultimate Strategy Guide to Boosting View Count on YouTube Shorts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-note-12-pro-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi Note 12 Pro 5G Device</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-efficiency-boosted-setting-up-zoom-right/"><u>Virtual Efficiency Boosted Setting Up Zoom Right</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Decoding YouTube’s Operations Following Uploads"
-date: 2024-12-09T17:05:32.861Z
-updated: 2024-12-10T17:40:41.924Z
+date: 2024-12-14T21:05:02.978Z
+updated: 2024-12-16T20:38:37.487Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,14 +85,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-from-zip-to-sub-transforming-compressed-texts-to-srt-format-for-2024/"><u>[New] From Zip to Sub Transforming Compressed Texts to SRT Format for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-method-for-seamless-volume-dialing-down-in-audacity/"><u>[New] The Method for Seamless Volume Dialing Down in Audacity</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discover-youtubes-frame-advantage-five-free-tools/"><u>Discover YouTube's Frame Advantage - Five Free Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ensuring-long-term-youtube-success-with-creative-commons-mainteninas-for-2024/"><u>Ensuring Long-Term YouTube Success with Creative Commons Mainteninas for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/get-inspired-from-top-10-recruitment-videos/"><u>Get Inspired From Top 10 Recruitment Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker/"><u>Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-poco-m6-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Poco M6 5G FRP Bypass</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-green-blueprint-planning-for-a-resilient-urban-future/"><u>In 2024, Green Blueprint Planning for a Resilient Urban Future</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ring-the-art-of-locating-your-youtube-discussions/"><u>Mastering the Art of Locating Your YouTube Discussions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-configuring-who-can-see-your-youtube-clips/"><u>[New] Configuring Who Can See Your YouTube Clips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-superior-8-filter-trios-for-broadcast-excellence/"><u>[New] In 2024, Superior 8 Filter Trios for Broadcast Excellence</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-test-intova-xs-video-capabilities/"><u>[New] In 2024, The Ultimate Test Intova X's Video Capabilities</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quick-click-quests-top-10-agile-gaming-platforms/"><u>[New] Quick Click Quests Top 10 Agile Gaming Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-listing-best-no-ad-android-recording-apps-for-2024/"><u>[New] Ultimate Listing Best No-Ad Android Recording Apps for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-how-to-record-facebook-messenger-calls/"><u>[Updated] 2024 Approved How to Record Facebook Messenger Calls</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-anime-gems-on-youtube-to-light-up-your-day-new-list-2023/"><u>[Updated] Anime Gems on YouTube to Light Up Your Day [New List 2023]</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-straightforward-steps-to-mastering-flipper-written-communication-on-windows/"><u>[Updated] In 2024, Straightforward Steps to Mastering Flipper' Written Communication on Windows</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>2024 Approved AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>2024 Approved Digital Content Contenders Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>2024 Approved Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-guide-to-mastering-asmr-experience/"><u>Essential Guide to Mastering ASMR Experience</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-14-pro-max-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 14 Pro Max to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-your-path-to-prominence-on-youtube/"><u>In 2024, Decoding Your Path to Prominence on YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/learn-how-to-optimize-your-screen-record-with-screencastify-for-2024/"><u>Learn How to Optimize Your Screen Record with Screencastify for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-video-shorts-to-generate-income-online/"><u>Leveraging Video Shorts to Generate Income Online</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-chatgpt-on-your-phone-here-are-ebx-nine-ways-to-get-it-working-perfectly/"><u>Struggling with ChatGPT on Your Phone? Here Are Ebx Nine Ways to Get It Working Perfectly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tactical-tagging-for-towering-youtube-traction/"><u>Tactical Tagging for Towering YouTube Traction</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-12-amazing-free-animation-programs-for-pc-and-mac/"><u>Updated In 2024, 12 Amazing Free Animation Programs for PC and Mac</u></a></li>
 </ul></div>
 

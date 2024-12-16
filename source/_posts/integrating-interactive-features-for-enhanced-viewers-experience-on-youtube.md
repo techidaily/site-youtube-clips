@@ -1,7 +1,7 @@
 ---
 title: "Integrating Interactive Features for Enhanced Viewers' Experience on Youtube"
-date: 2024-12-03T17:04:53.254Z
-updated: 2024-12-10T17:18:08.495Z
+date: 2024-12-14T17:53:19.108Z
+updated: 2024-12-16T20:20:32.329Z
 tags:
   - ai video
   - ai youtube
@@ -53,13 +53,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -70,14 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes and exit
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -89,13 +89,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -136,10 +140,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -155,18 +155,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-easy-guide-to-taking-and-saving-twitters-gifs/"><u>[New] 2024 Approved The Easy Guide to Taking and Saving Twitter's Gifs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-efficiently-achieving-color-background-separation/"><u>[New] Efficiently Achieving Color Background Separation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-inverted-video-playback-on-android-made-simple/"><u>[New] Inverted Video Playback on Android Made Simple</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-choices-top-10-best-video-editing-software-free-2023/"><u>[Updated] In 2024, Essential Choices Top 10 Best Video Editing Software (Free, 2023)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-the-art-of-softening-dynamics-in-fl-studio-soundscape/"><u>[Updated] Mastering the Art of Softening Dynamics in FL Studio Soundscape</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-ultimate-list-timely-humor-for-various-gatherings/"><u>2024 Approved Ultimate List Timely Humor for Various Gatherings</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/breaking-the-sunday-barrier-chick-fil-as-new-strategy-to-boost-weekend-sales-unveiled/"><u>Breaking the Sunday Barrier: Chick-Fil-A's New Strategy to Boost Weekend Sales Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-screen-mastery-on-youtube-ideas-unleashed-for-2024/"><u>Green Screen Mastery on YouTube - Ideas Unleashed for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-turn-off-every-single-windows-10-operating-system-update-effectively/"><u>How To Turn Off Every Single Windows 10 Operating System Update Effectively</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-channels-aesthetics-free-banners-available/"><u>In 2024, Elevate Your Channel's Aesthetics - Free Banners Available</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-vlog-with-proper-tripod-angles/"><u>In 2024, Elevating Your Vlog with Proper Tripod Angles</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-resetting-final-cut-pro-x-the-ultimate-troubleshooting-solution-for-2024/"><u>New Resetting Final Cut Pro X The Ultimate Troubleshooting Solution for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-comprequad-video-captioning-techniques-for-youtube/"><u>The Comprequad Video Captioning Techniques for YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-avoiding-poverty-earning-in-beauty-media-for-2024/"><u>[New] Avoiding Poverty Earning in Beauty Media for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amplify-engagement-a-compilation-of-powerful-30-freegame-tags/"><u>[Updated] Amplify Engagement A Compilation of Powerful 30 FreeGame Tags</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>[Updated] Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-8-ultimate-tripods-for-4k-video-capture/"><u>[Updated] In 2024, Leading 8 Ultimate Tripods for 4K Video Capture</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-guide-to-pause-and-extend-videos-on-snapchat/"><u>[Updated] Step-by-Step Guide to Pause & Extend Videos on Snapchat</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2017-data-overload-infographics-and-surprising-yt-stats/"><u>2017 Data Overload Infographics & Surprising YT Stats</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-listenguide-examination/"><u>2024 Approved ListenGuide Examination</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-blocks-for-movie-making-youtubes-framework-and-more-for-2024/"><u>Building Blocks for Movie Making YouTube's Framework & More for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-asus-zenwifi-xt8-ax6600-wireless-router-test-and-evaluation/"><u>Comprehensive ASUS ZenWiFi XT8 AX6600 Wireless Router Test & Evaluation</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-new-hp-scanjet-software-for-windows-operating-systems-including-windows-11-8-and-7/"><u>Get the New HP Scanjet Software for Windows Operating Systems Including Windows 11, 8, and 7</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/insiders-guide-recording-high-octane-play/"><u>Insider's Guide Recording High-Octane Play</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-premier-selection-of-cost-free-online-daw-software-users/"><u>New 2024 Approved The Premier Selection of Cost-Free Online DAW Software Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/seamless-integration-xbox-games-in-discord-networks/"><u>Seamless Integration: Xbox Games in Discord Networks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unpacking-the-power-of-engaging-titles-for-youtube-shorts/"><u>Unpacking the Power of Engaging Titles for YouTube Shorts</u></a></li>
 </ul></div>
 

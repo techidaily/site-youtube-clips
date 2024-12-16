@@ -1,7 +1,7 @@
 ---
 title: "\"Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online\""
-date: 2024-12-09T17:44:51.311Z
-updated: 2024-12-10T17:22:38.348Z
+date: 2024-12-10T20:43:45.401Z
+updated: 2024-12-16T17:14:13.174Z
 tags:
   - ai video
   - ai youtube
@@ -27,28 +27,24 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
@@ -58,10 +54,6 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
@@ -70,9 +62,17 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -81,7 +81,7 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -99,16 +99,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unleash-the-full-potential-of-your-hdr-images-with-lightroom/"><u>[Updated] 2024 Approved Unleash the Full Potential of Your HDR Images with Lightroom</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-advances-in-photography-with-lut-technology-for-2024/"><u>[Updated] Advances in Photography with LUT Technology for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[Updated] In 2024, Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-cultivating-cash-by-critiquing-consumer-commodities-online/"><u>2024 Approved Cultivating Cash by Critiquing Consumer Commodities Online</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-evaluating-the-top-video-streaming-apps-for-phones/"><u>2024 Approved Evaluating the Top Video Streaming Apps for Phones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>Avoiding the Crowd Stand Out with Unique YouTube Persona</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/co-production-strategies-for-online-content-proliferation-for-2024/"><u>Co-Production Strategies for Online Content Proliferation for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-fast-tracking-music-in-spotify-efficiency-and-security-in-harmony/"><u>In 2024, Fast-Tracking Music in Spotify Efficiency & Security in Harmony</u></a></li>
-<li><a href="https://howto.techidaily.com/infinix-gt-10-pro-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix GT 10 Pro Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-infinix-smart-7-frp-by-drfone-android/"><u>The Updated Method to Bypass Infinix Smart 7 FRP</u></a></li>
-<li><a href="https://windows11.techidaily.com/1719327094876-top-4-solutions-for-troubleshooting-full-screen-capture-issues-in-windows-snipping-tool/"><u>Top 4 Solutions for Troubleshooting Full-Screen Capture Issues in Windows Snipping Tool.</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elite-screening-pacts-how-to-choose-a-cms/"><u>[New] Elite Screening Pacts How to Choose a CMS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-visibility-with-optimal-thumbnails/"><u>[New] Enhancing Video Visibility with Optimal Thumbnails</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revolutionizing-gaming-analyzing-kinemasters-android-version/"><u>[New] Revolutionizing Gaming Analyzing KineMaster's Android Version</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-essential-guide-to-a-bespoke-youtube-channel-url/"><u>[New] The Essential Guide to a Bespoke YouTube Channel URL</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-change-screenshot-saving-location-on-mac/"><u>[Updated] 2024 Approved Change Screenshot Saving Location on Mac</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-building-a-studio-quality-setup-at-home/"><u>[Updated] Building a Studio-Quality Setup at Home</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-your-complete-insiders-handbook-on-instagram-reels/"><u>[Updated] In 2024, Your Complete Insider's Handbook on Instagram Reels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-remote-ratio-reformation-online-calculation/"><u>[Updated] Remote Ratio Reformation Online Calculation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unraveling-the-lifecycle-of-windows-movie-maker-releases/"><u>[Updated] Unraveling the Lifecycle of Windows Movie Maker Releases</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-ultimate-guide-to-superior-4ks/"><u>2024 Approved The Ultimate Guide to Superior 4Ks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-engagement-through-anime-style-subscribe-buttons-filmora-tutorial-for-2024/"><u>Boost Engagement Through Anime-Style Subscribe Buttons (Filmora Tutorial) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-video-reach-tactics-against-bot-visitors/"><u>In 2024, Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-earnings-with-youtube-studio-techniques/"><u>Streamlining Earnings with Youtube Studio Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-perfected-practice-of-combining-youtube-videos/"><u>The Perfected Practice of Combining YouTube Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ultimate-mp4-record-and-assess-guide-for-2024/"><u>Ultimate MP4 Record & Assess Guide for 2024</u></a></li>
 </ul></div>
 
