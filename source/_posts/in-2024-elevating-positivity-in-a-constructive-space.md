@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-12-09T18:30:23.264Z
-updated: 2024-12-16T18:19:16.849Z
+date: 2024-12-21T16:01:22.246Z
+updated: 2024-12-25T16:02:28.182Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,21 +77,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-earning-through-youtube-an-overview/"><u>[New] Earning Through YouTube An Overview</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-efficient-name-alteration-for-meet-sessions-laptopmobile/"><u>[New] Efficient Name Alteration for Meet Sessions (Laptop/Mobile)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-a-viral-traction-with-6-strategic-steps-in-youtube-marketing/"><u>[Updated] 2024 Approved Creating a Viral Traction with 6 Strategic Steps in YouTube Marketing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>[Updated] Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dive-into-windows-new-horizons-the-latest-iteration-for-2024/"><u>[Updated] Dive Into Windows' New Horizons The Latest Iteration for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-danger-lurking-online-spotting-the-falsehood-of-fake-viewers-on-youtube/"><u>2024 Approved Danger Lurking Online Spotting the Falsehood of Fake Viewers on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-does-your-channel-benefit-from-regular-youtube-payments/"><u>2024 Approved Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-nix-youtube-snippet-playback-on-all-devices/"><u>2024 Approved Nix YouTube Snippet Playback on All Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/aspect-ratios-unveiled-your-guide-to-stellar-yt-images-for-2024/"><u>Aspect Ratios Unveiled Your Guide to Stellar YT Images for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-new-voice-mastering-prompt-and-command-interactions/"><u>ChatGPT's New Voice: Mastering Prompt and Command Interactions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/engage-and-inspire-viewers-animated-subscribers-in-filmora-explained-for-2024/"><u>Engage and Inspire Viewers - Animated Subscribers in Filmora Explained for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-creativity-6-aplus-apps-for-instagram-reels/"><u>In 2024, Elevate Your Creativity 6 A+ Apps for Instagram Reels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-apps-best-10-software-to-capture-your-screens/"><u>In 2024, Essential Apps Best 10 Software to Capture Your Screens</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-panasonic-hx-a1-actioncam-in-depth-review/"><u>In 2024, Panasonic HX-A1 ActionCam In-Depth Review</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-top-5-best-mp4-video-editors-totally-free-for-2024/"><u>New Top 5 Best MP4 Video Editors Totally Free for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/strategies-to-handle-exclusive-video-formats/"><u>Strategies to Handle Exclusive Video Formats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-9-fitness-trends-to-captivate-your-online-audience-with-action/"><u>[New] 9 Fitness Trends to Captivate Your Online Audience with Action</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-checking-credentials-on-youtube/"><u>[New] Checking Credentials on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-viewership-transferring-twitch-content-to-fb-for-2024/"><u>[New] Enhancing Viewership Transferring Twitch Content to FB for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-is-sns-hdr-pro-the-gold-standard-for-hdr-editors/"><u>[New] Is SNS HDR Pro the Gold Standard for HDR Editors?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>[Updated] Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[Updated] Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-droning-made-simple-top-picks-for-kids-and-newbies/"><u>[Updated] In 2024, Droning Made Simple Top Picks for Kids & Newbies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-perfecting-phone-screenshots-with-snapchat/"><u>[Updated] Perfecting Phone Screenshots with Snapchat</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-assessing-the-riches-of-mr-beast/"><u>2024 Approved Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-ultimate-guide-to-utilizing-instagrams-inquiry-icon/"><u>2024 Approved The Ultimate Guide to Utilizing Instagram's Inquiry Icon</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cracking-the-code-to-youtube-income-through-views/"><u>In 2024, Cracking the Code to YouTube Income Through Views</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-easily-download-your-favorites-handpicked-tools-reviewed/"><u>In 2024, Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-media-makers-software-linux-edition/"><u>In 2024, Essential Media Makers' Software Linux Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gimbal-insights-7-best-in-market/"><u>In 2024, Gimbal Insights 7 Best in Market</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/quick-guide-to-enhanced-video-capturing-in-vlc/"><u>Quick Guide to Enhanced Video Capturing in VLC</u></a></li>
+<li><a href="https://games-able.techidaily.com/samsungs-new-odyssey-neo-g9-smartphone-launches-at-a-steep-price-of-1300-on-amazon/"><u>Samsung's New Odyssey Neo G9 Smartphone Launches at a Steep Price of $1,300 on Amazon</u></a></li>
+<li><a href="https://extra-information.techidaily.com/starting-off-understanding-av1-compression/"><u>Starting Off Understanding AV1 Compression</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-best-of-the-best-12-youtube-video-game-openers-freepaid/"><u>The Best of the Best 12 YouTube Video Game Openers (FREE/PAID)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-footage-enhancement-without-borders/"><u>YouTube Footage Enhancement Without Borders</u></a></li>
 </ul></div>
 

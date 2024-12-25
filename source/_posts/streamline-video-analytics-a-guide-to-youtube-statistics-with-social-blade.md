@@ -1,7 +1,7 @@
 ---
 title: "\"Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade\""
-date: 2024-12-11T18:58:38.983Z
-updated: 2024-12-16T16:53:53.743Z
+date: 2024-12-18T16:01:16.215Z
+updated: 2024-12-25T16:07:46.343Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,12 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
@@ -64,7 +60,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -79,18 +75,22 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 
  That's how you can use Social Blade for YouTube - have you ever used it?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -108,21 +108,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-become-an-expert-at-youtube-live-streams-with-google-meet/"><u>[New] Become an Expert at YouTube Live Streams with Google Meet</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[New] Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/arody-playground-top-10-laugh-out-loud-songs/"><u>[New] Parody Playground Top 10 Laugh-Out-Loud Songs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-success-in-youtubes-creator-hub/"><u>[Updated] Crafting Success in YouTube's Creator Hub</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/advanced-tips-for-efficient-voice-access-on-windows/"><u>Advanced Tips for Efficient Voice Access on Windows</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/covert-content-creation-how-to-invisibly-alter-videos/"><u>Covert Content Creation How to Invisibly Alter Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dismantling-the-profit-strategy-of-tseries-on-digital-platforms-youtube-for-2024/"><u>Dismantling the Profit Strategy of TSeries on Digital Platforms (YouTube) for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enlightenment-echoes-best-ed-tutorials-yt/"><u>Enlightenment Echoes Best Ed Tutorials YT</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-strategies-for-optimizing-your-super-bowl-viewing-experience/"><u>Essential Strategies for Optimizing Your Super Bowl Viewing Experience</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-master-level-editing-the-essence-of-smooth-transitions-in-inshot/"><u>In 2024, Master Level Editing The Essence of Smooth Transitions in Inshot</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/1715859963188-in-2024-silent-blades-and-righteous-honor-your-next-game-adventure-awaits/"><u>In 2024, Silent Blades & Righteous Honor Your Next Game Adventure Awaits!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/integrating-video-content-from-youtube-into-websites-a-comprehensive-guide/"><u>Integrating Video Content From YouTube Into Websites - A Comprehensive Guide</u></a></li>
-<li><a href="https://app-tips.techidaily.com/prepare-for-windows-11-end-of-life-your-top-5-solutions-to-keep-your-pc-running-smoothly/"><u>Prepare for Windows 11 End of Life: Your Top 5 Solutions to Keep Your PC Running Smoothly</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-discover-the-4-essential-tools-for-following-hashtags-on-twitter/"><u>The Ultimate Guide: Discover the 4 Essential Tools for Following Hashtags on Twitter</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-motorola-edge-40-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Motorola Edge 40 Location | Dr.fone</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/trasforma-i-tuoi-file-neff-in-tiff-senza-costi-con-il-servizio-di-conversione-online-completo/"><u>Trasforma I Tuoi File Neff in Tiff Senza Costi Con Il Servizio Di Conversione Online Completo!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-10-free-youtube-thumbnail-downloaderssavers-online-download-youtube-thumbnail/"><u>[New] 10 Free YouTube Thumbnail Downloaders/Savers Online-Download YouTube Thumbnail</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-achieve-impact-innovative-imovie-techniques-for-youtube-startups/"><u>[New] Achieve Impact Innovative iMovie Techniques for YouTube Startups</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-guide-to-global-exploration-by-channel/"><u>[Updated] 2024 Approved The Ultimate Guide to Global Exploration, By Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-design-dynamics-top-20-font-choices-for-youtube-success/"><u>[Updated] Design Dynamics Top 20 Font Choices for YouTube Success</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-the-best-12-free-and-paid-video-game-openings-for-yt/"><u>[Updated] Discover the Best 12 Free and Paid Video Game Openings for YT</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-boosting-visual-impact-incorporate-apple-music/"><u>[Updated] In 2024, Boosting Visual Impact Incorporate Apple Music</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/breaking-the-quiet-curse-of-cyberpunk-2077-audio-on-your-windows-10-pc/"><u>Breaking the Quiet Curse of Cyberpunk 2077 Audio on Your Windows 10 PC</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-infinix-note-30-vip-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Infinix Note 30 VIP.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-x7b-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/template-tips-for-efficient-and-effective-youtube-intros/"><u>Template Tips for Efficient and Effective YouTube Intros</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-ais-future-prospects-and-perils/"><u>Understanding AI's Future: Prospects and Perils</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unraveling-the-top-9-free-video-logo-creation-software-list/"><u>Unraveling The Top 9 Free Video Logo Creation Software List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-youtube-income-guidelines/"><u>Updated YouTube Income Guidelines</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/video-perfection-a-comprehensive-strategy-for-seamless-subtitle-and-cc-integration-on-youtube/"><u>Video Perfection A Comprehensive Strategy for Seamless Subtitle & CC Integration on YouTube</u></a></li>
 </ul></div>
 

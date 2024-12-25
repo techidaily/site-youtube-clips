@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Convincing Audiences to Join  A Positive Approach\""
-date: 2024-12-11T19:33:35.125Z
-updated: 2024-12-16T17:27:02.990Z
+date: 2024-12-18T16:09:58.442Z
+updated: 2024-12-25T16:04:19.649Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ There are people who think that if people like their videos they’ll subscribe,
    2. [Step 2: Get to The Point Quickly](#point)  
    3. [Step 3: Create a Moment - Make Subscribing Part of the Experience](#moment)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -49,7 +45,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -62,6 +58,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -73,10 +73,14 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -88,16 +92,12 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -115,16 +115,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-digital-whirlwind-top-30-hashes-for-video-stardom/"><u>[Updated] Digital Whirlwind Top 30 Hashes for Video Stardom</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-streamlined-video-logitechs-background-editing-guide/"><u>[Updated] Streamlined Video - Logitech's Background Editing Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-supreme-narrative-designers-den/"><u>[Updated] Supreme Narrative Designer's Den</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-unleash-creativity-10-must-know-tips-for-cover-art-for-2024/"><u>[Updated] Unleash Creativity 10 Must-Know Tips for Cover Art for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content/"><u>2024 Approved Discover Powerful Tagging Tactics A Guide to Amplifying FreeGame Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-hdr-standards-meeting-or-surpassing-with-aurora/"><u>2024 Approved HDR Standards Meeting or Surpassing with Aurora?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-a-course-through-websites-of-youtube-affiliates/"><u>Charting a Course Through Websites of YouTube Affiliates</u></a></li>
-<li><a href="https://article-files.techidaily.com/concealed-crusaders-conflict-with-clarion-champion/"><u>Concealed Crusader's Conflict with Clarion Champion</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/engaging-youtube-summaries-with-tailored-templates/"><u>Engaging YouTube Summaries with Tailored Templates</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-plus-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 7 Plus Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-apple-vision-pro-essential-tips-for-flawless-screen-captures-and-video-recording-common-pitfalls-to-dodge/"><u>Mastering Apple Vision Pro: Essential Tips for Flawless Screen Captures & Video Recording - Common Pitfalls to Dodge</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-adding-audio-descriptions-to-videos-on-youtube/"><u>[New] Adding Audio Descriptions to Videos on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevating-your-vlog-with-proper-tripod-angles/"><u>[New] Elevating Your Vlog with Proper Tripod Angles</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-pro-video-recording-software-for-mp4/"><u>[New] Pro Video Recording Software for MP4</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amplify-youtube-performance-rapid-video-rendering-guide/"><u>[Updated] Amplify YouTube Performance - Rapid Video Rendering Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-download-youtube-music-to-your-android-phone-top-6-free-apps/"><u>[Updated] Download YouTube Music to Your Android Phone Top 6 Free Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-free-to-download-movie-cast-releases/"><u>[Updated] Free-to-Download Movie Cast Releases</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-immersive-home-theater-choosing-the-best-3d-players/"><u>[Updated] Immersive Home Theater Choosing the Best 3D Players</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-screen-to-file-high-quality-professional-record/"><u>[Updated] Screen to File High-Quality Professional Record</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-tp-link-ac1200-wifi-repeater-re305-evaluation-uncomplicated-user-experience/"><u>Comprehensive TP-Link AC1200 WiFi Repeater RE305 Evaluation: Uncomplicated User Experience</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mixed-emotions-after-moving-from-windows-10-to-windows-11-the-irreplaceable-features-i-yearn-for/"><u>Mixed Emotions After Moving From Windows 10 to Windows 11: The Irreplaceable Features I Yearn For</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/simplified-approach-to-removing-youtube-comments-with-ease/"><u>Simplified Approach to Removing YouTube Comments with Ease</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smartphone-photographers-must-have-app-list/"><u>Smartphone Photographers' Must-Have App List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/soundless-schemes-no-more-solve-your-evil-genius-2-volume-problems/"><u>Soundless Schemes No More - Solve Your 'Evil Genius 2' Volume Problems</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-5-key-questions-every-prospective-customer-should-ask-about-fitness-trackers/"><u>The 5 Key Questions Every Prospective Customer Should Ask About Fitness Trackers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-animator-marketplace-of-custom-creative-stunts/"><u>The Animator' Marketplace of Custom Creative Stunts</u></a></li>
 </ul></div>
 

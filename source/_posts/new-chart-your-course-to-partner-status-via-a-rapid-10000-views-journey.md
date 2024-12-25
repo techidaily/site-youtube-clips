@@ -1,7 +1,7 @@
 ---
 title: "[New] Chart Your Course to Partner Status via a Rapid 10,000 Views Journey"
-date: 2024-09-11T16:06:44.923Z
-updated: 2024-09-16T18:44:55.441Z
+date: 2024-12-19T16:04:55.184Z
+updated: 2024-12-25T16:00:52.468Z
 tags:
   - ai video
   - ai youtube
@@ -92,91 +92,9 @@ Could this new milestone decrease competition in some genres?
 
 Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
 
-## Touch Up YouTube Videos with Effects in Filmora
-
-You can check our tips and tricks about how to get more views, and here is one thing that need to remember that content is the king. To polish your video content, you can use some [YouTube video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to remove unwanted clips, add texts and titles, apply filters, create attractive channel arts such as banner and thumbnail. Here, I recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-_Navin explains this issue really clearly._
-
-YouTube announced changes to its Partnership Program for some time. For a long time, anybody who had an account in good standing could monetize their videos and start earning ad revenue, but now you need to have 10,000 views to qualify.
-
-My first thought was that this isn’t fair. Small channels shouldn’t be barred from trying to earn money.
-
-![ Become YouTube Partner should be easier](https://images.wondershare.com/filmora/article-images/hard-to-become-youtube-partner.jpg)
-
-_I was prepared to go to war over this. Or do an angry blog post. One of those._
-
-However, when you consider YouTube’s reasons for imposing this milestone, it actually starts to make a lot of sense. Here are 4 reasons why this will be a good thing for creators.
-
-#### 1. 10,000 isn’t a crazy number
-
-This is actually a very do-able number for a smaller channel if the creator works hard at growing their audience. Remember that this is cumulative – you don’t need to get 10,000 views on a single video.
-
-Say you receive about 100 views per video and post once a week. It would take you about 2 years to reach 10,000 at that rate, except that it wouldn’t because if you’re putting out good content on that reliable a schedule your channel will be growing (even if it’s slow).
-
-If you get 500 views per video and post every week, you’ll reach 10,000 in about 5 months.
-
-#### 2. 10,000 views aren’t worth much money
-
-![ the weight of 10,00 views on YouTube](https://images.wondershare.com/filmora/article-images/get-views-on-youtube-hard.jpg)
-
-_Earning money from ad revenue has always been tough. This is just a little extra weight._
-
-How much money could you earn off of 10,000 views, anyways? Not much.
-
-You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
-
-It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
-
-#### 3. Inappropriate content won’t be monetized
-
-YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
-
-Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
-
-#### 4. Thieves won’t profit
-
-There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
-
-This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
-
-Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
-
-YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
-
-_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
-
-There are clear benefits to this new milestone, but there are also some questions remaining.
-
-## How does this change stop content thieves from taking views and ad revenue from creators?
-
-It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
-
-This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
-
-## Could this affect your CPM?
-
-Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
-
-Could this new milestone decrease competition in some genres?
-
-Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Touch Up YouTube Videos with Effects in Filmora
 
@@ -221,141 +139,236 @@ If you get 500 views per video and post every week, you’ll reach 10,000 in abo
 #### 2. 10,000 views aren’t worth much money
 
 ![ the weight of 10,00 views on YouTube](https://images.wondershare.com/filmora/article-images/get-views-on-youtube-hard.jpg)
-
-_Earning money from ad revenue has always been tough. This is just a little extra weight._
-
-How much money could you earn off of 10,000 views, anyways? Not much.
-
-You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
-
-It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
-
-#### 3. Inappropriate content won’t be monetized
-
-YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
-
-Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
-
-#### 4. Thieves won’t profit
-
-There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
-
-This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
-
-Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
-
-YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
-
-_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
-
-There are clear benefits to this new milestone, but there are also some questions remaining.
-
-## How does this change stop content thieves from taking views and ad revenue from creators?
-
-It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
-
-This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
-
-## Could this affect your CPM?
-
-Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
-
-Could this new milestone decrease competition in some genres?
-
-Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
-
-## Touch Up YouTube Videos with Effects in Filmora
-
-You can check our tips and tricks about how to get more views, and here is one thing that need to remember that content is the king. To polish your video content, you can use some [YouTube video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to remove unwanted clips, add texts and titles, apply filters, create attractive channel arts such as banner and thumbnail. Here, I recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-_Navin explains this issue really clearly._
-
-YouTube announced changes to its Partnership Program for some time. For a long time, anybody who had an account in good standing could monetize their videos and start earning ad revenue, but now you need to have 10,000 views to qualify.
-
-My first thought was that this isn’t fair. Small channels shouldn’t be barred from trying to earn money.
-
-![ Become YouTube Partner should be easier](https://images.wondershare.com/filmora/article-images/hard-to-become-youtube-partner.jpg)
-
-_I was prepared to go to war over this. Or do an angry blog post. One of those._
-
-However, when you consider YouTube’s reasons for imposing this milestone, it actually starts to make a lot of sense. Here are 4 reasons why this will be a good thing for creators.
-
-#### 1. 10,000 isn’t a crazy number
-
-This is actually a very do-able number for a smaller channel if the creator works hard at growing their audience. Remember that this is cumulative – you don’t need to get 10,000 views on a single video.
-
-Say you receive about 100 views per video and post once a week. It would take you about 2 years to reach 10,000 at that rate, except that it wouldn’t because if you’re putting out good content on that reliable a schedule your channel will be growing (even if it’s slow).
-
-If you get 500 views per video and post every week, you’ll reach 10,000 in about 5 months.
-
-#### 2. 10,000 views aren’t worth much money
-
-![ the weight of 10,00 views on YouTube](https://images.wondershare.com/filmora/article-images/get-views-on-youtube-hard.jpg)
-
-_Earning money from ad revenue has always been tough. This is just a little extra weight._
-
-How much money could you earn off of 10,000 views, anyways? Not much.
-
-You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
-
-It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
-
-#### 3. Inappropriate content won’t be monetized
-
-YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
-
-Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
-
-#### 4. Thieves won’t profit
-
-There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
-
-This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
-
-Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
-
-YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
-
-_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
-
-There are clear benefits to this new milestone, but there are also some questions remaining.
-
-## How does this change stop content thieves from taking views and ad revenue from creators?
-
-It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
-
-This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
-
-## Could this affect your CPM?
-
-Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
-
-Could this new milestone decrease competition in some genres?
-
-Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+_Earning money from ad revenue has always been tough. This is just a little extra weight._
+
+How much money could you earn off of 10,000 views, anyways? Not much.
+
+You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
+
+It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
+
+#### 3. Inappropriate content won’t be monetized
+
+YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
+
+Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
+
+#### 4. Thieves won’t profit
+
+There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
+
+This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
+
+Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
+
+YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
+
+_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
+
+There are clear benefits to this new milestone, but there are also some questions remaining.
+
+## How does this change stop content thieves from taking views and ad revenue from creators?
+
+It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
+
+This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
+
+## Could this affect your CPM?
+
+Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
+
+Could this new milestone decrease competition in some genres?
+
+Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
+
+## Touch Up YouTube Videos with Effects in Filmora
+
+You can check our tips and tricks about how to get more views, and here is one thing that need to remember that content is the king. To polish your video content, you can use some [YouTube video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to remove unwanted clips, add texts and titles, apply filters, create attractive channel arts such as banner and thumbnail. Here, I recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+_Navin explains this issue really clearly._
+
+YouTube announced changes to its Partnership Program for some time. For a long time, anybody who had an account in good standing could monetize their videos and start earning ad revenue, but now you need to have 10,000 views to qualify.
+
+My first thought was that this isn’t fair. Small channels shouldn’t be barred from trying to earn money.
+
+![ Become YouTube Partner should be easier](https://images.wondershare.com/filmora/article-images/hard-to-become-youtube-partner.jpg)
+
+_I was prepared to go to war over this. Or do an angry blog post. One of those._
+
+However, when you consider YouTube’s reasons for imposing this milestone, it actually starts to make a lot of sense. Here are 4 reasons why this will be a good thing for creators.
+
+#### 1. 10,000 isn’t a crazy number
+
+This is actually a very do-able number for a smaller channel if the creator works hard at growing their audience. Remember that this is cumulative – you don’t need to get 10,000 views on a single video.
+
+Say you receive about 100 views per video and post once a week. It would take you about 2 years to reach 10,000 at that rate, except that it wouldn’t because if you’re putting out good content on that reliable a schedule your channel will be growing (even if it’s slow).
+
+If you get 500 views per video and post every week, you’ll reach 10,000 in about 5 months.
+
+#### 2. 10,000 views aren’t worth much money
+
+![ the weight of 10,00 views on YouTube](https://images.wondershare.com/filmora/article-images/get-views-on-youtube-hard.jpg)
+
+_Earning money from ad revenue has always been tough. This is just a little extra weight._
+
+How much money could you earn off of 10,000 views, anyways? Not much.
+
+You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
+
+It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
+
+#### 3. Inappropriate content won’t be monetized
+
+YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
+
+Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
+
+#### 4. Thieves won’t profit
+
+There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
+
+This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
+
+Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
+
+YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
+
+_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
+
+There are clear benefits to this new milestone, but there are also some questions remaining.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## How does this change stop content thieves from taking views and ad revenue from creators?
+
+It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
+
+This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
+
+## Could this affect your CPM?
+
+Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
+
+Could this new milestone decrease competition in some genres?
+
+Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
+
+## Touch Up YouTube Videos with Effects in Filmora
+
+You can check our tips and tricks about how to get more views, and here is one thing that need to remember that content is the king. To polish your video content, you can use some [YouTube video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to remove unwanted clips, add texts and titles, apply filters, create attractive channel arts such as banner and thumbnail. Here, I recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+_Navin explains this issue really clearly._
+
+YouTube announced changes to its Partnership Program for some time. For a long time, anybody who had an account in good standing could monetize their videos and start earning ad revenue, but now you need to have 10,000 views to qualify.
+
+My first thought was that this isn’t fair. Small channels shouldn’t be barred from trying to earn money.
+
+![ Become YouTube Partner should be easier](https://images.wondershare.com/filmora/article-images/hard-to-become-youtube-partner.jpg)
+
+_I was prepared to go to war over this. Or do an angry blog post. One of those._
+
+However, when you consider YouTube’s reasons for imposing this milestone, it actually starts to make a lot of sense. Here are 4 reasons why this will be a good thing for creators.
+
+#### 1. 10,000 isn’t a crazy number
+
+This is actually a very do-able number for a smaller channel if the creator works hard at growing their audience. Remember that this is cumulative – you don’t need to get 10,000 views on a single video.
+
+Say you receive about 100 views per video and post once a week. It would take you about 2 years to reach 10,000 at that rate, except that it wouldn’t because if you’re putting out good content on that reliable a schedule your channel will be growing (even if it’s slow).
+
+If you get 500 views per video and post every week, you’ll reach 10,000 in about 5 months.
+
+#### 2. 10,000 views aren’t worth much money
+
+![ the weight of 10,00 views on YouTube](https://images.wondershare.com/filmora/article-images/get-views-on-youtube-hard.jpg)
+
+_Earning money from ad revenue has always been tough. This is just a little extra weight._
+
+How much money could you earn off of 10,000 views, anyways? Not much.
+
+You need to earn $50 in ad revenue to be paid out, and 10,000 views wouldn’t have gotten you there. You would have had to have passed this milestone anyways to actually see any money.
+
+It’s too hard to put an exact number on the money you could have earned from your first 10,000 views – there are too many variables – but considering that smaller channels get lower-paying ads we’re probably talking about pocket change.
+
+#### 3. Inappropriate content won’t be monetized
+
+YouTube has been having issues with advertisers lately. A lot of brands have been justifiably miffed that their products are appearing next to some violent, threatening, objectively offensive content. Anyone could monetize, and some pretty bad eggs took advantage of that.
+
+Now that channels will be applying for YouTube’s Partnership Program instead of simply activating the feature, there can be a real screening process. Channels with content that violates YouTube’s Community Guidelines can be barred from monetization.
+
+#### 4. Thieves won’t profit
+
+There are people out there who want views, subscribers, and nice comments but who do not want to put any real work into getting them. It isn’t uncommon for someone like this to download a video they like and post it to their own channel.
+
+This reposted video will steal views and ad revenue away from the real post on the creator’s channel.
+
+Having a review process for the Partnership Program will help ensure that these content thieves are caught before they can make any money.
+
+YouTube also recently made it easier to report users for impersonation, regardless of how many views they have.
+
+_TheGamingGuy looked into people who had stolen his logo and found out they had also stolen whole videos from other YouTubers._
+
+There are clear benefits to this new milestone, but there are also some questions remaining.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## How does this change stop content thieves from taking views and ad revenue from creators?
+
+It will help stop them from making money themselves, but not from siphoning away views from other channels. The impersonation rules only apply if somebody is pretending to be another creator. You can steal and repost someone’s content without pretending to be them.
+
+This new rule does take away money as an incentive for stealing content, but a lot of people doing this probably aren’t in it for the money. They might just be misguided fans who want to repost videos they enjoy.
+
+## Could this affect your CPM?
+
+Competition plays a huge role in how much YouTubers earn from ad revenue. Some genres are bigger on YouTube than others and, the more popular your genre is, the more options advertisers have. The more competition there is for higher-paying ads, the larger your channel has to be to get them.
+
+Could this new milestone decrease competition in some genres?
+
+Leave a comment to let me know what you think. Jayaprakash, one of our members here, also started an active forum thread on this issue so make sure to join that discussion too!
 
 ## Touch Up YouTube Videos with Effects in Filmora
 
@@ -389,76 +402,9 @@ Follow @Richard Bennett
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### 1. The nutcracker 1990
-
-The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
-
-### 2. A smoky mountain Christmas
-
-A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 3. Ernest saves Christmas
-
-This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 4. A Christmas story
-
-A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-### 5. Richie Rich's Christmas wish
-
-In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-### 6. On the second day of Christmas
-
-This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
-
-### 7. Santa Who?
-
-Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-### 8. A Christmas Carol
-
-In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-### 9. Miracle on 34th street
-
-In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
 
 ##### Shanoon Cox
 
@@ -528,6 +474,10 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
@@ -554,12 +504,63 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
+
+### 1. The nutcracker 1990
+
+The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+### 2. A smoky mountain Christmas
+
+A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+### 3. Ernest saves Christmas
+
+This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+### 4. A Christmas story
+
+A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+### 5. Richie Rich's Christmas wish
+
+In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+### 6. On the second day of Christmas
+
+This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### 7. Santa Who?
+
+Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 8. A Christmas Carol
+
+In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+### 9. Miracle on 34th street
+
+In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -604,6 +605,10 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -630,5 +635,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-the-next-gen-discover-8-leading-tablets-pushing-beyond-filmoras-limits/"><u>[New] The Next Gen Discover 8 Leading Tablets Pushing Beyond Filmora's Limits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-step-into-the-world-of-high-quality-lenovo-screen-recordings/"><u>[Updated] In 2024, Step Into the World of High-Quality Lenovo Screen Recordings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-business-via-beauty-vlogs/"><u>2024 Approved Building Business via Beauty Vlogs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you/"><u>2024 Approved Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-emulate-video-success-gaining-youtube-confidence-skills/"><u>2024 Approved Emulate Video Success Gaining YouTube Confidence Skills</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-intense-close-ups-in-minecraft-five-simple-steps/"><u>2024 Approved Intense Close-Ups in Minecraft Five Simple Steps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-steps-for-efficiently-storing-whatsapp-audio-transcripts/"><u>2024 Approved Steps for Efficiently Storing WhatsApp Audio Transcripts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/advanced-techniques-for-high-quality-youtube-content/"><u>Advanced Techniques for High-Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-sites-to-buy-monetized-youtube-channels-for-beginners/"><u>Best Sites to Buy Monetized YouTube Channels for Beginners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-views-and-engagement-top-rated-online-keyword-generators-for-2024/"><u>Boost Views and Engagement Top-Rated Online Keyword Generators for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-down-the-barriers-to-knowing-your-fans/"><u>Breaking Down the Barriers to Knowing Your Fans</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-asus-rog-phone-8-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Asus ROG Phone 8</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-closure-secrets-of-spectacative-video-sign-offs-for-2024/"><u>Crafting Closure Secrets of Spectacative Video Sign-Offs for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-phones-displaying-numbers-not-name-tags/"><u>How to Fix Phones Displaying Numbers, Not Name Tags</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-economics-a-detailed-blueprint-for-profit/"><u>Instagram Economics A Detailed Blueprint for Profit</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/paint-the-virtual-space-windows-desktop-artistry/"><u>Paint the Virtual Space: Windows Desktop Artistry</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-vivo-s17-pro-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Vivo S17 Pro ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/top-11-hacks-to-unlock-ultimate-control-over-your-windows-touchpad-enhancing-speed-and-intelligence-in-workflows-digitaltrends/"><u>Top 11 Hacks to Unlock Ultimate Control over Your Windows Touchpad, Enhancing Speed and Intelligence in Workflows | DigitalTrends</u></a></li>
+</ul></div>
 
