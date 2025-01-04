@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Pathway to Writing YouTube Video Plans"
-date: 2024-09-12T17:07:35.061Z
-updated: 2024-09-16T16:10:44.905Z
+date: 2024-12-28T19:53:40.996Z
+updated: 2025-01-03T16:21:58.563Z
 tags:
   - ai video
   - ai youtube
@@ -136,13 +136,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -182,13 +175,6 @@ Remember to refer to your audience as ‘you’, not ‘you guys’ (you are spe
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -311,6 +297,10 @@ Here are some things to do before you start writing your script for YouTube:
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -398,6 +388,10 @@ So, if you don’t know how to check YouTube income, don’t worry, this article
 
 * [Hot FAQs on YouTube channel earnings check](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Follow the steps below to check your YouTube earnings
 
 The process of checking YouTube income is pretty straightforward. So, regardless of what device you’re using to check, we’ve briefly explained the step-by-step instructions to carry out your YouTube income check within a few clicks.
@@ -430,6 +424,10 @@ Step2 Log in to your YouTube account and tap on the Profile icon at the top side
 
 ![how to check youtube income on mobile phone 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Tap the Analytics icon from the middle menu. Your YouTube channel income and other data will be displayed on your phone screen.
 
 ![how to check youtube income on mobile phone 3](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-4.jpg)
@@ -474,6 +472,10 @@ You can also calculate your YouTube channel total earnings by using the [YouTube
 
 ![how to check youtube income on mobile phone 6](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How do you increase your YouTube earnings?
 
 ### 1\. Post quality videos
@@ -492,16 +494,13 @@ Step2 Use the Import button to upload the video you created for your YouTube cha
 
 ![import video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Drag-n-drop the video you uploaded to the Timeline.
 
 ![drag n drop video to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 To remove unwanted background from your video, click Effects from the top side of the screen. Select AI Portrait from the left side of the screen and select a preferred AI Portrait effect that you’ll like to use in the video.
 
@@ -531,6 +530,10 @@ Step9 Enter file name in the box next to Label. Then, navigate to Folder Path an
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Upload videos regularly
 
 Starting a YouTube channel can be quite hard from start, but make it a priority to upload at least two quality videos every week. Yes, the more quality videos you post, the more you attract the viewer to like your videos, and the higher your chances of getting new subscribers, thereby increasing your YouTube earnings.
@@ -542,6 +545,10 @@ Promoting your YouTube videos is a great way to increase your YouTube earnings. 
 ## Part 4: Hot FAQs on YouTube channel earnings check
 
 Let’s take a look at some frequently asked questions from users like you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Is monetizing on YouTube different from Google AdSense?
 
@@ -564,13 +571,6 @@ Finance & Investing - $12.25
 Educational Videos - $9.89
 
 Photography & Film Making - $7.31
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -597,6 +597,10 @@ Step2 Click Analytics from the left side of the screen.
 Step3 On the Analytics screen, select Revenue from the top side of the screen to check your YouTube income.
 
 There, you’ll find your YouTube income and other necessary data that you might need.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Check on a Mobile Device
 
@@ -698,6 +702,10 @@ Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected 
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step8 Preview the edited video. If you’re satisfied with the output, click the Export button at the top bar and choose Burn DVD from the drop-down list.
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-15.jpg)
@@ -715,10 +723,7 @@ Starting a YouTube channel can be quite hard from start, but make it a priority 
 Promoting your YouTube videos is a great way to increase your YouTube earnings. Once you post a new video on YouTube, you can share it to your other social media profiles or websites to increase views and attract new folks to watch the video. The more views you get the more money you’ll make.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Hot FAQs on YouTube channel earnings check
@@ -768,5 +773,22 @@ Checking YouTube income is not a big deal. This article has covered every necess
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-sonic-visuals-your-guide-to-music-video-creation-for-2024/"><u>[New] Sonic Visuals Your Guide to Music Video Creation for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-innovative-approaches-to-integrating-your-fb-story/"><u>[Updated] 2024 Approved Innovative Approaches to Integrating Your FB Story</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-beginners-guide-to-zoom-room-preparation-for-2024/"><u>A Beginner's Guide to Zoom Room Preparation for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/bring-back-life-to-your-dead-laptop-battery-in-no-time-expert-tips-inside/"><u>Bring Back Life to Your Dead Laptop Battery in No Time - Expert Tips Inside</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-success-with-youtube-income-streams-for-2024/"><u>Charting Success with YouTube Income Streams for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dodge-digital-duplicates-to-increase-youtube-exposure-for-2024/"><u>Dodge Digital Duplicates to Increase YouTube Exposure for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/free-music-for-videos-finding-the-right-sources/"><u>Free Music for Videos Finding the Right Sources</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-content-insights-into-viewership-lead/"><u>In 2024, Elevating Your Content Insights Into Viewership Lead</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-poco-m6-pro-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Poco M6 Pro 5G online without jailbreak</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-google-gemini-a-comprehensive-guide/"><u>Mastering Google Gemini: A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-save-instagram-videos-on-desktop-devices/"><u>Step-by-Step Save Instagram Videos on Desktop Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-perfect-proposal-to-perfection-8-best-weddings-online-for-2024/"><u>The Perfect Proposal to Perfection 8 Best Weddings Online for 2024</u></a></li>
+</ul></div>
 

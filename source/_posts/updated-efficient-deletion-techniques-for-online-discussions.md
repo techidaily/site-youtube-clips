@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2024-12-18T16:06:09.324Z
-updated: 2024-12-25T16:13:31.285Z
+date: 2025-01-02T19:26:43.159Z
+updated: 2025-01-03T18:50:02.790Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -69,6 +73,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,6 +90,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -104,11 +116,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -120,10 +128,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -132,21 +136,17 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,21 +163,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-pushing-past-plateaus-the-strategic-guide-for-youtube-success/"><u>[New] Pushing Past Plateaus The Strategic Guide for Youtube Success</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users/"><u>[Updated] In 2024, FB Story Downloads Decoded A Quick & Convenient Guide for All Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-reel-in-your-audience-with-professional-ipadiphone-podcasting-hacks/"><u>[Updated] In 2024, Reel in Your Audience with Professional IPad/iPhone Podcasting Hacks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>2024 Approved Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-brands-together-a-guide-to-selecting-youtube-teams/"><u>2024 Approved Building Brands Together A Guide to Selecting YouTube Teams</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-updates-youtube-money-standards/"><u>2024 Approved Charting Updates YouTube Money Standards</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-business-youtube-sites-you-must-follow/"><u>Essential Business YouTube Sites You Must Follow</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-zte-axon-40-lite-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast ZTE Axon 40 Lite Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-a-step-by-step-guide-to-forming-effective-youtube-partner-relationships/"><u>In 2024, A Step-by-Step Guide to Forming Effective YouTube Partner Relationships</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/optimize-youtube-watch-experience-boostslow-down-feature-usage/"><u>Optimize YouTube Watch Experience Boost/Slow Down Feature Usage</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/optimizing-resident-evil-village-gameplay-boosting-fps-on-windows-based-computers/"><u>Optimizing Resident Evil Village Gameplay: Boosting FPS on Windows-Based Computers</u></a></li>
-<li><a href="https://techidaily.com/remove-the-lock-of-vivo-v30-lite-5g-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Vivo V30 Lite 5G</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-the-ultimate-list-5-free-mov-video-merger-software-options/"><u>Updated 2024 Approved The Ultimate List 5 Free MOV Video Merger Software Options</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-shorts-description-everything-you-should-know/"><u>YouTube Shorts Description Everything You Should Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-beginners-guide-to-sony-vegas-and-youtube-cutting/"><u>[New] A Beginner's Guide to Sony Vegas and YouTube Cutting</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-photo-realism-in-artwork-illustrator-motion-magic-for-2024/"><u>[New] Photo Realism in Artwork Illustrator Motion Magic for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-a-brief-guide-to-kickstarting-conversations-on-instagram/"><u>[Updated] 2024 Approved A Brief Guide to Kickstarting Conversations on Instagram</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-taping-permissibility-concerns/"><u>[Updated] 2024 Approved YouTube Taping Permissibility Concerns</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-your-game-time-with-youtube-live-broadcasts/"><u>[Updated] Enhancing Your Game Time with YouTube Live Broadcasts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-take-control-of-your-tiktok-videos-learn-numeric-editing-techniques/"><u>2024 Approved Take Control of Your TikTok Videos Learn Numeric Editing Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/compreran-yoga-moves-check-out-top-10-youtube-channels-for-2024/"><u>Compreran Yoga Moves? Check Out Top 10 YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/exploring-streaming-options-vimeo-vs-youtubes-popularity/"><u>Exploring Streaming Options Vimeo vs YouTube's Popularity</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/gamers-signature-look-essential-template-tips-for-channels/"><u>Gamers' Signature Look Essential Template Tips for Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diy-video-setups-perfect-self-portraits-for-youtubers/"><u>In 2024, DIY Video Setups Perfect Self-Portraits for YouTubers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-simple-tips-for-capturing-google-voice-conversations/"><u>In 2024, Simple Tips for Capturing Google Voice Conversations</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-zero-budget-football-broadcasting-101/"><u>In 2024, Zero Budget Football Broadcasting 101</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/is-your-iphone-14-pro-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>Is Your iPhone 14 Pro in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-machine-learning-dialogues-with-mac-and-gpt/"><u>Mastering Machine Learning Dialogues with Mac & GPT</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/1715860466221-tapping-into-built-in-screen-recording-features-of-huaweis-mate-and-p-lineup-for-2024/"><u>Tapping Into Built-In Screen Recording Features of Huawei's Mate & P Lineup. For 2024</u></a></li>
 </ul></div>
 

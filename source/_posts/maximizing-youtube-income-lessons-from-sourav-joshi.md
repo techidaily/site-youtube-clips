@@ -1,7 +1,7 @@
 ---
 title: "\"Maximizing YouTube Income  Lessons From Sourav Joshi\""
-date: 2024-09-15T17:18:54.486Z
-updated: 2024-09-16T17:47:29.584Z
+date: 2024-12-31T17:50:47.205Z
+updated: 2025-01-03T21:17:07.995Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ And if you’re into producing content for YouTube, read on to find bonus tips.
 3. [Most Viewed Vlogs/Videos](#part3-3)
 
 * [Pro Tips: How to be a YouTuber and Make Videos Like Sourav Joshi](#part4)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Who is Sourav Joshi?
 
@@ -156,6 +160,10 @@ Drag and drop your files from the media library to be used as the background in 
 
 ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
 ##### Step4 Fix Size and Positioning of your Video
@@ -185,6 +193,10 @@ _Color correction of the video_
 _Options for audio_
 
 ![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Apply masks to your video, they feature different shape and positions, so adjust them accordingly._
 
@@ -299,10 +311,7 @@ With two successful channels, net worth in million, luxury cars, and collaborati
 The reasons for his success and popularity are:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Exclusive Personality
@@ -342,19 +351,6 @@ During the lockdown, Sourav vlogs got massive popularity. One such vlog was “G
 This 13-minute vlog was fun, and viewers can see Sourav enjoying with his younger brother, too.
 
 ![highway vlog](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-6.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 People love watching vlogs, especially when they’re relatable to their personal lives. Many viewers can relate to “Highway Pe Faas Gye” vlog while enjoying it.
 
@@ -406,6 +402,10 @@ _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Color correction of the video_
 
 ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
@@ -443,6 +443,10 @@ Go to the top menu and find “elements.” You can add these elements to ensure
 _Transitions_
 
 ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
@@ -552,6 +556,10 @@ To do this, write **“?cc\_load\_policy=1”** at the end of your video source 
 
 ![embed url](https://images.wondershare.com/filmora/article-images/embed-url.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 These simple steps will help you to create videos with the most impactful content and this collection will be enjoyed by all viewers on your channel. The Closed Captioned videos are valued higher by Google because they are capable enough to please the viewers throughout the world.
 
  Even though CCs can be a powerful addition to your videos, it's always important to prioritize audio, and it all starts with a good microphone. Find out what the best microphones are in this blog post: [The Best Microphone for All Types of Creators](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -591,13 +599,6 @@ Wondershare Filmora serves as an inevitable video editing software for video lov
 YouTube CC (Closed Captions) is much capable of bringing more views to your videos.
 
 Why? Because YouTube algorithms prefer to highlight YouTube videos that contain closed captions because such content appears universally acceptable and it helps to boost the experience for viewers. So when your YouTube video has some kind of relevant audio or speech information then it is essential to add closed captions (YouTube CC) to it.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Benefits of Having YouTube CC Always On**
 
@@ -675,13 +676,6 @@ Wondershare Filmora serves as an inevitable video editing software for video lov
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How YouTube CC Helps You to Get More Views?**
 
 YouTube CC (Closed Captions) is much capable of bringing more views to your videos.
@@ -722,13 +716,6 @@ So, as you have gone through several benefits associated with YouTube video clos
 
 ![keep youtube cc](https://images.wondershare.com/filmora/article-images/keep-youtube-cc4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Embed your Videos with Closed Captions on your website**
 
 Some of you might also want to embed YouTube videos on your website. In this case, also you will need to use closed captions during display.
@@ -742,6 +729,10 @@ These simple steps will help you to create videos with the most impactful conten
  Even though CCs can be a powerful addition to your videos, it's always important to prioritize audio, and it all starts with a good microphone. Find out what the best microphones are in this blog post: [The Best Microphone for All Types of Creators](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -770,6 +761,14 @@ Follow @Richard Bennett
 Wondershare Filmora serves as an inevitable video editing software for video lovers. It has a variety of subtitle templates for you to make great creations. Let's see how to add subtitles to a YouTube video with Wondershare Filmora!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **How YouTube CC Helps You to Get More Views?**
 
@@ -844,5 +843,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-tips.techidaily.com/plants-vs-zombies-battle-for-neighborville-hilarious-combat-action-reviewed/"><u>'Plants Vs. Zombies: Battle for Neighborville': Hilarious Combat Action Reviewed!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[New] Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-step-into-the-world-of-precise-editing-tiktok-number-modification/"><u>[New] In 2024, Step Into the World of Precise Editing TikTok Number Modification</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-quick-access-to-quality-sound-with-easy-vrecorder-downloads/"><u>[New] Quick Access to Quality Sound with Easy VRecorder Downloads</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-artisans-blueprint-achieving-3d-text-mastery-for-2024/"><u>[New] The Artisan's Blueprint Achieving 3D Text Mastery for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-selection-childrens-drone-choices/"><u>[New] Ultimate Selection Children's Drone Choices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieve-unprecedented-image-quality-via-av1-on-youtube/"><u>2024 Approved Achieve Unprecedented Image Quality via AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-charm-in-the-click-a-thumbnail-hack-for-youtube-shorts/"><u>2024 Approved Crafting Charm in the Click A Thumbnail Hack for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>2024 Approved Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-easy-ways-to-transfer-contacts-from-apple-iphone-12-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Easy Ways to Transfer Contacts from Apple iPhone 12 Pro Max to Android | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-practices-boosting-your-game-videos-with-tags/"><u>In 2024, Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-selections-for-speedy-facebook-video-transfers-and-streams/"><u>In 2024, Top Selections for Speedy Facebook Video Transfers and Streams</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1723808235815-whats-new-in-windows-10-creators-update-insider-preview-build-1503/"><u>What's New in Windows 10 Creators Update: Insider Preview Build 1503</u></a></li>
+</ul></div>
 

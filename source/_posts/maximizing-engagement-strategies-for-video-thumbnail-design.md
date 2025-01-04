@@ -1,7 +1,7 @@
 ---
 title: "\"Maximizing Engagement  Strategies for Video Thumbnail Design\""
-date: 2024-09-14T17:08:12.679Z
-updated: 2024-09-21T17:57:50.202Z
+date: 2024-12-28T16:53:26.341Z
+updated: 2025-01-03T23:17:29.299Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -79,6 +83,10 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -115,6 +123,10 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
 
@@ -349,13 +361,6 @@ Today many people use crowdfunding websites to raise money for personal, channel
 
 Your merchandise represents and feeds your audience's connection with you. Your product is your business, so you're first and foremost an entrepreneur. Then design your YouTube marketing strategy to sell your merchandise and generate income.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Channel Membership
 
 YouTube has a plan that allows you to charge your subscribers for membership on your YouTube channel. Members get access to exclusive live chats, badges, emojis, etc. Subscribers must give a set amount every month to a channel that makes a steady monthly income for YouTubers.
@@ -369,6 +374,10 @@ The tools below provide a detailed breakdown of the earnings from a specific You
 ### [YouTube Money Calculator](https://influencermarketinghub.com/youtube-money-calculator/#:~:text=Powered%20by-,Youtube%20Money%20Calculator,-Estimated%20Total%20Earnings)
 
 ![youtube money calculator](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Pros
 
@@ -426,13 +435,6 @@ Step3 On your right, you'll find estimated results in real time. You can also en
 
 ![enter email to get results](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [Tunepocket](https://www.tunepocket.com/youtube-money-calculator/)
 
 ![tunepocket interface](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-10.jpg)
@@ -467,6 +469,10 @@ To better understand the best strategies and tactics to optimize your video cont
 Step1 Login to your [YouTube Studio](https://studio.youtube.com/)
 
 ![login to your youtube studio](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 In the left menu, select Analytics.
 
@@ -516,9 +522,17 @@ The key to making money from videos on YouTube is views. The more views you have
 
 According to _Forbes's_ estimation, you can make $3-$5 per 1000 views. e.g., a video with 1,000,000 views can make around $5,000 on views only.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The engagement level of your audience
 
 When building a YouTube channel, the key to success lies in engaging with your audience. After all, if they don't like what you're offering, they will not watch your videos. So you've got to have a message that resonates and is useful.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Your channel type
 
@@ -578,6 +592,10 @@ Step8 Lastly Export you file
 
 ![select export and check Best](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-24.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bottom line
 
 People want to watch a video when searching for the answers to a question. The best videos are designed to help users accomplish their specific goals while providing them with something they can take away and use for themselves. You need to put up good videos to keep viewers coming back.
@@ -633,13 +651,6 @@ How much money do you earn on YouTube? There is no simple way to answer this que
 
 The tools below provide a detailed breakdown of the earnings from a specific YouTube video or channel based on audience engagement, views, and other factors.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### [YouTube Money Calculator](https://influencermarketinghub.com/youtube-money-calculator/#:~:text=Powered%20by-,Youtube%20Money%20Calculator,-Estimated%20Total%20Earnings)
 
 ![youtube money calculator](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-1.jpg)
@@ -666,13 +677,6 @@ Step2 You'll see the result showing, 'Number of total Subscribers', 'Number of T
 Step3 If you want to check earnings by video, below you'll see another search bar where you can paste the specific video URL.
 
 ![import video url](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 The result will show you the 'Number of Total Video Views', and 'Estimated Video earnings'.
 
@@ -759,16 +763,7 @@ The RPM is calculated based on how much traffic you're getting from YouTube comp
 Your CPM (Cost Per Thousand) report tells you how much each ad was worth in terms of the percentage of each play a video was spent. The playback-based CPM report shows your estimated average gross revenue per 1000 playbacks where one or more ads are shown.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Monthly estimated revenue
@@ -820,6 +815,10 @@ Several monetization methods exist, including Subscription, advertising, affilia
 It is important to know that in some countries, making money off YouTube is extremely difficult. For example, in certain countries, monetizing your videos is impossible without using illegal methods, which will get you into legal trouble.
 
 Some other factors, e.g., it's worth comparing the RPM of your country and other countries, different rules and prices of YouTube Ads depending on your country.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus tip: Increase YouTube earnings with a powerful video editing software
 
@@ -888,5 +887,22 @@ To do that, use the game-changing Filmora 11 (mentioned in the article) to creat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-expert-tips-top-6-apps-that-make-storing-linkedin-videos-simple/"><u>[New] Expert Tips Top 6 Apps That Make Storing LinkedIn Videos Simple</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-paint-your-posts-brightly-instagrams-triple-highlight-strategies/"><u>[New] In 2024, Paint Your Posts Brightly Instagram's Triple Highlight Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-second-teasers-explained/"><u>[Updated] 10-Second Teasers Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-social-sensation-strategies-crafting-fbs-topmusicvideos/"><u>[Updated] In 2024, Social Sensation Strategies - Crafting FB's #TopMusicVideos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-noticing-lack-of-friend-requests/"><u>[Updated] Noticing Lack of Friend Requests</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-pioneering-headsets-elevating-drone-use/"><u>[Updated] Pioneering Headsets Elevating Drone Use</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-transform-your-footage-effective-strategies-for-cropping-and-export-on-instagram-for-2024/"><u>[Updated] Transform Your Footage Effective Strategies for Cropping & Export on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>2024 Approved Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-idea-to-execution-a-comprehensive-youtube-video-guide/"><u>From Idea to Execution A Comprehensive YouTube Video Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-idea-to-execution-creating-youtube-trailers-in-filmora/"><u>From Idea to Execution Creating YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-txt-file-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .txt file free</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/hypervision-pro-all-in-one-4k-screen-desks/"><u>HyperVision Pro All-in-One 4K Screen Desks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-youtube-video-editing-techniques-premiere-pro/"><u>In 2024, Cutting Edge YouTube Video Editing Techniques - Premiere Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-15-secrets-to-building-quality-free-ad-videos-for-youtube/"><u>Top 15 Secrets to Building Quality Free Ad Videos for YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-5-zoom-transcribing-tools-free-and-paid-options-for-2024/"><u>Top 5 Zoom Transcribing Tools Free & Paid Options for 2024</u></a></li>
+</ul></div>
 

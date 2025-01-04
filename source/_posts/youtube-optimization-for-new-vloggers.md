@@ -1,7 +1,7 @@
 ---
 title: "YouTube Optimization for New Vloggers"
-date: 2024-12-20T16:07:48.589Z
-updated: 2024-12-25T16:02:49.729Z
+date: 2025-01-02T16:38:46.978Z
+updated: 2025-01-03T19:34:58.448Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -52,15 +56,15 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -87,6 +91,10 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -194,10 +202,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -207,10 +211,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -227,7 +227,7 @@ Well done finishing the video! You are almost there… but not there yet.
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Come on, keep going!
@@ -263,7 +263,7 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -285,22 +285,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-home-filmmaking-mastery-with-5-easy-diy-hacks/"><u>[New] 2024 Approved Home Filmmaking Mastery with 5 Easy DIY Hacks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-instagram-guide-for-curating-and-sharing-podcasts/"><u>[New] 2024 Approved The Instagram Guide for Curating and Sharing Podcasts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-constructing-compelling-channel-overviews/"><u>[New] Constructing Compelling Channel Overviews</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-from-sound-to-sight-choosing-between-audio-and-video-media/"><u>[Updated] 2024 Approved From Sound to Sight Choosing Between Audio and Video Media</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-step-by-step-guide-invert-playback-videos-android/"><u>[Updated] 2024 Approved Step-by-Step Guide Invert Playback Videos Android</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-deciphering-digital-domination-a-deep-dive-into-directors-videos/"><u>[Updated] Deciphering Digital Domination A Deep Dive Into Directors' Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>[Updated] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-pixelgrabber-w11-simplest-screen-to-video-converter/"><u>[Updated] In 2024, PixelGrabber W11 Simplest Screen to Video Converter</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/fix-windows-11-dvdcd-rom-error-windows-cannot-start-this-hardware-device-because-its-configuration-information-in-the-registry-is-incomplete-or-damaged-code43/"><u>Fix Windows 11 DVD/CD-ROM Error: Windows Cannot Start This Hardware Device because Its Configuration Information (in the Registry) Is Incomplete or Damaged. (Code 19)</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-shield-yourself-online-7-steps-for-enhanced-fb-security/"><u>How to Shield Yourself Online: 7 Steps for Enhanced FB Security</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-craft-your-story-with-immersive-youtube-video-editing-tips/"><u>In 2024, Craft Your Story with Immersive YouTube Video Editing Tips</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-motorola-edge-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Motorola Edge 2023 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-evading-youtube-copyright-claims/"><u>Mastering the Art of Evading YouTube Copyright Claims</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-15-gaming-capture-utilities/"><u>Top 15 Gaming Capture Utilities</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-your-youtube-success-story-a-comprehensive-guide-to-creative-studio/"><u>Unlocking Your Youtube Success Story A Comprehensive Guide to Creative Studio</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-recovering-youtube-gems-2-easy-watch-methods-revealed/"><u>[New] Recovering Youtube Gems 2 Easy Watch Methods Revealed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-camerasection-breakdown-analysis/"><u>[Updated] 2024 Approved CameraSection Breakdown Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-becoming-a-leader-in-video-marketing-on-youtube/"><u>[Updated] Becoming a Leader in Video Marketing on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-behind-the-brand-pewdiepies-financial-figures-unveiled-for-2024/"><u>[Updated] Behind the Brand PewDiePie’s Financial Figures Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-the-ultimate-blend-of-mind-body-and-spirit-in-yoga/"><u>[Updated] Discover the Ultimate Blend of Mind, Body, and Spirit in Yoga</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-essentials-of-narrowing-virtual-room-spaces-for-2024/"><u>[Updated] The Essentials of Narrowing Virtual Room Spaces for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-tecno-pova-6-pro-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Tecno Pova 6 Pro 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/harnessing-youtubes-true-potential-in-studio/"><u>Harnessing YouTube's True Potential in Studio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-youtubes-new-earning-standards/"><u>In 2024, Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-google-pixel-7a-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Google Pixel 7a</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-copyrights-demystified-understanding-and-managing-strikes/"><u>In 2024, YouTube Copyrights Demystified Understanding and Managing Strikes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/overcoming-unseen-thumbnails-in-youtube-shorts/"><u>Overcoming Unseen Thumbnails in YouTube Shorts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-technical-glitches-in-spellbreak-for-pc-players/"><u>Resolving Technical Glitches in Spellbreak for PC Players</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723005757058-resolving-technical-issues-with-yakuza-6-pc-version-no-more-crashes/"><u>Resolving Technical Issues with Yakuza 6 PC Version - No More Crashes!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamers-financial-compliance-check/"><u>Streamer's Financial Compliance Check</u></a></li>
 </ul></div>
 

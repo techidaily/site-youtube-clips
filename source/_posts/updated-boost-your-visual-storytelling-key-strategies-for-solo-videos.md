@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos\""
-date: 2024-12-19T16:07:56.419Z
-updated: 2024-12-25T16:05:40.058Z
+date: 2024-12-28T20:30:13.041Z
+updated: 2025-01-03T22:33:06.902Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -42,14 +38,14 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -79,6 +75,10 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -88,7 +88,7 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -116,7 +116,7 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,22 +134,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-cutting-edge-tools-for-youtube-screen-capturing/"><u>[New] 2024 Approved Cutting-Edge Tools for YouTube Screen Capturing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/est-5-youtube-video-editor-alternatives/"><u>[New] Best 5 YouTube Video Editor Alternatives</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-beyond-vidcon-top-50-youtube-celebrations/"><u>[New] Beyond VidCon Top 50 YouTube Celebrations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-direct-transition-from-youtube-to-instagram-reels/"><u>[New] Direct Transition From YouTube to Instagram Reels</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-from-lesser-known-to-youtube-star-amassing-an-army-of-admirers/"><u>[New] In 2024, From Lesser Known to YouTube Star Amassing an Army of Admirers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-10-recording-tips-to-record-audio-in-high-quality/"><u>[Updated] 10 Recording Tips to Record Audio in High Quality</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-disrupted-tunes-the-best-audio-rippers/"><u>[Updated] Disrupted Tunes The Best Audio Rippers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/advanced-gopro-editing-straightening-fisheye-lens/"><u>Advanced GoPro Editing Straightening Fisheye Lens</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/clearer-listening-no-buzzy-interruptions-a-comprehensive-guide-to-repairing-headphone-noise-issues/"><u>Clearer Listening, No Buzzy Interruptions: A Comprehensive Guide to Repairing Headphone Noise Issues</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-customizing-your-channel-icon-banner-and-thumbnail-ideas/"><u>In 2024, Customizing Your Channel Icon, Banner & Thumbnail Ideas</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-defining-your-digital-dna-a-guide-to-youtubing-personal-branding/"><u>In 2024, Defining Your Digital DNA A Guide to YouTubing Personal Branding</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elite-edits-the-best-video-editors-ranked/"><u>In 2024, Elite Edits The Best Video Editors Ranked</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-mastering-low-volume-settings-in-os-xwindows/"><u>In 2024, Mastering Low-Volume Settings in OS X/Windows</u></a></li>
-<li><a href="https://driver-download.techidaily.com/keeping-your-dell-laser-printer-in-top-shape-essential-driver-upgrades-for-models-2330d-and-2330dn/"><u>Keeping Your Dell Laser Printer in Top Shape: Essential Driver Upgrades for Models 2330D and 2330DN</u></a></li>
-<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-motorola-g54-5g-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Motorola G54 5G</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-easiest-way-to-shorten-youtube-links-here-are-the-top-5-choices/"><u>The Easiest Way to Shorten YouTube Links? Here Are the Top 5 Choices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/top-10-tips-to-upgrade-your-obs-mobile-broadcasting-for-2024/"><u>Top 10 Tips to Upgrade Your OBS Mobile Broadcasting for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-pcs-premier-ps3-clones-2023-edition/"><u>[Updated] In 2024, PC's Premier PS3 Clones - 2023 Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-youtube-comment-finder-you-should-try/"><u>2024 Approved YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-chill-out-guide-selecting-inviting-winter-backgrounds-for-2024/"><u>A Chill-Out Guide Selecting Inviting Winter Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-youtube-interaction-with-emojis-for-2024/"><u>Boosting YouTube Interaction with Emojis for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-xiaomi-14-ultra-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Xiaomi 14 Ultra Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone XR</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-high-quality-video-webcams-top-5-combos-with-sound/"><u>In 2024, High-Quality Video Webcams - Top 5 Combo's With Sound</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/no-more-black-fringe-in-youtube-videos/"><u>No More Black Fringe in YouTube Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/offline-replay-select-playlist-extractors-reviewed/"><u>Offline Replay Select Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/revolutionize-your-youtube-presence-with-personalized-thumbnails/"><u>Revolutionize Your YouTube Presence with Personalized Thumbnails</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-qn55q60rafxza-4k-uhd-tv-evaluation-premium-hdr10plus-performance-and-features/"><u>Samsung QN55Q60RAFXZA 4K UHD TV Evaluation: Premium HDR10+ Performance and Features</u></a></li>
 </ul></div>
 

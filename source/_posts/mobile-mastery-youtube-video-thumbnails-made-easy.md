@@ -1,7 +1,7 @@
 ---
 title: "\"Mobile Mastery  YouTube Video Thumbnails Made Easy\""
-date: 2024-09-11T18:31:31.428Z
-updated: 2024-09-16T16:00:27.980Z
+date: 2024-12-30T00:00:56.674Z
+updated: 2025-01-03T21:24:22.250Z
 tags:
   - ai video
   - ai youtube
@@ -21,6 +21,10 @@ As a content creator, you know the importance of a visually appealing thumbnail 
 When creating your thumbnail, it's important to remember that the recommended size is 1280 x 720 pixels and a minimum width of 640 pixels. With these dimensions in mind, let's dive into how you can easily create stunning thumbnails for your YouTube videos using your mobile phone.
 
 ![make thumbnails or youtube with mobile phones](https://images.wondershare.com/filmora/article-images/how-to-make-thumbnail-for-youtube-in-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1\. Make a YouTube Thumbnail on iPhone With the iPhone Photos App
 
@@ -101,6 +105,10 @@ Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Pros
 
 * More customization options
@@ -127,6 +135,10 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
@@ -162,16 +174,13 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
@@ -184,13 +193,6 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
 
@@ -273,13 +275,6 @@ Step6 Save the image to your gallery by exporting it.
 
 This method is best for users looking for more advanced customization options and higher image quality for their YouTube thumbnails. It's also a good option for users with experience with graphic design software and who are comfortable using advanced editing tools. If you're looking for a quick and easy way to create a thumbnail and only need a few customization options, consider using the built-in Photos app or other simpler methods.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How To Add Thumbnails to YouTube Videos on Mobile
 
 Once you've created your thumbnail image, it's time to add it to your YouTube video. Adding a thumbnail to your YouTube video on your mobile device is a simple process that only requires a few steps.
@@ -305,6 +300,10 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
@@ -332,13 +331,6 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
@@ -356,6 +348,10 @@ For more detailed instructions and a visual guide, you can watch the following v
 Add a video
 
 This video will show you how to use Filmora to create a custom thumbnail for your YouTube video, step by step.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## People Also Ask
 
@@ -378,13 +374,6 @@ For example, a thumbnail may be displayed at a larger size when it's shown as th
 There is no one-size-fits-all answer to this question, as the thumbnail that gets the most clicks can vary depending on the topic of your video, your target audience, and other factors.
 
 However, the key to getting clicks on your thumbnail is to make it visually appealing and relevant to your video. Experiment with different thumbnail designs and track which ones get the most clicks to help you identify what works best for your channel.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -456,57 +445,9 @@ Sometimes background noise is so minor that you do not want to bother going thro
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-There are few things more annoying to viewers on YouTube than background noise. It is distracting and makes it difficult to engage with the content of a video. If there is noticeable background noise in a video, even a small noise like the faint hum of a computer fan, then it will increase the chances of viewers clicking away. The good news is that these kinds of noises are fairly easy to get rid of.
-
-In order to remove background noise from your video clip, you will first need to create an MP3 of your audio. Then you will be able to take out the unwanted noise in a free program called Audacity and reintroduce your corrected audio into your Filmora project. This article will walk you through the audio editing process.
-
-![remove background noise from video](https://images.wondershare.com/filmora/article-images/2021/remove-background-noise-from-video.jpg)
-
-## How To Remove Background Noise from Your Youtube Video
-
-### Background Noise Removal
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Open up Filmora, import your clip, and drag it into the timeline. Then, play your clip and listen for background noise. If you hear a noise that you wish to remove move on to the first step of [background noise removal](https://tools.techidaily.com/wondershare/filmora/download/).
-
-#### 1\.  Creating An MP3
-
-If you do not already have it you will need to download VLC Media Player from videoLAN.org. VLC is a completely free media player that can play almost any type of file, is great for converting files, and can even be used as a screen recorder. If you consume a lot of media online then chances are you already have VLC. You could also use is Free Video to MP3 Converter by DVDVideoSoft.
-
-If you choose to use VLC, open it up and select **Convert/Save** under **Media**. Select your video in the **Open Media** window that pops up. After you click **Convert/Save** you will be able to choose your format, in this case, MP3, under **Save as type**.
-
-#### 2\.  Removing Background Noise in Audacity
-
-You can download Audacity for free at Audacityteam.org.
-
-Once you have Audacity use it to open your MP3\. Then, find a section of your audio that is silent aside from your background noise and highlight it by clicking and dragging. The idea is to point out to the program exactly what sound is a problem for you so it knows what to remove. If you have trouble finding a significant stretch of background noise that does not also include dialogue remember to record a pause before or after the content of your video next time you film.
-
-With your section of background noise highlighted, go to **Effect** and then **Noise Reduction**. Then, click on **Get Noise Profile**. After that, you will select your entire audio timeline before going back to **Noise Reduction** under **Effect**. This time click on **OK** (the default settings are the best in most situations so you do not need to worry about changing them).
-
-Audacity will remove everything that sounds like the sound profile, eliminating your background noise. Sometimes this method will also dull your dialogue, which can be fixed by selecting your entire track and then going to **Effect** and **Amplify**. Increasing amplification will fix any muffling of your audio.
-
-#### 3\. Syncing in Filmora
-
-Export your corrected MP3 from Audacity and import it into Filmora. Then, drag it into your music track. Syncing your audio should not be difficult, but you can always use your original audio to help you line it up properly if you need to. Just look for a significant spike in your audio waves in both your MP3 and the original audio and make sure they are right on top of each other.
-
-Then, since you no longer need your original audio, you can delete it. Right-click on your clip and select **Audio Detach**. Once your audio is on its own track just select it and click delete.
-
-### Covering Background Noise
-
-Sometimes background noise is so minor that you do not want to bother going through the process of removing it. In these situations, it may be easier to cover up your background noise than to remove it. This is as simple as dragging a song into the music track of your timeline and adjusting its volume so it is not loud enough to draw attention away from your dialogue. Chances are you want to add background music anyways and this is not even an extra step.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -575,6 +516,70 @@ There are few things more annoying to viewers on YouTube than background noise. 
 In order to remove background noise from your video clip, you will first need to create an MP3 of your audio. Then you will be able to take out the unwanted noise in a free program called Audacity and reintroduce your corrected audio into your Filmora project. This article will walk you through the audio editing process.
 
 ![remove background noise from video](https://images.wondershare.com/filmora/article-images/2021/remove-background-noise-from-video.jpg)
+
+## How To Remove Background Noise from Your Youtube Video
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Background Noise Removal
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Open up Filmora, import your clip, and drag it into the timeline. Then, play your clip and listen for background noise. If you hear a noise that you wish to remove move on to the first step of [background noise removal](https://tools.techidaily.com/wondershare/filmora/download/).
+
+#### 1\.  Creating An MP3
+
+If you do not already have it you will need to download VLC Media Player from videoLAN.org. VLC is a completely free media player that can play almost any type of file, is great for converting files, and can even be used as a screen recorder. If you consume a lot of media online then chances are you already have VLC. You could also use is Free Video to MP3 Converter by DVDVideoSoft.
+
+If you choose to use VLC, open it up and select **Convert/Save** under **Media**. Select your video in the **Open Media** window that pops up. After you click **Convert/Save** you will be able to choose your format, in this case, MP3, under **Save as type**.
+
+#### 2\.  Removing Background Noise in Audacity
+
+You can download Audacity for free at Audacityteam.org.
+
+Once you have Audacity use it to open your MP3\. Then, find a section of your audio that is silent aside from your background noise and highlight it by clicking and dragging. The idea is to point out to the program exactly what sound is a problem for you so it knows what to remove. If you have trouble finding a significant stretch of background noise that does not also include dialogue remember to record a pause before or after the content of your video next time you film.
+
+With your section of background noise highlighted, go to **Effect** and then **Noise Reduction**. Then, click on **Get Noise Profile**. After that, you will select your entire audio timeline before going back to **Noise Reduction** under **Effect**. This time click on **OK** (the default settings are the best in most situations so you do not need to worry about changing them).
+
+Audacity will remove everything that sounds like the sound profile, eliminating your background noise. Sometimes this method will also dull your dialogue, which can be fixed by selecting your entire track and then going to **Effect** and **Amplify**. Increasing amplification will fix any muffling of your audio.
+
+#### 3\. Syncing in Filmora
+
+Export your corrected MP3 from Audacity and import it into Filmora. Then, drag it into your music track. Syncing your audio should not be difficult, but you can always use your original audio to help you line it up properly if you need to. Just look for a significant spike in your audio waves in both your MP3 and the original audio and make sure they are right on top of each other.
+
+Then, since you no longer need your original audio, you can delete it. Right-click on your clip and select **Audio Detach**. Once your audio is on its own track just select it and click delete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### Covering Background Noise
+
+Sometimes background noise is so minor that you do not want to bother going through the process of removing it. In these situations, it may be easier to cover up your background noise than to remove it. This is as simple as dragging a song into the music track of your timeline and adjusting its volume so it is not loud enough to draw attention away from your dialogue. Chances are you want to add background music anyways and this is not even an extra step.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+There are few things more annoying to viewers on YouTube than background noise. It is distracting and makes it difficult to engage with the content of a video. If there is noticeable background noise in a video, even a small noise like the faint hum of a computer fan, then it will increase the chances of viewers clicking away. The good news is that these kinds of noises are fairly easy to get rid of.
+
+In order to remove background noise from your video clip, you will first need to create an MP3 of your audio. Then you will be able to take out the unwanted noise in a free program called Audacity and reintroduce your corrected audio into your Filmora project. This article will walk you through the audio editing process.
+
+![remove background noise from video](https://images.wondershare.com/filmora/article-images/2021/remove-background-noise-from-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How To Remove Background Noise from Your Youtube Video
 
@@ -631,5 +636,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-chrome-os-4-screenshots-tricks/"><u>[New] 2024 Approved Mastering Chrome OS 4 Screenshots Tricks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-detailed-insights-into-youtubes-monthly-income-model/"><u>[New] Detailed Insights Into YouTube's Monthly Income Model</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-automated-calendar-management-for-remote-teams/"><u>[New] In 2024, Automated Calendar Management for Remote Teams</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-how-to-record-a-powerpoint-presentation/"><u>[Updated] 2024 Approved How to Record a PowerPoint Presentation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boost-visibility-with-customized-channel-names/"><u>2024 Approved Boost Visibility with Customized Channel Names</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>2024 Approved Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-creating-fluid-edits/"><u>2024 Approved The Ultimate Guide to Creating Fluid Edits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/brand-your-channel-innovative-banner-templates-for-gamers/"><u>Brand Your Channel Innovative Banner Templates for Gamers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/deutsche-wochentage-einfache-lerneinheit/"><u>Deutsche Wochentage: Einfache Lerneinheit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-diving-into-youtubes-veiled-video-vaults/"><u>Digital Diving Into YouTube’s Veiled Video Vaults</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-audio-recording-gear-for-idevices/"><u>Essential Audio Recording Gear for iDevices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-advice-for-embedding-youtube-playlists-with-ease/"><u>Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-finances-how-much-do-youtubers-earn-per-ad/"><u>In 2024, Deciphering Finances How Much Do YouTubers Earn Per Ad?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-infinix-smart-8-plus-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Infinix Smart 8 Plus Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-infinix-hot-30i-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Infinix Hot 30i Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-guide-increasing-windows-11-pin-length/"><u>Step-by-Step Guide: Increasing Windows 11 PIN Length</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlining-your-youtube-tracks-a-sound-guide/"><u>Streamlining Your YouTube Tracks A Sound Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/troubleshoot-black-screen-woes-in-youtube-playback/"><u>Troubleshoot Black Screen Woes in Youtube Playback</u></a></li>
+</ul></div>
 

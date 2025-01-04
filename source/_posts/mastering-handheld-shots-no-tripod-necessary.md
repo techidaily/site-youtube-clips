@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Handheld Shots  No Tripod Necessary\""
-date: 2024-09-16T16:40:25.703Z
-updated: 2024-09-21T16:32:16.820Z
+date: 2024-12-28T23:26:12.836Z
+updated: 2025-01-03T22:08:31.310Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -141,16 +145,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -224,13 +225,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -336,6 +330,10 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
@@ -417,20 +415,6 @@ As a content creator on YouTube, you know how important it is to have a strong t
 When creating a thumbnail for your Valorant video, it's important to remember that the recommended size is 1280 x 720 pixels. This will ensure that your thumbnail looks clear and professional on all devices. In addition to size, it's also essential to consider the composition of your thumbnail. In this article, we'll provide tips and tricks for creating professional Valorant thumbnails that will help boost your views and engagement.
 
 ![create valorant thumbnail for youtube](https://images.wondershare.com/filmora/article-images/valorant-thumbnail-for-youtube.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Is Valorant?
 
@@ -570,6 +554,10 @@ His channel is a reliable source for those looking for consistently fresh and di
 
 ![n0ted](https://images.wondershare.com/filmora/article-images/n0ted.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. [Hiko](https://www.youtube.com/c/Hiko/featured) \- Valorant Content Creator With 382k YouTube Subscrbers
 
 Hiko is a well-known Valorant content creator and former player of Counter-Strike: Global Offensive (CS:GO). He is known for his skill in first-person shooter games and his expertise in Valorant, which he shares through tips and gameplay videos on his channels on Twitch and YouTube.
@@ -585,6 +573,10 @@ C9 meL is a highly respected professional Valorant player and leader of the team
 In addition to her instructional content, MeL's videos often feature a mix of comedy and skill, making them enjoyable for entertainment and improvement purposes. Overall, MeL is a talented and well-respected member of the Valorant community.
 
 ![c9 mel](https://images.wondershare.com/filmora/article-images/c9-mel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -614,6 +606,10 @@ Step4 Drag the screenshot from the media library into the timeline.
 
 ![filmora add screenshot](https://images.wondershare.com/filmora/article-images/filmora-add-screenshot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Use the "[**Smart**](https://tools.techidaily.com/wondershare/filmora/download/) [**Cutout**](https://tools.techidaily.com/wondershare/filmora/download/)" feature to select and cut out specific elements from the screenshot.
 
 ![filmora smart cutout](https://images.wondershare.com/filmora/article-images/filmora-smart-cutout.jpg)
@@ -638,6 +634,10 @@ Step10 Add an effect, such as a gun effect, by **searching** for the desired eff
 
 ![filmora add effect](https://images.wondershare.com/filmora/article-images/filmora-add-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step11 Adjust the opacity of the effect as desired.
 
 ![filmora adjust opacity](https://images.wondershare.com/filmora/article-images/filmora-adjust-opacity.jpg)
@@ -657,6 +657,10 @@ Step14 Edit the texts and **adjust** the appearance of the texts in the Titles w
 Step15 Choose a still frame that you like and take a snapshot of it.
 
 ![filmora add frame](https://images.wondershare.com/filmora/article-images/filmora-add-frame.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step16 Select the snapshot format and storage path. The snapshot will appear in the media library.
 
@@ -703,10 +707,7 @@ In addition to his full matches and 1v1 videos, TenZ also produces educational c
 ![tenz](https://images.wondershare.com/filmora/article-images/tenz.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. [n0ted](https://www.youtube.com/c/noted/featured) – Prolific Valorant YouTuber With 614k Subscribers
@@ -716,6 +717,10 @@ n0ted is a dedicated and prolific Valorant content creator, consistently uploadi
 His channel is a reliable source for those looking for consistently fresh and diverse Valorant content on YouTube. Whether you're interested in learning new strategies, having a few laughs, or staying up to date with the latest developments in the game, n0ted's channel has something for everyone.
 
 ![n0ted](https://images.wondershare.com/filmora/article-images/n0ted.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. [Hiko](https://www.youtube.com/c/Hiko/featured) \- Valorant Content Creator With 382k YouTube Subscrbers
 
@@ -752,5 +757,19 @@ Additionally, there are many successful Valorant YouTubers who offer a range of 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-fix-coffee-stain-distortions-on-iphones-in-a-flash-for-free/"><u>[New] Fix Coffee Stain Distortions on iPhones in a Flash, for Free</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-live-streaming-duel-pitting-obs-against-shadowgl/"><u>[New] In 2024, Live Streaming Duel Pitting OBS Against ShadowGL</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-yields-mastering-the-art-of-viral-hashtag-use/"><u>[New] In 2024, YouTube Yields Mastering the Art of Viral Hashtag Use</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-navigating-the-complexities-of-online-video-rights/"><u>2024 Approved Navigating the Complexities of Online Video Rights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/claim-the-crown-strategies-for-staff-picked-videos-at-vimeo/"><u>Claim the Crown Strategies for Staff-Picked Videos at Vimeo</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/constructing-attention-grabbing-trailers-for-youtube-for-2024/"><u>Constructing Attention-Grabbing Trailers for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decrypting-youtube-live-thumbnails-for-success/"><u>Decrypting YouTube Live Thumbnails for Success</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-fix-mfplatdll-is-missing-or-not-found-errors/"><u>How to Fix Mfplat.dll Is Missing or Not Found Errors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-fb-video-promos-access-free-video-toolkit-for-2024/"><u>Mastering FB Video Promos Access Free Video Toolkit for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-netflix-and-youtubers-how-jake-paul-succeeded/"><u>Navigating Netflix & YouTubers How Jake Paul Succeeded</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/profitable-pixels-monetizing-content-across-platforms/"><u>Profitable Pixels Monetizing Content Across Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-playback-paradox-starting-at-the-finish-line-on-youtube/"><u>The Playback Paradox Starting at the Finish Line on YouTube</u></a></li>
+</ul></div>
 

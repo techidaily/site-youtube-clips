@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Video Privacy  Directly Share YT Clips Using GoogleID\""
-date: 2024-09-20T18:31:17.256Z
-updated: 2024-09-21T16:14:07.072Z
+date: 2024-12-28T16:29:19.855Z
+updated: 2025-01-03T18:22:03.926Z
 tags:
   - ai video
   - ai youtube
@@ -40,119 +40,9 @@ To make YouTube videos awesome, Wondershare Filmora has features like overlays &
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-## **Part 1: How to Share a Private YouTube Video**
-
-You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
-
-When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
-
-Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
-
-## **Part 2: Private Video Limitations on YouTube**
-
-The video cannot be shared again and only the individuals invited can view the video at its URL.
-
- ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
-
- Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
-
-## **Part 3: How to Share Unlisted Videos on YouTube**
-
-Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
-
-To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
-
-Private YouTube videos can be shared with 50 Google accounts.
-
-* [**Part 1: How to Share a Private YouTube Video**](#share)
-* [**Part 2: Private Video Limitations on YouTube**](#limits)
-* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
-
-## Make Your YouTube Video with Wondershare Filmora
-
-To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-## **Part 1: How to Share a Private YouTube Video**
-
-You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
-
-When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
-
-Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
-
-## **Part 2: Private Video Limitations on YouTube**
-
-The video cannot be shared again and only the individuals invited can view the video at its URL.
-
- ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
-
- Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
-
-## **Part 3: How to Share Unlisted Videos on YouTube**
-
-Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
-
-To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
-
-Private YouTube videos can be shared with 50 Google accounts.
-
-* [**Part 1: How to Share a Private YouTube Video**](#share)
-* [**Part 2: Private Video Limitations on YouTube**](#limits)
-* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
-
-## Make Your YouTube Video with Wondershare Filmora
-
-To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## **Part 1: How to Share a Private YouTube Video**
 
@@ -219,10 +109,7 @@ The video cannot be shared again and only the individuals invited can view the v
  ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
@@ -234,6 +121,118 @@ Another option that YouTube delivers for privacy is the chance to mark videos as
 To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to share a private YouTube video? A private video is a video that is posted to YouTube, but only viewable to a select group of people who you choose to share it with. It could be that this is a personal video only intended for friends and family, or it could be that you want to get feedback from people you trust before making it public.
+
+Private YouTube videos can be shared with 50 Google accounts.
+
+* [**Part 1: How to Share a Private YouTube Video**](#share)
+* [**Part 2: Private Video Limitations on YouTube**](#limits)
+* [**Part 3: How to Share Unlisted Videos on YouTube**](#unlisted)
+
+## Make Your YouTube Video with Wondershare Filmora
+
+To make YouTube videos awesome, Wondershare Filmora has features like overlays & effects, Advanced color tuning, green screen, a power tool that would certainly help you create a video intended for a personal review. The tools and features on Wondershare Filmora are unbeatable in terms of quality and precision and you can use it for your YouTube video editing and directly upload them from the Wondershare Filmora dashboard itself to avoid that time-consuming process of transferring your videos device to device if you are using another system to edit your videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **Part 1: How to Share a Private YouTube Video**
+
+You can make a YouTube video private either within the Creator studio or by choosing the option when you first upload a video.
+
+When you mark a video as private you will be able to send the video out to up to 50 e-mail addresses, names of contacts on Google, or your circles on Google plus. As soon as you add a new contact to the list they will receive an invite link to view the video.
+
+Unlike with an unlisted video, the contacts allowed to view a private video will not be able to share the URL of your video with their own friends and contacts.
+
+## **Part 2: Private Video Limitations on YouTube**
+
+The video cannot be shared again and only the individuals invited can view the video at its URL.
+
+ ![private video limitation](https://images.wondershare.com/filmora/article-images/private-video-limitation.gif)
+
+ Contacts that you send the private invite too will have to have a YouTube account and be signed in to it, in order to view your video.
+
+## **Part 3: How to Share Unlisted Videos on YouTube**
+
+Another option that YouTube delivers for privacy is the chance to mark videos as unlisted. Unlisted videos will not be included in any of the Google search engine results and only individuals that have the link will be able to view the videos on YouTube. A person does not have to have a Google account or any type of password to see unlisted videos, only the link, which means the people you share the video with will also be able to share it with whoever they like.
+
+To share an unlisted video, simply send its URL to anyone you want to watch it. This is easier than sharing private YouTube videos, but not quite as private.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -252,6 +251,10 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mastering YouTube Screens' Final Touches
 
@@ -259,98 +262,22 @@ Follow @Richard Bennett
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
-
-* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
-* [**Part2: How To Use Youtube End Screen**](#part2)
-* [**Part3: How To Use Youtube Cards**](#part3)
-
-[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
-
-## Part 1: Why You Need to Add End Screens and Cards to Videos
-
-There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
-
-## Part 2: How To Use Youtube End Screen
-
-Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
-
-* Go to Creator Studio and check the left side to find the Video Manager, click on it.
-* Wherever you wish to add the end screen on the video, click on it.
-* Click End Screen & Annotations at the top.
-* From end screen and annotations, you can add or configure elements.
-* Check how the end screen will appear to the visitors.
-* Click on blue color add element’s button to find four options available there:
-
-**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
-
-**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
-
-**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
-
-**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
-
-## Part 3: How To Use Youtube Cards
-
-YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
-
-* Click on the "Video Manager" tab.
-* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
-* Choose the cards type you want to make on "Add Card" drop down menu.
-* Click “create” button. Select the timeline. In the end, apply.
-
-### The types of YouTube cards
-
-* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
-* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
-* **Poll**: Encourage viewers to participate in a poll (vote)
-* **Link**: links to a website which compliments whatever content is in the video.
-
-### 4 Tips for Using YouTube Cards
-
-**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
-
-**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
-
-**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
-
- **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
-
-## Conclusion
-
-Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
-
-* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
-* [**Part2: How To Use Youtube End Screen**](#part2)
-* [**Part3: How To Use Youtube Cards**](#part3)
-
-[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
+
+* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
+* [**Part2: How To Use Youtube End Screen**](#part2)
+* [**Part3: How To Use Youtube Cards**](#part3)
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
+
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
@@ -478,6 +405,87 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
+
+* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
+* [**Part2: How To Use Youtube End Screen**](#part2)
+* [**Part3: How To Use Youtube Cards**](#part3)
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
+
+## Part 1: Why You Need to Add End Screens and Cards to Videos
+
+There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+## Part 2: How To Use Youtube End Screen
+
+Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
+
+* Go to Creator Studio and check the left side to find the Video Manager, click on it.
+* Wherever you wish to add the end screen on the video, click on it.
+* Click End Screen & Annotations at the top.
+* From end screen and annotations, you can add or configure elements.
+* Check how the end screen will appear to the visitors.
+* Click on blue color add element’s button to find four options available there:
+
+**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
+
+**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
+
+**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
+
+**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 3: How To Use Youtube Cards
+
+YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
+
+* Click on the "Video Manager" tab.
+* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
+* Choose the cards type you want to make on "Add Card" drop down menu.
+* Click “create” button. Select the timeline. In the end, apply.
+
+### The types of YouTube cards
+
+* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
+* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
+* **Poll**: Encourage viewers to participate in a poll (vote)
+* **Link**: links to a website which compliments whatever content is in the video.
+
+### 4 Tips for Using YouTube Cards
+
+**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
+
+**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
+
+**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
+
+ **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
+
+## Conclusion
+
+Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -547,10 +555,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -578,5 +583,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-capture-and-keep-your-linkedin-content-with-these-6-powerful-apps/"><u>[New] Capture & Keep Your LinkedIn Content with These 6 Powerful Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ace-search-engine-rankings-on-youtube-11-proven-seo-methods/"><u>[Updated] 2024 Approved Ace Search Engine Rankings on YouTube 11 Proven SEO Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-maximize-video-reach-with-effective-tags-titles/"><u>[Updated] In 2024, How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-apex-palette-adjuster/"><u>2024 Approved Apex Palette Adjuster</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-engagement-posting-youtube-video-on-fb/"><u>2024 Approved Elevate Engagement Posting YouTube Video on FB</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-how-to-edit-youtube-videos-in-finalcut-pro/"><u>2024 Approved How to Edit YouTube Videos in Finalcut Pro</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/extracting-youtube-songs-safely-a-free-guide-explored/"><u>Extracting YouTube Songs Safely A Free Guide Explored</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/guia-paso-a-paso-para-generar-una-imagen-iso-de-windows-1110-desde-una-configuracion-actual/"><u>Guía Paso a Paso Para Generar Una Imagen ISO De Windows 11/10 Desde Una Configuración Actual</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-12-mini-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone 12 mini If Youve Tried Everything</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/lg-stylo-6-smartphone-assessment-elegant-design-with-a-precision-pen/"><u>LG Stylo 6 Smartphone Assessment - Elegant Design with a Precision Pen</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-tutorial-to-fix-building-loading-problems-in-pubg/"><u>Step-by-Step Tutorial to Fix Building Loading Problems in PUBG</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-artisans-guide-to-personal-branding-via-youtube/"><u>The Artisan's Guide to Personal Branding via YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tiny-content-overview-made-easy/"><u>Tiny Content Overview Made Easy</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-update-your-hardware-drivers-in-windows-7-by-drivereasy-guide/"><u>Use Device Manager to update your hardware drivers in Windows 7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-studio-for-beginners-basic-to-pro-editing-guide/"><u>YouTube Studio for Beginners Basic to Pro Editing Guide</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-thumbnail-101-phones-edition/"><u>YouTube Thumbnail 101 Phones Edition</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Profit on Beauty Channels"
-date: 2024-09-16T16:01:57.344Z
-updated: 2024-09-21T18:59:51.343Z
+date: 2024-12-27T23:09:08.917Z
+updated: 2025-01-03T21:21:47.748Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,72 @@ Even better – if that person keeps shopping, or even skips the curling iron an
 
 Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Gifts
+
+Sometimes companies might just give you stuff.
+
+As your following gets bigger, brands might start sending you samples of their products in the hopes that you will fall in love with them and mention, review, or use them in your videos. This is not the same as a sponsorship because the brand is not paying you for a specific kind of message.
+
+Receiving these kinds of gifts is not the same as getting paid, but it can certainly save you money on makeup.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+There are a lot of ways you can make money by posting makeup, beauty, or fashion videos on YouTube. These are all industries that understand the value of quality social media content.
+
+ In the video above, [beauty YouTuber](https://tools.techidaily.com/wondershare/filmora/download/) Gena M explains all the ways there are to make money posting makeup and fashion videos on YouTube. Gena’s most important piece of advice for other beauty vloggers is, to be honest. There is nothing wrong with making money from affiliates or sponsors, so long as you only associate with and recommend products you would actually buy.
+
+Here’s more advice on how you can make money from your makeup videos:
+
+## Sponsorships
+
+If you are truly passionate about makeup or fashion then you probably have a few favorite brands. Even if you have never really thought about a brand as your favorite, chances are you purchase one or two types of lip gloss – or any other product – over others on a regular basis.
+
+Wouldn’t it be nice if a company whose product you already love and use in your videos would start paying you just to mention them?
+
+There are sites called influencer marketing platforms – the most popular one is FameBit – where you can find brands that are looking for creators just like you to work with them on marketing campaigns. Brands post what they are looking for, and you send them proposals for what kinds of videos you want to make for them.
+
+Sometimes, creating branded content can be as easy as drawing attention to the brand of the eyeliner you use in a few of your tutorials.
+
+Other times, brands may want you to say specific things or include logos in your videos.
+
+Make sure to incorporate any brand messages or product placement you agree to do in ways that will feel natural to your viewers. You should let them know that you have a sponsor, and then incorporate the branded content in ways that do not take away from their enjoyment of your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Ad Revenue
+
+Monetizing your videos and earning ad revenue is one of the primary ways beauty vloggers, and all other YouTubers, make money. It takes a long time to earn more than the pocket change from ads, but so long as you keep growing your audience your revenue will keep going up.
+
+Pay attention to the estimated revenue reports to see which of your videos are earning the most money from ads (they won’t always be your most popular videos). By making more videos on similar topics you will be able to make more money.
+
+## Affiliate Links
+
+By becoming an Amazon affiliate, or joining the affiliate program of another online store, you can make money by including links to products in the descriptions of your video or in your related blog posts.
+
+For example, if you talk about your new curling iron in a hair tutorial then you can include a special link to it on Amazon. If any of your viewers follow that link and buy it, you earn a percentage of the purchase.
+
+Even better – if that person keeps shopping, or even skips the curling iron and buys something else, you earn a percentage of any purchase they make on Amazon for a certain period of time.
+
+Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
+
 ## Gifts
 
 Sometimes companies might just give you stuff.
@@ -109,6 +175,10 @@ Make sure to incorporate any brand messages or product placement you agree to do
 Monetizing your videos and earning ad revenue is one of the primary ways beauty vloggers, and all other YouTubers, make money. It takes a long time to earn more than the pocket change from ads, but so long as you keep growing your audience your revenue will keep going up.
 
 Pay attention to the estimated revenue reports to see which of your videos are earning the most money from ads (they won’t always be your most popular videos). By making more videos on similar topics you will be able to make more money.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Affiliate Links
 
@@ -189,76 +259,8 @@ Receiving these kinds of gifts is not the same as getting paid, but it can certa
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Nov 01, 2022• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-There are a lot of ways you can make money by posting makeup, beauty, or fashion videos on YouTube. These are all industries that understand the value of quality social media content.
-
- In the video above, [beauty YouTuber](https://tools.techidaily.com/wondershare/filmora/download/) Gena M explains all the ways there are to make money posting makeup and fashion videos on YouTube. Gena’s most important piece of advice for other beauty vloggers is, to be honest. There is nothing wrong with making money from affiliates or sponsors, so long as you only associate with and recommend products you would actually buy.
-
-Here’s more advice on how you can make money from your makeup videos:
-
-## Sponsorships
-
-If you are truly passionate about makeup or fashion then you probably have a few favorite brands. Even if you have never really thought about a brand as your favorite, chances are you purchase one or two types of lip gloss – or any other product – over others on a regular basis.
-
-Wouldn’t it be nice if a company whose product you already love and use in your videos would start paying you just to mention them?
-
-There are sites called influencer marketing platforms – the most popular one is FameBit – where you can find brands that are looking for creators just like you to work with them on marketing campaigns. Brands post what they are looking for, and you send them proposals for what kinds of videos you want to make for them.
-
-Sometimes, creating branded content can be as easy as drawing attention to the brand of the eyeliner you use in a few of your tutorials.
-
-Other times, brands may want you to say specific things or include logos in your videos.
-
-Make sure to incorporate any brand messages or product placement you agree to do in ways that will feel natural to your viewers. You should let them know that you have a sponsor, and then incorporate the branded content in ways that do not take away from their enjoyment of your videos.
-
-## Ad Revenue
-
-Monetizing your videos and earning ad revenue is one of the primary ways beauty vloggers, and all other YouTubers, make money. It takes a long time to earn more than the pocket change from ads, but so long as you keep growing your audience your revenue will keep going up.
-
-Pay attention to the estimated revenue reports to see which of your videos are earning the most money from ads (they won’t always be your most popular videos). By making more videos on similar topics you will be able to make more money.
-
-## Affiliate Links
-
-By becoming an Amazon affiliate, or joining the affiliate program of another online store, you can make money by including links to products in the descriptions of your video or in your related blog posts.
-
-For example, if you talk about your new curling iron in a hair tutorial then you can include a special link to it on Amazon. If any of your viewers follow that link and buy it, you earn a percentage of the purchase.
-
-Even better – if that person keeps shopping, or even skips the curling iron and buys something else, you earn a percentage of any purchase they make on Amazon for a certain period of time.
-
-Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Gifts
-
-Sometimes companies might just give you stuff.
-
-As your following gets bigger, brands might start sending you samples of their products in the hopes that you will fall in love with them and mention, review, or use them in your videos. This is not the same as a sponsorship because the brand is not paying you for a specific kind of message.
-
-Receiving these kinds of gifts is not the same as getting paid, but it can certainly save you money on makeup.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -345,6 +347,10 @@ The best way to always have the perfect tags is to use a YouTube hashtags genera
 
 Here are the three best YouTube hashtag generators you can use:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1 [Keyword Tool](https://keywordtool.io/youtube)
 
 This tool's primary purpose may be to help with keyword research, but it has a valuable hashtag extension.
@@ -360,6 +366,10 @@ Then, select the Hashtags panel.
 This will show you a massive list of trending hashtags you can use for your YouTube video. However, the YouTube tags it gives you will sometimes be different. For example, if you search for the same word at another time, the results may differ depending on current trends.
 
 ![list of tags for youtube](https://images.wondershare.com/filmora/article-images/2023/04/youtube-hashtags.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That's all there is to it. Copy any tags you like and use them for your video. Also, you can purchase the pro version of this tool to get more detailed insights. However, the free version works just fine most of the time. The choice is yours.
 
@@ -379,19 +389,6 @@ Additionally, TubeBuddy will also show you the best possible hashtags to use for
 
 ![vidlq chrome extension](https://images.wondershare.com/filmora/article-images/2023/04/vidlq.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This is another Chrome extension that helps you find keywords and YouTube tags to get more views. It's just as easy to use as the previous one. VidLQ has over 2 million users worldwide, proving its usefulness.
 
 Plus, it has plenty of other features to help you grow your channel. For example, its Competitors Tool will give you insights into what similar channels are doing. VidLQ will also help you optimize your videos to get recommended to more viewers. As we all know, this can significantly increase your views.
@@ -401,6 +398,10 @@ It's a great tool that can be especially beneficial for beginners. However, beca
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** If you hope to know more about YouTube keyword tools to get more views, you can read this article to increase your audience: [10 Best YouTube Keyword Tools to Get More Views](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Edit Your Vlog Videos Like A Pro With Filmora
 
@@ -493,22 +494,12 @@ First, type in the topic of your video. For example, "vlog." Hit Search.
 
 ![youtube hashtag generator](https://images.wondershare.com/filmora/article-images/2023/04/youtube-keyword-tool.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Then, select the Hashtags panel.
 
 ![youtube hashtag tool](https://images.wondershare.com/filmora/article-images/2023/04/hashtag-panel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This will show you a massive list of trending hashtags you can use for your YouTube video. However, the YouTube tags it gives you will sometimes be different. For example, if you search for the same word at another time, the results may differ depending on current trends.
@@ -520,6 +511,10 @@ That's all there is to it. Copy any tags you like and use them for your video. A
 ### 2 [TubeBuddy Chrome Extension](https://chrome.google.com/webstore/detail/tubebuddy/mhkhmbddkmdggbhaaaodilponhnccicb)
 
 ![tubebuddy chrome extension](https://images.wondershare.com/filmora/article-images/2023/04/tubebuddy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 TubeBuddy is a Chrome extension that does much more for your YouTube channel than help with hashtags. It's an optimization tool that will configure everything for better reach.
 
@@ -542,6 +537,10 @@ It's a great tool that can be especially beneficial for beginners. However, beca
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** If you hope to know more about YouTube keyword tools to get more views, you can read this article to increase your audience: [10 Best YouTube Keyword Tools to Get More Views](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Edit Your Vlog Videos Like A Pro With Filmora
 
@@ -586,5 +585,18 @@ Yet, it would help if you didn't forget the most important thing: the video itse
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-engage-and-measure-instagram-stories-as-a-data-source/"><u>[New] Engage and Measure Instagram Stories as a Data Source</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-key-tactics-to-amplify-your-youtube-presence-and-engagement/"><u>[Updated] 10 Key Tactics to Amplify Your YouTube Presence and Engagement</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-step-by-step-methodology-for-precisentic-google-meeting-arrangements/"><u>[Updated] A Step-by-Step Methodology for Precisentic Google Meeting Arrangements</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[Updated] Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-dissecting-your-profit-share-in-youtube-short-creation/"><u>[Updated] Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unveiling-techniques-to-extract-fb-content/"><u>2024 Approved Unveiling Techniques to Extract FB Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creative-freedom-on-a-budget-essential-green-screen-effects-from-top-4-tutorial-sources-for-2024/"><u>Creative Freedom on a Budget Essential Green Screen Effects From Top 4 Tutorial Sources for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-biz-game-youtube-channels-that-succeeded/"><u>Elevate Your Biz Game YouTube Channels That Succeeded</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven/"><u>In 2024, Aesthetic Ambitions Launching a YouTube Channel for Makeup Maven</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/seamless-photo-migration-transitioning-images-from-your-previous-iphone-to-the-latest-model/"><u>Seamless Photo Migration: Transitioning Images From Your Previous iPhone to the Latest Model</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-steps-resolving-non-functioning-mic-on-the-turtle-beach-elite-atlas-headset/"><u>Solution Steps: Resolving Non-Functioning Mic on the Turtle Beach Elite Atlas Headset</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Final Viewers' Interactions on YT"
-date: 2024-12-20T16:00:57.375Z
-updated: 2024-12-25T16:03:18.389Z
+date: 2024-12-29T21:14:19.506Z
+updated: 2025-01-03T16:58:02.722Z
 tags:
   - ai video
   - ai youtube
@@ -33,7 +33,7 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
@@ -59,10 +59,6 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -73,7 +69,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Click “create” button. Select the timeline. In the end, apply.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The types of YouTube cards
@@ -84,7 +80,7 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4 Tips for Using YouTube Cards
@@ -97,6 +93,10 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
@@ -104,7 +104,7 @@ Now, that you are aware how to add YouTube end screen to your video, make use of
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -122,22 +122,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-break-the-ice-how-to-make-a-hit-youtube-reaction-in-just-15-minutes-or-less/"><u>[New] Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-chart-topping-video-content-on-youtube-for-2024/"><u>[New] Chart-Topping Video Content on YouTube for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-ultimate-guide-to-improving-chromebook-tone-with-top-voice-extensions/"><u>[Updated] 2024 Approved The Ultimate Guide to Improving Chromebook Tone with Top Voice Extensions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-tracing-your-steps-how-to-negative-play-on-instagram/"><u>[Updated] 2024 Approved Tracing Your Steps How to Negative-Play on Instagram</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-turn-popular-tiktok-tracks-into-practical-personalized-ringtones/"><u>[Updated] 2024 Approved Turn Popular TikTok Tracks Into Practical, Personalized Ringtones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-achieve-youtube-profitability-the-milestone-of-500plus-subscribers-unlocked/"><u>[Updated] Achieve Youtube Profitability The Milestone of 500+ Subscribers Unlocked</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-top-10-editing-powerhouses-to-create-engaging-reels/"><u>[Updated] The Top 10 Editing Powerhouses to Create Engaging Reels</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-exclusive-list-of-affordable-video-conferencing-apps-a-business-and-education-edition/"><u>2024 Approved Exclusive List of Affordable Video Conferencing Apps A Business & Education Edition</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/easy-audio-fix-techniques-for-a-silent-pc-get-sound-back-now/"><u>Easy Audio Fix Techniques for a Silent PC - Get Sound Back Now!</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Vivo X100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-unique-content-to-differentiate-your-channel/"><u>In 2024, Crafting Unique Content to Differentiate Your Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/keywords-in-the-world-of-selling-monetized-youtube-channels/"><u>Keywords in the World of Selling Monetized Youtube Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-subscription-the-art-of-positive-engagement/"><u>Mastering Subscription The Art of Positive Engagement</u></a></li>
-<li><a href="https://win-lab.techidaily.com/microsofts-arm-revival-is-it-poised-to-surpass-apples-silicon-dominance-on-windows-platforms/"><u>Microsoft's Arm Revival: Is It Poised to Surpass Apple's Silicon Dominance on Windows Platforms?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/nextgen-youtuber-tools-studio-vs-beta-version/"><u>NextGen YouTuber Tools Studio Vs. Beta Version</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tips-for-effective-youtube-end-screen-usage/"><u>Tips for Effective YouTube End Screen Usage</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/video-blogging-essentials-choosing-the-best-cameras-and-lenses/"><u>Video Blogging Essentials Choosing the Best Cameras and Lenses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-6-youtuber-quizzes-to-know-which-youtuber-you-are/"><u>[New] 6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-complete-instagram-vlog-flip-handbook/"><u>[New] In 2024, The Complete Instagram Vlog-Flip Handbook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-inside-camstudios-updated-screen-recorder-techniques/"><u>[New] Inside CamStudio's Updated Screen Recorder Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhance-tv-screens-with-automatic-loops-of-youtube/"><u>[Updated] Enhance TV Screens With Automatic Loops of YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhance-your-ads-eco-appeal-with-subscriptions/"><u>[Updated] Enhance Your Ad's Eco Appeal with Subscriptions</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-unlocking-audible-content-from-twitter-videos-for-2024/"><u>[Updated] Unlocking Audible Content From Twitter Videos for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>In 2024, Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-vr-and-ar-game-apps-for-phones/"><u>In 2024, The Ultimate Guide to VR and AR Game Apps for Phones</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/masterclass-setting-up-countdowns-in-obs-studio-for-2024/"><u>Masterclass Setting Up Countdowns in OBS Studio for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
+<li><a href="https://win-web3.techidaily.com/save-as-different-format-on-pc-with-simple-steps-from-yl-computings-tech-tips/"><u>Save As Different Format on PC with Simple Steps From YL Computing's Tech Tips</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/troubleshooting-tips-how-to-fix-a-malfunctioning-computer-mouse-insights-from-yl-computing/"><u>Troubleshooting Tips: How to Fix a Malfunctioning Computer Mouse - Insights From YL Computing</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-solution-for-retrieving-unintentionally-erased-images-from-iphones/"><u>Ultimate Solution for Retrieving Unintentionally Erased Images From iPhones</u></a></li>
 </ul></div>
 

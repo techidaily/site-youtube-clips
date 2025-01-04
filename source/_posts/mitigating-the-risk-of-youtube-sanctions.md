@@ -1,7 +1,7 @@
 ---
 title: "Mitigating the Risk of YouTube Sanctions"
-date: 2024-09-09T17:38:40.914Z
-updated: 2024-09-16T18:18:09.143Z
+date: 2024-12-31T20:26:42.308Z
+updated: 2025-01-03T17:20:19.214Z
 tags:
   - ai video
   - ai youtube
@@ -206,6 +206,10 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Copyright Strikes
 
 You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
@@ -286,13 +290,6 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
 ![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
 
 ## 1\. Copyright Strikes
@@ -308,13 +305,6 @@ The most obvious way to earn a copyright strike is to repost content which you d
 Deleting your video, especially if you do so without contacting the rights holder, will not automatically reverse your copyright strike.
 
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Wrongful Copyright Strikes
 
@@ -384,6 +374,14 @@ Follow @Richard Bennett
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1\. Introduction to YouTube Monetization: What You Need to Know**
 
 YouTube monetization refers to earning money from the content uploaded on the platform. It is the ability to derive income from the videos you have uploaded on your YouTube channels. The YouTube policies for monetization clearly stipulate what you need to start making money on the platform.
@@ -418,6 +416,10 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 * Fan funding through channel memberships, super chats, super thanks, and super stickers
 * Access to Creator Support
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Applicability of the Old Standards**
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
@@ -434,6 +436,10 @@ Apart from the new monetization rules for YouTube 2023, other policies and guide
 * **Copyright Guidelines:** Content must not infringe on the copyright of others, including music or videos without permission.
 * **Monetization Policies:** Content must not be designed to manipulate viewers into clicking on ads or performing other actions intended to generate revenue for the creator.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 3\. How YouTube's New Monetization Policy Will Impact Creators**
 
 The new monetization rules for YouTube 2023 create a unique opportunity for creators to make money. The requirements to get monetized on YouTube are now relaxed. This implies that more creators can monetize their channels. By attaining YouTube monetization eligibility quickly, small YouTubers will now be motivated to create content with more value.
@@ -445,13 +451,6 @@ Ad revenue is the most sustainable form of monetization. Creators don’t have t
 ![shorts revenue sample](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-4.JPG)
 
 Streamers usually have a higher watch time than the number of subscribers they have. So, the new policy will allow YouTubers will a low following to earn from streaming their content. Short creators will benefit from the high number of views shorts tend to generate.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **New Policies Make YouTube More Competitive**
 
@@ -466,6 +465,10 @@ The new YouTube channel monetization rules will be great for advertisers. They w
 The new policies make it easier for more creators to monetize their channels. Since this is the goal of every creator, it will be an opportunity for more people to start committing to their YouTube career. With the new ways of making money being introduced, more YouTubers will be able to generate revenues from their channels.
 
 It’s interesting that watch hours from shorts will not count along the standard 4,000 public watch hours. This is a plus for many creators. You will find that many creators who post shorts on their channels have more views than their long views. With the new policies, it means that they can monetize their channels based only on the short’s figures.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 4\. Editing YouTube Videos For Monetization with Wondershare Filmora**
 
@@ -482,6 +485,10 @@ Filmora has all the features in one place, which makes it easy and quick to edit
 Filmora gives you a quick and easy start to your creative video editing journey. Select from the readily available templates or save your own video templates for future use.
 
 ![preset templates](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **2\.** [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -545,11 +552,19 @@ With the new YouTube monetization policy 2023, creators enjoy the following bene
 * Fan funding through channel memberships, super chats, super thanks, and super stickers
 * Access to Creator Support
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Applicability of the Old Standards**
 
 While the new YouTube monetization criteria create more opportunities for smaller creators to earn fan funding, the [old standards](https://support.google.com/youtube/answer/72851?hl=en&ref%5Ftopic=9153642&sjid=15033404818844015570-EU) are still applicable. The YouTube policy for monetization through ad revenue will remain the same. Channels are still required to have at least 1,000 subscribers with more than 4,000 public watch hours for long videos in the past 365 days or 10M public views for Shorts videos in the past 90 days.
 
 ![updated old standards](https://images.wondershare.com/filmora/article-images/2023/latest-youtube-monetization-policy-and-requirements-3.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That said, the 2023 new YouTube monetization requirements are a great addition to creators’ journey. Creators who have applied for early access to fun funding are not required to reapply after qualifying for full monetization.
 
@@ -560,6 +575,10 @@ Apart from the new monetization rules for YouTube 2023, other policies and guide
 * **Content Guidelines:** Content must not violate YouTube’s Community Guideline. YouTubers are prohibited from uploading violent or harmful content.
 * **Copyright Guidelines:** Content must not infringe on the copyright of others, including music or videos without permission.
 * **Monetization Policies:** Content must not be designed to manipulate viewers into clicking on ads or performing other actions intended to generate revenue for the creator.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3\. How YouTube's New Monetization Policy Will Impact Creators**
 
@@ -580,13 +599,6 @@ The new YouTube channel monetization rules will not only benefit creators. By ma
 ### **Advertisers to Benefit**
 
 The new YouTube channel monetization rules will be great for advertisers. They will no longer have to worry about their ads showing up on videos that are inappropriate or fly-by-night. The quality of channels where the ads show will be much better. This means that advertiser will have their ads placed on channels of nano- and micro-influencers. These are more likely to have a loyal following and are more likely to act on the adverts.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Creators Ability to Monetize their Channels**
 
@@ -620,13 +632,6 @@ Quickly add relevant texts to your videos. You can include captions or subtitles
 
 The AI Smart Cutout features allow you to easily edit out any unwanted background or objects in your clips. The AI-powered features help you edit your clips faster and finish your projects quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **4\.** [**Adjustment Layer**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The adjustment layer is a great feature on Filmora that allows you to add effects to multiple video clips at once. No need to keep going back and forth when making your edits.
@@ -654,5 +659,26 @@ The new YouTube monetization policy 2023 has created more opportunities for crea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-capturing-coziness-ideal-winter-scenes-for-yt-video/"><u>[New] Capturing Coziness Ideal Winter Scenes for YT Video</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-ultimate-list-of-10-websites-specializing-in-modern-3d-graffiti-letters/"><u>[Updated] 2024 Approved The Ultimate List of 10 Websites Specializing in Modern 3D Graffiti Letters</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-crafting-compelling-vo-for-visual-storytelling-success/"><u>[Updated] Crafting Compelling VO for Visual Storytelling Success</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-list-recording-digital-tv-programming/"><u>[Updated] The Ultimate List Recording Digital TV Programming</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-creating-compelling-youtube-live-content-with-wirecast/"><u>2024 Approved Creating Compelling Youtube Live Content with WireCast</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cutting-edge-techniques-pushing-boundaries-in-youtube-cinematography/"><u>2024 Approved Cutting Edge Techniques Pushing Boundaries in YouTube Cinematography</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-does-the-sub4sub-strategy-improve-content-consumption/"><u>2024 Approved Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/8-best-mirrorless-cameras-for-vlogging/"><u>8 Best Mirrorless Cameras for Vlogging</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/apple-launches-cutting-edge-artificial-intelligence-training-initiative-for-student-community-zdnet/"><u>Apple Launches Cutting-Edge Artificial Intelligence Training Initiative for Student Community - ZDNet</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comprehensive-guide-to-youtubes-subscription-advantages-for-2024/"><u>Comprehensive Guide to YouTube's Subscription Advantages for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/oad-youtube-videos-to-mp4-without-breaching-laws-for-2024/"><u>Download YouTube Videos to MP4 without Breaching Laws for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-nokia-by-fonelab-android-recover-video/"><u>How to recover old videos from your Nokia</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-asus-easily-by-drfone-android/"><u>How To Unlock a Asus Easily?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-accessing-your-curated-music-lists-on-youtube/"><u>In 2024, Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-brighter-days-with-five-winter-themed-backgrounds/"><u>In 2024, Brighter Days with Five Winter-Themed Backgrounds</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-nuc-driver-update-fast-and-simple-steps-for-optimal-system-functionality/"><u>Intel NUC Driver Update: Fast & Simple Steps for Optimal System Functionality</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-process-for-free-youtube-introend-making/"><u>Step-by-Step Process for Free YouTube Intro/End Making</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-sony-reebok-xr-a-professional-upgrade-over-the-vision-pro-with-essential-apple-required-features-explored-by-zdnet/"><u>The Sony Reebok XR: A Professional Upgrade Over the Vision Pro with Essential Apple-Required Features, Explored by ZDNet</u></a></li>
+</ul></div>
 

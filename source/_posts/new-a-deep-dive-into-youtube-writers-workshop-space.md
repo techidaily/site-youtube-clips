@@ -1,7 +1,7 @@
 ---
 title: "[New] A Deep Dive Into YouTube’ Writers' Workshop Space"
-date: 2024-09-09T17:52:26.239Z
-updated: 2024-09-16T18:37:09.652Z
+date: 2024-12-27T16:08:49.452Z
+updated: 2025-01-03T16:45:49.665Z
 tags:
   - ai video
   - ai youtube
@@ -88,6 +88,10 @@ Pinning new charts to the dashboard will ensure that all of the data you need mo
 
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Creator Studio Tools
 
 **Video Manager:** from the Video Manager section you can view any of the videos that you have posted to YouTube. This menu includes all of your uploaded videos whether they are public, unlisted, or private. You can see advanced statistics on every one of the videos you posted as well as download MP4s of your videos for re-editing. The video manager allows you to very quickly select multiple videos and then add them to a playlist.
@@ -107,6 +111,10 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 As one of the most versatile video editing software, Filmora offers various types of templates and effects with an intuitive interface, which helps you custom your videos without hassle. Download the free trial version and get started now.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -129,13 +137,6 @@ The Creator Studio’s interface is customizable so you can add or remove widget
 On the main dashboard of the Creator Studio, you will see a menu that includes your video manager, live streaming support, community page, channel page, analytics, translations, and transcriptions.
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Adjusting the Dashboard
 
@@ -165,6 +166,10 @@ As one of the most versatile video editing software, Filmora offers various type
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -184,6 +189,10 @@ The Creator Studio’s interface is customizable so you can add or remove widget
 On the main dashboard of the Creator Studio, you will see a menu that includes your video manager, live streaming support, community page, channel page, analytics, translations, and transcriptions.
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Adjusting the Dashboard
 
@@ -373,13 +382,6 @@ Here's a video of Unspeakable.
 
 $28.5 Million.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. [Nastya](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
 ![natsya](https://images.wondershare.com/filmora/article-images/2022/11/highest-paid-youtuber-in-the-world-2022-6.jpg)
@@ -462,13 +464,6 @@ Let's have a look at one of his trending videos.
 
 $18 Million.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. [Preston Arsement](https://www.youtube.com/c/PrestonPlayz) \- $14 million
 
 ![preston arsement](https://images.wondershare.com/filmora/article-images/2022/11/highest-paid-youtuber-in-the-world-2022-10.jpg)
@@ -510,19 +505,6 @@ A high-quality video with multiple transitions, effects, and interactive scenes 
 So how can we make our videos top-notch?
 
 Read on and find the answer in the bonus tip below.
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Bonus Tip to Increase YouTube Money
 
@@ -591,6 +573,10 @@ Here, we have compiled a list of the top 10 YouTube money makers with their 2022
 
 Now that you have an overview of the top 10 richest YouTubers let’s jump into the detail of what type of videos these millionaires make, one by one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part2\. Highest-Paid YouTubers in the World 2022
 
 ### 1\. [MrBeast](https://www.youtube.com/user/mrbeast6000) $58 Million
@@ -611,9 +597,17 @@ Here's one of his recent popular videos where MrBeast hunted for 100 people.
 
 $54 Million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [Jake Paul](https://www.youtube.com/c/jakepaul/featured) $60 Million
 
 ![jake paul](https://images.wondershare.com/filmora/article-images/2022/11/highest-paid-youtuber-in-the-world-2022-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The next richest YouTuber, second only to MrBeast, is the famous boxer Jake Paul.
 
@@ -668,6 +662,10 @@ Here is a trending video from Rhett and Link.
 **Earning in 2021**
 
 $30 Million.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. [Unspeakable](https://www.youtube.com/c/Unspeakable)
 
@@ -755,13 +753,6 @@ $20 million.
 
 ![logan paul](https://images.wondershare.com/filmora/article-images/2022/11/highest-paid-youtuber-in-the-world-2022-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After Jake Paul, who acquired the second position in our list, we have another Paul here. Logan Paul, the older brother of Jake.
 
 These brothers experienced a downfall after the “Suicide Forest” scandal in 2017, but here they are again on the list of 10 highest-paid YouTubers.
@@ -801,6 +792,10 @@ $16 Million.
 After seeing all these highest-paid YouTubers, you must be wondering what makes them earn so much money with just a YouTube channel.
 
 Here are some reasons that decide the highest-earning Youtubers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3\. What Decides the Highest-Earning YouTubers?
 
@@ -852,6 +847,10 @@ The highest-paid YouTubers may have a ton of subscribers, but being in “Trendi
 
 The most important reason is that the “Trending” part of YouTube shows popular videos in the specific area of the users, so it varies depending upon the user's location.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Final Words
 
 The world's biggest video-sharing platform, YouTube, offers an opportunity to all content creators.
@@ -881,5 +880,24 @@ Thanks for reading, folks.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>[New] Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-cutting-edge-8-innovative-open-source-video-meeting-systems/"><u>[New] In 2024, The Cutting Edge 8 Innovative Open Source Video Meeting Systems</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-video-repetition-a-guide-for-instagram-users/"><u>[New] Mastering the Art of Video Repetition A Guide for Instagram Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quick-clip-art-creator-seamless-image-to-cartoon-conversion/"><u>[Updated] Quick Clip-Art Creator Seamless Image-to-Cartoon Conversion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-avoiding-pitfalls-understanding-youtube-standards/"><u>2024 Approved Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-youtube-video-reaction-ideas/"><u>2024 Approved Best YouTube Video Reaction Ideas</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-bridging-the-gap-integrating-spotify-and-youtube-music-playlists/"><u>2024 Approved Bridging the Gap Integrating Spotify and YouTube Music Playlists</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-economic-expressiveness-in-video-theming-tools/"><u>2024 Approved Economic Expressiveness in Video Theming Tools</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723014673371-cod-vanguard-voice-communication-problems-solved-here/"><u>COD: Vanguard Voice Communication Problems Solved Here</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-guide-to-creating-compact-engaging-youtube-content/"><u>Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-itel-s23-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Itel S23 Phone that is Locked?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-social-simulacrum-sketches-designing-distorted-digital-selves/"><u>In 2024, Social Simulacrum Sketches Designing Distorted Digital Selves</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/starter-guide-8-easy-youtube-money-makers/"><u>Starter Guide 8 Easy YouTube Money-Makers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-economic-sphere-of-the-philanthropic-mr-beast/"><u>The Economic Sphere of the Philanthropic Mr. Beast</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-gptbot-why-has-it-been-blocked-across-web-platforms/"><u>Unveiling GPTBot: Why Has It Been Blocked Across Web Platforms?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/valheim-pc-stability-issues-troubleshooting-steps-for-a-smooth-gaming-experience/"><u>Valheim PC Stability Issues - Troubleshooting Steps for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/yl-computings-bold-design-icon-collection-inspired-by-sex-and-the-city-characters-for-your-app/"><u>YL Computing's Bold Design: Icon Collection Inspired by Sex & The City Characters for Your App</u></a></li>
+</ul></div>
 

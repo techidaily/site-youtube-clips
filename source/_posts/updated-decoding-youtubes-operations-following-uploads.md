@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Decoding YouTube’s Operations Following Uploads"
-date: 2024-12-23T16:07:48.270Z
-updated: 2024-12-25T16:15:55.297Z
+date: 2024-12-31T20:15:21.124Z
+updated: 2025-01-03T21:34:05.141Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,19 +85,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-effortless-way-to-personalize-your-youtube-channel-url/"><u>[New] Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-3-key-approaches-to-document-dynamic-gaming-moments/"><u>[Updated] 2024 Approved 3 Key Approaches to Document Dynamic Gaming Moments</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-demystifying-youtubes-video-editing-power/"><u>[Updated] Demystifying YouTube's Video Editing Power</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-discords-broadcasting-features-unveiled-a-step-by-step-guide/"><u>[Updated] Discord's Broadcasting Features Unveiled A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>[Updated] Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-sharex-overview-top-picks-and-substitutes-for-2024/"><u>[Updated] ShareX Overview Top Picks & Substitutes for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-sky-adventures-with-the-syma-helibor-x8h-a-comprehensive-review/"><u>Affordable Sky Adventures with the Syma Helibor X8H - A Comprehensive Review</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/examining-the-unique-features-of-youtubes-and-dailymentions/"><u>Examining the Unique Features of YouTubes and DailyMentions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/fast-track-channel-growth-to-partner-status-aim-for-10000-views/"><u>Fast-Track Channel Growth to Partner Status – Aim for 10,000 Views</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-winter-olympics-2022-highlights/"><u>In 2024, Winter Olympics 2022 Highlights</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/labor-day-alert-get-your-hands-on-discounted-apple-airtag-4-pods-at-walmartsave-an-extra-24-details-inside/"><u>Labor Day Alert: Get Your Hands on Discounted Apple AirTag 4-Pods at Walmart—Save an Extra $24, Details Inside</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-and-repair-steps-for-when-pacific-drive-fails-on-your-computer/"><u>Troubleshooting and Repair Steps for When Pacific Drive Fails on Your Computer</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/windows-chatgpt-alternative-without-limits-a-comprehensive-guide-using-freedomgpt/"><u>Windows ChatGPT Alternative Without Limits: A Comprehensive Guide Using FreedomGPT</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-phones-for-optimal-gear-vr-performance-update-2023/"><u>[New] 2024 Approved Essential Phones for Optimal Gear VR Performance - Update 2023</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-video-visibility-with-optimal-thumbnails/"><u>[New] Enhancing Video Visibility with Optimal Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-tinder-profiles-top-tricks-for-quick-likes/"><u>[New] In 2024, Mastering Tinder Profiles Top Tricks for Quick Likes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-innovative-ways-for-sound-capture-in-modern-windows-11-pcs/"><u>[Updated] 2024 Approved Explore Innovative Ways for Sound Capture in Modern Windows 11 PCs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-building-a-studio-quality-setup-at-home/"><u>[Updated] Building a Studio-Quality Setup at Home</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-boutonniere-bookmarks-casino-critique/"><u>2024 Approved BOUTONNIERE BOOKMARKS Casino Critique</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-video-reach-tactics-against-bot-visitors/"><u>In 2024, Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-essential-guide-to-enhancing-video-content-on-instagram/"><u>In 2024, Essential Guide to Enhancing Video Content on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premium-picks-a-list-of-must-play-google-cardboard-vr-games/"><u>Premium Picks A List of Must-Play Google Cardboard VR Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-perfected-practice-of-combining-youtube-videos/"><u>The Perfected Practice of Combining YouTube Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unraveling-photoshops-magic-with-image-curving/"><u>Unraveling Photoshop’s Magic with Image Curving</u></a></li>
 </ul></div>
 
