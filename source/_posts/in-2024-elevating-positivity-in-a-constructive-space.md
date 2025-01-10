@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-01-01T21:25:10.734Z
-updated: 2025-01-03T16:06:52.388Z
+date: 2025-01-09T18:14:19.427Z
+updated: 2025-01-10T19:08:42.507Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-dissecting-video-ranking-algorithms-on-youtube/"><u>[New] Dissecting Video Ranking Algorithms on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-iphone-image-transfer-methods-explained/"><u>[New] IPhone Image Transfer Methods Explained</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-budgets-with-effective-youtube-marketing/"><u>2024 Approved Boosting Budgets with Effective YouTube Marketing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/charting-your-course-in-the-realm-of-youtube-shorts-for-2024/"><u>Charting Your Course in the Realm of YouTube Shorts for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-computer-testing-by-toms-hardware-experts/"><u>Comprehensive Computer Testing by Tom's Hardware Experts</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps-for-2024/"><u>Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps for 2024</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/guide-simple-pour-passer-windows-server-2019-vers-la-derniere-version-windows-server-2022/"><u>Guide Simple Pour Passer Windows Server 201^9 Vers La Dernière Version, Windows Server 202^2</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-activating-built-in-screen-recorders-mate-1020-and-p-series-devices-p20-p10/"><u>In 2024, Activating Built-In Screen Recorders Mate 10/20 & P-Series Devices (P20, P10)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-avoid-unwanted-interrucier-top-7-selective-android-adblockers-reviewed/"><u>In 2024, Avoid Unwanted Interrucier Top 7 Selective Android AdBlockers Reviewed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>In 2024, Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-essential-top-5-zero-cost-windows-10-screen-recorder-tools/"><u>In 2024, Essential Top 5 Zero Cost Windows 10 Screen Recorder Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-samsung-galaxy-m34-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Samsung Galaxy M34 5G Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/radiant-hue-tuner-program/"><u>Radiant Hue Tuner Program</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-to-secure-wacom-intuos-pro-drivers-on-your-windows-10-pc/"><u>Step-by-Step Tutorial to Secure Wacom Intuos Pro Drivers on Your Windows 10 PC</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tips-for-superior-sound-recordings-without-a-microphone/"><u>Tips for Superior Sound Recordings Without a Microphone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-15-funny-youtube-channels-to-watch-when-youre-bored/"><u>Top 15 Funny YouTube Channels to Watch When You're Bored</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-trim-avi-videos-with-ease-top-picks-for-desktop-and-mobile-devices/"><u>Updated 2024 Approved Trim AVI Videos with Ease Top Picks for Desktop and Mobile Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-bring-footage-together-ken-burns-technique-for-camtasa-users/"><u>[New] 2024 Approved Bring Footage Together Ken Burns Technique for Camtasa Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-beyond-likes-understanding-youtubes-true-view-metrics/"><u>[New] Beyond Likes Understanding YouTube’s True View Metrics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breaking-the-internet-hashtag-wisdom-for-short-films/"><u>[New] Breaking the Internet Hashtag Wisdom for Short Films</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[New] Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters/"><u>[New] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-tips-for-flv-file-fusion-on-youtube/"><u>[New] Essential Tips for FLV File Fusion on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pinnacle-color-balance-pro/"><u>[New] In 2024, Pinnacle Color Balance Pro</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-iconic-inning-cameo-examination/"><u>[Updated] 2024 Approved Iconic Inning - Cameo Examination</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amass-higher-views-with-powerful-youtube-tags/"><u>[Updated] Amass Higher Views with #Powerful YouTube Tags</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-box-it-up-right-10-online-haunts-for-tailored-gift-boxes/"><u>[Updated] Box It Up Right 10 Online Haunts for Tailored Gift Boxes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-decoding-youtubes-operations-following-uploads-for-2024/"><u>[Updated] Decoding YouTube’s Operations Following Uploads for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-grasping-the-basics-of-av1-compression/"><u>[Updated] Grasping the Basics of AV1 Compression</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-fidelity-mobile-sound-selector/"><u>[Updated] High Fidelity Mobile Sound Selector</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-optimizing-screencapture-techniques-for-maximum-results/"><u>[Updated] In 2024, Optimizing ScreenCapture Techniques for Maximum Results</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1-retrieving-damaged-scanning-files-a-comprehensive-guide-by-yl-computing/"><u>1. Retrieving Damaged Scanning Files: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/customizing-windows-11-taskbar-color-expert-strategies-and-techniques/"><u>Customizing Windows 11 Taskbar Color: Expert Strategies and Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-elite-makeup-vloggers-shaping-2024s-beauty-scene/"><u>The Elite Makeup Vloggers Shaping 2024'S Beauty Scene</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-financial-scale-one-million-youtube-viewers-pay/"><u>The Financial Scale One Million YouTube Viewers' Pay</u></a></li>
 </ul></div>
 

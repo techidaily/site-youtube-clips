@@ -1,7 +1,7 @@
 ---
 title: "Steps to Manage Video Watcher Restrictions on Youtube"
-date: 2024-12-09T17:13:11.760Z
-updated: 2024-12-10T16:05:18.627Z
+date: 2025-01-04T18:56:44.722Z
+updated: 2025-01-10T18:41:30.838Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -65,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -78,17 +74,21 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -97,11 +97,11 @@ thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160d
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,24 +127,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-boosting-youtube-popularity-two-simple-strategies/"><u>[New] Boosting YouTube Popularity Two Simple Strategies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elite-videography-the-top-tools-for-youtube-content/"><u>[New] Elite Videography The Top Tools For YouTube Content</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-enhanced-analysis-of-extensive-cloud-services/"><u>[Updated] 2024 Approved Enhanced Analysis of Extensive Cloud Services</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>[Updated] 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-content-distribution-excellence-vimeo-vs-youtube/"><u>[Updated] Content Distribution Excellence Vimeo vs YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-digital-dreams-unite-conference/"><u>[Updated] Digital Dreams Unite Conference</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/amu-sei102024/"><u>「ホワイトデーお返しについamu-Seiとランキングベスト10（2024）」</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-top-rated-free-tools-for-high-res-youtube-cover-extraction/"><u>2024 Approved Top-Rated Free Tools for High-Res YouTube Cover Extraction</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/deciphering-twitch-communication-hurdles-for-the-uninitiated/"><u>Deciphering Twitch Communication Hurdles for the Uninitiated</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fix-your-discord-crash-issues-in-just-5-easy-steps/"><u>Fix Your Discord Crash Issues in Just 5 Easy Steps</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-honor-magic-6-pro-by-drfone-android/"><u>Full Guide to Unlock Your Honor Magic 6 Pro</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-lava-agni-2-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Lava Agni 2 5G phone? | Dr.fone</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/identifying-and-removing-spyware-from-your-android-device-a-comprehensive-guide/"><u>Identifying and Removing Spyware From Your Android Device: A Comprehensive Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-become-a-pro-at-utilizing-zoom-for-windows-11-users/"><u>In 2024, Become a Pro at Utilizing Zoom for Windows 11 Users</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-uncovering-stardews-depths-with-ginger-island-adventures/"><u>In 2024, Uncovering Stardew's Depths with Ginger Island Adventures</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premium-sound-picks-for-content-creators/"><u>Premium Sound Picks for Content Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamline-your-vids-with-these-15-royalty-free-tracks-sites/"><u>Streamline Your Vids with These 15 Royalty-Free Tracks Sites</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-smartphone-based-youtube-thumbnails/"><u>The Essential Guide to Smartphone-Based YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-faces-to-watch-top-cosmetic-creatives/"><u>The Faces to Watch Top Cosmetic Creatives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mmediate-hit-list-top-10-videos-watched-first-hour-for-2024/"><u>[New] Immediate Hit List Top 10 Videos Watched First Hour for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-mastering-online-persona-transformation-in-discord/"><u>[New] In 2024, Mastering Online Persona Transformation in Discord</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-painless-percussions-reduction-in-garageband/"><u>[New] In 2024, Painless Percussions Reduction in Garageband</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-capture-your-gaming-moments-xbox-one-screenshots-made-simple/"><u>[Updated] Capture Your Gaming Moments Xbox One Screenshots Made Simple</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-the-course-of-knowledge-best-history-yt-channels-for-students/"><u>[Updated] Charting the Course of Knowledge Best History YT Channels for Students</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discover-a-must-have-voice-transform-tool-no-cost-maximum-impact/"><u>[Updated] In 2024, Discover a Must-Have Voice Transform Tool - No Cost, Maximum Impact</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-total-sphere-camera-systems/"><u>[Updated] Total Sphere Camera Systems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-accelerated-sizing-youtube-content-for-macs/"><u>2024 Approved Accelerated Sizing YouTube Content for MACs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creating-impactful-youtube-thumbnails-and-ads-for-2024/"><u>Creating Impactful YouTube Thumbnails & Ads for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-video-playback-embrace-the-power-of-av1-in-youtube-for-2024/"><u>Elevate Video Playback Embrace the Power of AV1 in YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ensuring-legitimacy-of-your-youtube-sign-in/"><u>Ensuring Legitimacy of Your YouTube Sign-In</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-x100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-poco-f5-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Poco F5 5G</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/instrumental-showcase-highlighting-the-best-15-video-techniques/"><u>Instrumental Showcase Highlighting the Best 15 Video Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-sound-effects-in-youtube-videos/"><u>Navigating the World of Sound Effects in YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/personalize-your-channel-with-free-pics/"><u>Personalize Your Channel With Free Pics</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2024-12-29T00:13:27.362Z
-updated: 2025-01-03T23:34:27.116Z
+date: 2025-01-06T18:45:17.546Z
+updated: 2025-01-10T16:55:41.009Z
 tags:
   - ai video
   - ai youtube
@@ -28,21 +28,17 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -62,13 +58,13 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -87,6 +83,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -96,7 +96,7 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -122,7 +122,7 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,20 +140,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-voice-altering-apps-for-vloggers/"><u>[New] Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-facebooks-free-sound-library-download-for-2024/"><u>[New] Facebook's Free Sound Library Download for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-to-add-music-to-any-snapchat-video-in-2024/"><u>[New] How to Add Music to Any Snapchat Video, In 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-channels-ranking-simple-strategies-unveiled/"><u>[Updated] Elevating Your Channel's Ranking Simple Strategies Unveiled</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>2024 Approved Dividing Opinions Is Mirrorless Better than DSLR for Vids?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-reset-the-scene-fixing-your-facebook/"><u>2024 Approved Reset the Scene Fixing Your Facebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-video-quality-utilizing-youtube-studios-features/"><u>Boosting Video Quality Utilizing YouTube Studio's Features</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cut-to-perfection-editing-video-duration-on-youtube-for-2024/"><u>Cut to Perfection Editing Video Duration on YouTube for 2024</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/efficient-batch-processing-a-guide-for-mass-converting-opus-audio-to-m4a/"><u>Efficient Batch Processing: A Guide for Mass Converting Opus Audio to M4A</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-does-youtube-work-after-a-video-is-uploaded/"><u>How Does YouTube Work After a Video Is Uploaded</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-effortless-techniques-for-iphone-screen-recordings/"><u>In 2024, Effortless Techniques for Iphone Screen Recordings</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/money-matters-finns-financial-framework/"><u>Money Matters Finn's Financial Framework</u></a></li>
-<li><a href="https://fox-within.techidaily.com/stop-auto-deletion-of-documents-in-sharepoint-essential-tips-and-file-recovery-strategies/"><u>Stop Auto-Deletion of Documents in SharePoint: Essential Tips and File Recovery Strategies</u></a></li>
-<li><a href="https://games-able.techidaily.com/strategies-for-finding-best-participant-friendly-discords/"><u>Strategies for Finding Best Participant-Friendly Discords</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/the-ultimate-itunes-guide-mastering-recordings-for-2024/"><u>The Ultimate iTunes Guide Mastering Recordings for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-8-software-linux-friendly-editing-tools-for-2024/"><u>[New] Top 8 Software Linux-Friendly Editing Tools for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-transform-speech-into-text-the-accurate-google-method/"><u>[Updated] Transform Speech Into Text The Accurate Google Method</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-recommended-videos-block-the-videos/"><u>[Updated] YouTube Recommended Videos - Block the Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-quantum-hdr-imaging/"><u>2024 Approved Navigating the World of Quantum HDR Imaging</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-chilly-ambiance-ideal-winter-bgs-for-videos/"><u>In 2024, Chilly Ambiance Ideal Winter BGs for Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-commercial-ventures-enhanced-by-virtual-engineering/"><u>In 2024, Commercial Ventures Enhanced by Virtual Engineering</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-channel-aesthetics-essential-size-and-dimension-tips/"><u>Mastering YouTube Channel Aesthetics Essential Size and Dimension Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/no-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series/"><u>No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/orchestrating-a-journey-through-hidden-youtube-archives/"><u>Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/retail-insights-expose-potential-quadruple-return-rates-for-intel-core-i7-13700k-and-i5-cores-vs-last-gen-whats-the-impact/"><u>Retail Insights Expose Potential Quadruple Return Rates for Intel Core I7-13700K & I5 Cores vs Last Gen – What's the Impact?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rooting-in-cities-cultivating-urban-biodiversity/"><u>Rooting in Cities Cultivating Urban Biodiversity</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-fixing-ksuserdll-not-detected-error-for-smooth-operations/"><u>The Definitive Guide to Fixing 'ksuser.dll' Not Detected Error for Smooth Operations</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-guide-securing-your-windows-pc-with-easy-to-follow-methods/"><u>Ultimate Guide: Securing Your Windows PC with Easy-to-Follow Methods</u></a></li>
 </ul></div>
 

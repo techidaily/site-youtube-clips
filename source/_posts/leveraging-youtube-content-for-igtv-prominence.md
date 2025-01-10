@@ -1,7 +1,7 @@
 ---
 title: "Leveraging YouTube Content for IGTV Prominence"
-date: 2025-01-02T22:48:38.914Z
-updated: 2025-01-03T22:34:03.565Z
+date: 2025-01-09T16:36:48.775Z
+updated: 2025-01-10T16:36:49.397Z
 tags:
   - ai video
   - ai youtube
@@ -38,15 +38,15 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
 
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
@@ -59,7 +59,7 @@ In case you are working with a video that already has a 16:9 aspect ratio, you c
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
@@ -80,21 +80,21 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
@@ -111,7 +111,7 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,20 +129,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-dealing-with-copyright-infringement-notices-on-youtube/"><u>[New] In 2024, Dealing with Copyright Infringement Notices on YouTube</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-seamless-cross-posting-of-tiktok-content-to-facebook/"><u>[Updated] 2024 Approved Seamless Cross-Posting of TikTok Content to Facebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-asmr-production-101-essential-strategies-for-cutting-edge-video-making/"><u>[Updated] ASMR Production 101 Essential Strategies for Cutting-Edge Video Making</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-enhance-facebook-visibility-uploading-panoramic-content-on-mobile/"><u>[Updated] Enhance Facebook Visibility Uploading Panoramic Content on Mobile</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-proven-methods-to-supercharge-your-spotify-ad-results/"><u>[Updated] In 2024, Proven Methods to Supercharge Your Spotify Ad Results</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-can-genuine-interests-lead-to-natural-channel-growth/"><u>2024 Approved Can Genuine Interests Lead to Natural Channel Growth?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>2024 Approved Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/beginners-tutorial-composing-youtube-video-content/"><u>Beginner's Tutorial Composing YouTube Video Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-online-presence-making-videos-on-mobile/"><u>In 2024, Elevate Your Online Presence Making Videos on Mobile</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>In 2024, Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mini-meets-marvel-razer-book-13-evaluation-for-ultimate-gaming-prowess/"><u>Mini Meets Marvel: Razer Book 13 Evaluation for Ultimate Gaming Prowess</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/speed-up-your-youtube-downloads-on-mac-with-atube-catcher-pro/"><u>Speed Up Your YouTube Downloads on Mac with ATube Catcher Pro</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-youtubes-inner-workings-your-path-to-success/"><u>Unlocking YouTube's Inner Workings Your Path to Success</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unraveling-mp4-and-mpg-file-types-key-distinctions-and-optimal-selection-tips/"><u>Unraveling MP4 and MPG File Types: Key Distinctions and Optimal Selection Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-top-10-must-have-windows-11-cam-recorders/"><u>[New] 2024 Approved Top 10 Must-Have Windows 11 Cam Recorders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[New] Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-say-no-to-unsolicited-content-on-insta/"><u>[New] Say No to Unsolicited Content on Insta</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-free-youtube-ending-creators-top-6-picks-for-2024/"><u>[Updated] Best Free YouTube Ending Creators - Top 6 Picks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/effortless-techniques-to-turn-off-youtube-video-previews/"><u>Effortless Techniques to Turn Off YouTube Video Previews</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/elevate-your-tiktok-experience-through-advanced-vocal-modification-techniques/"><u>Elevate Your TikTok Experience Through Advanced Vocal Modification Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-youtubes-strategic-approach-to-short-form-video-promotion/"><u>In 2024, Decoding YouTube's Strategic Approach to Short-Form Video Promotion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-video-discoverability-with-strategic-tagging-on-youtube/"><u>In 2024, Elevating Video Discoverability with Strategic Tagging on Youtube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-the-best-hashtags-for-youtube-gaming-videos/"><u>In 2024, The Best Hashtags for YouTube Gaming Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/podcast-promotion-unlocked-the-seo-guide-to-top-spotings/"><u>Podcast Promotion Unlocked The SEO Guide to Top Spotings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/positive-interaction-not-pressure-a-subscription-success-story/"><u>Positive Interaction, Not Pressure A Subscription Success Story</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/selecting-videography-equipment-crucial-points-to-ponder/"><u>Selecting Videography Equipment: Crucial Points to Ponder</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essential-guide-to-androids-best-video-editors/"><u>The Essential Guide to Android's Best Video Editors</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-redmi-k70e-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi Redmi K70E</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-sextuple-of-full-frame-hd-innovations-for-2024/"><u>Ultimate Sextuple of Full Frame HD Innovations for 2024</u></a></li>
 </ul></div>
 

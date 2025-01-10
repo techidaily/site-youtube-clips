@@ -1,7 +1,7 @@
 ---
 title: "\"Perfecting Audio Quality  A No-Mic Approach\""
-date: 2024-12-31T18:19:55.128Z
-updated: 2025-01-03T20:52:16.619Z
+date: 2025-01-05T16:37:00.651Z
+updated: 2025-01-10T17:47:11.743Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -52,7 +48,7 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -70,7 +66,7 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
@@ -91,10 +87,6 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -104,7 +96,7 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
@@ -115,11 +107,19 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -138,22 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-forget-your-finstas-quickly-iosandroid-advice/"><u>[New] In 2024, Forget Your Finstas Quickly IOS/Android Advice</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-exclusive-insights-3-secrets-to-capture-every-moment-on-discord/"><u>[Updated] 2024 Approved Exclusive Insights 3 Secrets to Capture Every Moment on Discord</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-collection-sites-for-quick-access-to-youtube-vids/"><u>[Updated] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-high-res-gaming-the-best-screen-capture-options/"><u>[Updated] High-Res Gaming The Best Screen Capture Options</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-rise-of-autofocus-aided-hdr-photography/"><u>[Updated] The Rise of Autofocus Aided HDR Photography</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/best-5-headsets-a-youtube-gamers-guide/"><u>Best 5 Headsets A YouTube Gamer's Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/expert-tips-on-inserting-captions-into-youtube-videos/"><u>Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sony-xperia-5-v-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Sony Xperia 5 V Get Deleted Pictures Back with Ease and Safety?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>In 2024, Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-your-youtube-with-partner-videos/"><u>In 2024, Boosting Your YouTube with Partner Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-dissecting-biggest-fifa-footage-trends-in-graphs/"><u>In 2024, Dissecting Biggest FIFA Footage Trends in Graphs</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 7 Plus</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-iphone-14-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and iPhone 14 The Right Way</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-nokia-xr21-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Nokia XR21 Without PUK Codes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/perfect-visual-experience-on-youtube-with-professional-techniques/"><u>Perfect Visual Experience on YouTube with Professional Techniques</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-tutorial-downloading-and-installing-epson-xp-245-drivers-on-windows-7-8-or-10/"><u>Step-by-Step Tutorial: Downloading & Installing Epson XP-245 Drivers on Windows 7, 8, or 10</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-viewers-into-loyalists-with-essential-youtube-tips/"><u>Transforming Viewers Into Loyalists with Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[New] A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-video-game-the-best-of-8-mirrorless-cams/"><u>[New] In 2024, Elevate Your Video Game The Best of 8 Mirrorless Cams</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-art-of-audience-engagement-emulate-your-idols-online/"><u>[New] The Art of Audience Engagement Emulate Your Idols Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[Updated] 2024 Approved How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-analyzing-video-platforms-vimeo-and-youtube/"><u>[Updated] Analyzing Video Platforms Vimeo and YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-collect-free-image-resources-via-top-4-online-stock-hubs/"><u>[Updated] Collect Free Image Resources Via Top 4 Online Stock Hubs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-video-popularity-essential-seo-techniques-for-success/"><u>[Updated] Elevate Your Video Popularity Essential SEO Techniques for Success</u></a></li>
+<li><a href="https://win-blog.techidaily.com/6-fixes-for-escape-from-tarkov-low-fps-pro-guide/"><u>6 Fixes for Escape From Tarkov Low FPS - Pro Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ace-your-green-screen-videos-must-know-secrets-for-2024/"><u>Ace Your Green Screen Videos Must-Know Secrets for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-effortless-access-top-5-chrome-addons-for-quickly-download-facebook-vids/"><u>In 2024, Effortless Access Top 5 Chrome Addons for Quickly Download Facebook Vids</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/relentless-joy-in-9-full-length-holiday-spectacles-free-online/"><u>Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/setting-up-your-youtube-studio-essential-equipment-list/"><u>Setting Up Your YouTube Studio Essential Equipment List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/smart-video-tactics-for-small-enterprises/"><u>SMART Video Tactics for Small Enterprises</u></a></li>
+<li><a href="https://techidaily.com/some-mp4-wont-play-on-my-moto-g-5g-2023-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Some MP4 won't play on my Moto G 5G (2023)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210579991-9781956096590-the-first/"><u>The First | Free Book</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transforming-song-words-into-visual-storytelling-with-lyric-video-maker/"><u>Transforming Song Words Into Visual Storytelling with Lyric Video Maker</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-gameplay-errors-resolving-constant-crashes-in-formula-1-2021-for-windows-pcs/"><u>Troubleshooting Gameplay Errors: Resolving Constant Crashes in Formula 1 2021 for Windows PCs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-your-watch-list-10-best-free-youtube-extractors/"><u>Unlock Your Watch List 10 Best Free YouTube Extractors</u></a></li>
 </ul></div>
 

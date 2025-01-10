@@ -1,7 +1,7 @@
 ---
 title: "Regular Vlogger Discussion Guidelines"
-date: 2025-01-01T23:07:42.042Z
-updated: 2025-01-03T17:00:15.450Z
+date: 2025-01-09T16:58:43.177Z
+updated: 2025-01-10T18:34:31.925Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,19 +49,11 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -66,7 +62,7 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -78,6 +74,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -100,7 +100,7 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
@@ -114,7 +114,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,20 +132,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-high-quality-video-capture-for-beginner-creators/"><u>[New] 2024 Approved High-Quality Video Capture for Beginner Creators</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-proficiency-through-practice-using-ez-grabber/"><u>[New] 2024 Approved Proficiency Through Practice Using EZ Grabber</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-ultimate-hd-screensnap-equipment/"><u>[New] 2024 Approved Ultimate HD Screensnap Equipment</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-amplify-watcher-count-simplified-tactics-exposed/"><u>[New] Amplify Watcher Count Simplified Tactics Exposed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-defending-your-videos-against-youtube-copyright-strikes/"><u>[New] Defending Your Videos Against YouTube Copyright Strikes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-effortless-repetition-replay-your-youtube-videos-via-tv-connection/"><u>[New] Effortless Repetition Replay Your YouTube Videos via TV Connection</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-how-to-go-frame-by-frame-on-youtube-video-5-methods/"><u>[New] How to Go Frame by Frame on YouTube Video? [5 Methods]</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapperview-4-review-synopsis/"><u>[New] SnapperView 4 Review Synopsis</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-connectivity-made-simple-easy-to-use-youtube-buttons/"><u>2024 Approved Channel Connectivity Made Simple Easy-to-Use YouTube Buttons</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/captivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-downloads-for-toshibas-official-bluetooth-device-driver/"><u>Free Downloads for Toshiba's Official Bluetooth Device Driver</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-prime-valorant-video-thumbnails-on-youtube/"><u>In 2024, Crafting Prime Valorant Video Thumbnails on YouTube</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/sound-blaster-audigy-fx-download-and-install-ultimate-gaming-experience/"><u>Sound Blaster Audigy FX: Download and Install Ultimate Gaming Experience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-audience-expansion-strategies-that-honor-youtube-standards/"><u>[New] Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-bypassing-blackouts-with-video-tips/"><u>[New] Bypassing Blackouts with Video Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-x-recorder-your-pcs-audio-capture-companion-for-2024/"><u>[New] X-Recorder Your PC's Audio Capture Companion for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-rapid-views-hourlys-youtube-hit-list/"><u>[Updated] 2024 Approved Rapid Views Hourly's YouTube Hit List</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-7-key-tools-to-convert-youtube-videos-easily/"><u>[Updated] 7 Key Tools to Convert YouTube Videos Easily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-engineering-video-excerpts-for-online-platforms/"><u>[Updated] Engineering Video Excerpts for Online Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-city-planning-for-climate-action-a-comprehensive-guide/"><u>[Updated] In 2024, City Planning for Climate Action A Comprehensive Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultra-stable-gimbals-for-mobile-and-professional-photography/"><u>2024 Approved Ultra-Stable Gimbals for Mobile & Professional Photography</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-video-game-top-10-keyword-strategy-resources/"><u>In 2024, Elevate Your Video Game Top 10 Keyword Strategy Resources</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>In 2024, Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/learning-ranks-top-10-education-centric-channels/"><u>Learning Ranks Top 10 Education-Centric Channels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-where-quality-efficiency-and-fun-meet/"><u>Mondly: Where Quality, Efficiency, and Fun Meet</u></a></li>
+<li><a href="https://win-webster.techidaily.com/passaggi-facili-e-rapidi-per-linvio-di-una-casella-postale-da-dispositivo-mac-una-guida-approfondita/"><u>Passaggi Facili E Rapidi per L'Invio Di Una Casella Postale Da Dispositivo Mac: Una Guida Approfondita</u></a></li>
+<li><a href="https://media-tips.techidaily.com/seamless-conversion-of-mov-files-to-gif-discover-3-exceptional-methods-for-preserving-quality/"><u>Seamless Conversion of MOV Files to GIF: Discover 3 Exceptional Methods for Preserving Quality</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723012078915-troubleshoot-and-resolve-football-manager-2021-pc-freezing-problems-easily/"><u>Troubleshoot and Resolve Football Manager 2021 PC Freezing Problems Easily!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-unresponsive-realtek-audio-settings-application/"><u>Troubleshooting Steps for Unresponsive Realtek Audio Settings Application</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubing-success-final-stages-and-top-resources/"><u>YouTubing Success Final Stages and Top Resources</u></a></li>
 </ul></div>
 

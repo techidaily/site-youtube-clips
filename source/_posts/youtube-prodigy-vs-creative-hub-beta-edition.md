@@ -1,7 +1,7 @@
 ---
 title: "YouTube Prodigy Vs. Creative Hub Beta Edition"
-date: 2024-12-03T17:56:54.160Z
-updated: 2024-12-10T16:37:11.376Z
+date: 2025-01-03T17:01:17.447Z
+updated: 2025-01-10T19:34:51.235Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -52,13 +52,13 @@ YouTube Studio was designed to be a friendly management and analysis tool. YouTu
 
 Undoubtedly, YouTube updated its Creator Studio to offer a tool that enables its users to better understand their video performance and make better content that serves YouTube’s requirements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Intro to YouTube Studio (Beta)
 
 ![ YouTube Studio Beta](https://images.wondershare.com/filmora/article-images/youtube-studio-beta.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 YouTube Studio (Beta), for many YouTubers, is now the default. However, for the time being, creators can still switch back to the Classic view (as some of the features are still being built). YouTube’s objective is to receive data of their own by understanding how creators are using the new Studio and gaining feedback to improve upon it.
 
@@ -72,6 +72,10 @@ In addition to the new layout of the tools and dashboards, YouTube Studio (Beta)
 
 **3\. Unique viewers**: Know how many different people have watched your videos. This data can be used to compare the size of your subscriber base to the actual number of your audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Using YouTube Studio Beta Features
 
 Now that you are more familiar with the new YouTube Studio (Beta), let us dive into what you can accomplish with all the new features.
@@ -83,7 +87,7 @@ In the past, there has been a lot of speculations about how creators should trea
 ![YouTube Studio Beta Optimization Tips](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-optimization.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2. Recent Video Data
@@ -100,10 +104,6 @@ In the Classic Creator Studio, you couldn’t get an aggregated view of all the 
 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-video-analysis.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4. Watch Time Funnel
 
 The objective is to increase watch time, the metric YouTube puts the most weight on. With the new Watch Time Funnel, which you can find in the Analytics section under the Reach Viewer dashboard, you can see exactly at which level of your channel or wherein an individual video you will need to improve.
@@ -116,10 +116,6 @@ If the average view duration is not up to your standards, then you will have to 
 
 ![YouTube Creator Studio Watch Time Funnel](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-watch-time-funnel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5. Traffic Sources
 
 YouTube now presents all the different traffic sources in one easy-to-find page in the Reach Viewer tab, so creators no longer have to click between them to analyze where their traffic is coming from. This new design is far less intimidating and messy. At a glance, you can now see where the majority of your audiences are coming from.
@@ -131,6 +127,10 @@ YouTube has always put a lot of value into its analytic tools, and with YouTube 
 _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please let us know in the comments below._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,24 +147,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-reverse-silent-tweets-audible-video-connection/"><u>[New] 2024 Approved Reverse Silent Tweets Audible Video Connection</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-audiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[New] Audiovisual Symphony Adding Music to Your YouTube Masterpieces</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-perfecting-the-art-of-compelling-mosaic-imagery/"><u>[New] Perfecting the Art of Compelling Mosaic Imagery</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-instant-inspiration-free-video-intro-kits/"><u>[Updated] 2024 Approved Instant Inspiration - Free Video Intro Kits</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-path-to-igtv-popularity-top-strategies-unveiled/"><u>[Updated] 2024 Approved The Ultimate Path to IGTV Popularity Top Strategies Unveiled</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-the-undercover-upscalers-guide-to-clear-visuals/"><u>[Updated] In 2024, The Undercover Upscaler's Guide to Clear Visuals</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cutting-edge-taggification-top-7-affordable-online-extractors-for-youtube/"><u>In 2024, Cutting-Edge Taggification Top 7 Affordable Online Extractors for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-youtubes-revenue-model-for-video-clips/"><u>In 2024, Decoding YouTube's Revenue Model for Video Clips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-filmoras-prime-selective-screen-change-list/"><u>In 2024, Filmora's Prime Selective Screen Change List</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-apple-iphone-xr-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On Apple iPhone XR in the Best Ways</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mac-screen-alignment-rapid-video-format-changes/"><u>Mac Screen Alignment Rapid Video Format Changes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-video-editing-in-windows-11-your-movie-maker-primer-for-2024/"><u>Mastering Video Editing in Windows 11 - Your Movie Maker Primer for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/personal-vlogs-that-resonate-deeply-with-viewers/"><u>Personal Vlogs That Resonate Deeply With Viewers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/trace-your-lost-touchpad-to-device-master/"><u>Trace Your Lost Touchpad to Device Master!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/triple-your-traffic-techniques-against-bots/"><u>Triple Your Traffic Techniques Against Bots</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlocking-the-secrets-to-effective-imagery-discovery-on-facebook-platforms/"><u>Unlocking the Secrets to Effective Imagery Discovery on Facebook Platforms</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/vlog-anxieties-unmasked-how-to-combat-them/"><u>Vlog Anxieties Unmasked How to Combat Them</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/wealthiest-webcast-wonders/"><u>Wealthiest Webcast Wonders</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/winning-the-subscriber-race-on-youtube/"><u>Winning the Subscriber Race on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-becoming-a-youtube-star-utilizing-the-power-of-featured-channels/"><u>[New] Becoming a Youtube Star Utilizing the Power of Featured Channels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-elevate-video-quality-converters-triad-of-tactics/"><u>[New] In 2024, Elevate Video Quality Converter's Triad of Tactics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-vivid-twitter-visuals-the-journey-to-full-hd-viewing/"><u>[New] Vivid Twitter Visuals The Journey to Full HD Viewing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-assessing-the-pros-and-cons-of-lgs-usb-type-c-monitors/"><u>[Updated] 2024 Approved Assessing the Pros and Cons of LG's USB Type-C Monitors</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-bring-your-imaginations-to-life-time-lapse-photography-with-gopro-studio/"><u>[Updated] Bring Your Imaginations to Life Time-Lapse Photography with GoPro Studio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-youtube-presence-with-audio/"><u>[Updated] Elevate Your Youtube Presence with Audio</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-on-the-mac-app-store-potential-pitfalls-you-need-to-know/"><u>ChatGPT on the Mac App Store - Potential Pitfalls You Need to Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-through-the-clutter-how-to-stream-top-notch-upside-down-content-on-youtube-for-2024/"><u>Cutting Through the Clutter How to Stream Top-Notch Upside-Down Content on Youtube for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-camera-powerhouse-selecting-the-10-best-4k-phones/"><u>In 2024, Camera Powerhouse Selecting the 10 Best 4K Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-essential-tips-for-making-youtube-introductory-trailers/"><u>In 2024, Essential Tips for Making YouTube Introductory Trailers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-photography-without-shake/"><u>Precision Photography without Shake</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/fication-of-injustice-for-2024/"><u>Rectification of Injustice for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-snippets-overview-explained/"><u>YouTube Snippets Overview Explained</u></a></li>
 </ul></div>
 

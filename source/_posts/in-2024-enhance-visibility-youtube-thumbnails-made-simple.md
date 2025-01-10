@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Enhance Visibility  YouTube Thumbnails Made Simple\""
-date: 2024-12-06T17:46:50.380Z
-updated: 2024-12-10T16:40:38.918Z
+date: 2025-01-08T17:38:36.921Z
+updated: 2025-01-10T17:11:23.751Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make a thumbnail for Youtube using AI Portrait
@@ -48,7 +48,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
@@ -63,17 +63,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -87,6 +79,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
@@ -96,7 +92,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
@@ -117,6 +113,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -132,16 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-gear-choosing-cameras-for-live-dynamic-music-visuals-in-hd/"><u>[New] 2024 Approved Best Gear Choosing Cameras for Live, Dynamic Music Visuals in HD</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-live-recording-gadgets-for-youtube-content-creators/"><u>[Updated] Best Live Recording Gadgets for YouTube Content Creators</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-latest-nvidia-quadro-graphics-driver-update-on-windows-10-official-source/"><u>Get Latest Nvidia Quadro Graphics Driver Update on Windows 10, Official Source</u></a></li>
-<li><a href="https://win-web3.techidaily.com/how-to-troubleshoot-your-cddvd-player-expert-advice-from-yl-computing/"><u>How to Troubleshoot Your CD/DVD Player - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-xiaomi-redmi-12-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Xiaomi Redmi 12 5G ?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mastering-the-art-of-uploading-crisp-clear-hd-content-onto-your-youtube-channel/"><u>Mastering the Art of Uploading Crisp, Clear HD Content Onto Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premiere-guide-uploading-vids-for-youtube/"><u>Premiere Guide Uploading Vids for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prosperous-social-media-gurus/"><u>Prosperous Social Media Gurus</u></a></li>
-<li><a href="https://techtrends.techidaily.com/revealing-hidden-applications-a-step-by-step-guide-for-iphone-users/"><u>Revealing Hidden Applications: A Step-by-Step Guide for iPhone Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-comprehensive-playbook-for-self-branded-content-creators/"><u>The Comprehensive Playbook for Self-Branded Content Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unveiling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-elevate-video-editing-gratuitous-premiere-pro-tools/"><u>[New] Elevate Video Editing Gratuitous Premiere Pro Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-new-standard-how-does-av1-outperform-vp9/"><u>[New] The New Standard How Does AV1 Outperform VP9?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-creative-content-concepts-for-vlogs/"><u>[Updated] Creative Content Concepts for Vlogs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-digital-dominance-highest-viewed-youtube-videos-today/"><u>[Updated] Digital Dominance Highest Viewed YouTube Videos Today</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-brief-overview-of-the-quickest-chroma-key-tricks/"><u>2024 Approved Brief Overview of the Quickest Chroma Key Tricks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-guide-to-crafting-engaging-videos-in-adobe-premiere-for-2024/"><u>A Guide to Crafting Engaging Videos in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adsense-on-youtube-determining-your-income-from-1k-viewer-engagement/"><u>AdSense on YouTube Determining Your Income From 1K Viewer Engagement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-popularity-youtube-earnings-for-1m-viewer-base-for-2024/"><u>Beyond Popularity – YouTube Earnings for 1M Viewer Base for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oppo-a18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-step-by-step-guide-for-earning-with-youtube-shorts/"><u>In 2024, A Step-by-Step Guide for Earning with YouTube Shorts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-methods-transforming-pin-videos-to-mp3-format/"><u>In 2024, Prime Methods Transforming Pin Videos To MP3 Format</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube-explained/"><u>Navigating the Giants of Social Networking: Facebook, Twitter, Instagram and YouTube Explained</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/solving-stick-drift-issues-a-comprehensive-guide-for-steam-deck-gamers/"><u>Solving Stick Drift Issues: A Comprehensive Guide for Steam Deck Gamers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/vintage-video-enhancements-an-80s-edition-hack-list/"><u>Vintage Video Enhancements An 80S Edition Hack List</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-kiddie-corner-10-year-old-ryan-hits-millionaire-mark/"><u>YouTube Kiddie Corner 10-Year-Old Ryan Hits Millionaire Mark</u></a></li>
 </ul></div>
 

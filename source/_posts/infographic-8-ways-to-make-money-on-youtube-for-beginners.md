@@ -1,7 +1,7 @@
 ---
 title: "\"Infographic - 8 Ways to Make Money on YouTube for Beginners\""
-date: 2024-09-15T18:39:22.992Z
-updated: 2024-09-21T16:15:22.657Z
+date: 2025-01-04T19:05:16.833Z
+updated: 2025-01-10T18:54:58.190Z
 tags:
   - ai video
   - ai youtube
@@ -167,6 +167,10 @@ The Alfa slab font has a futuristic vibe to it, making it the perfect choice for
 
 ![alfa slab youtube thumbnail font](https://images.wondershare.com/filmora/article-images/alfa-slab-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Againts - Best Font for YouTube Thumbnail
 
 Suppose you post lots of travel content, share videos of you lounging on the best, or sample a new restaurant. The Againts font has a unique outdoor vibe that makes your videos pop and makes your audience anticipate where you will travel next.
@@ -180,10 +184,7 @@ The Dancing Script font is a must-have in your arsenal if you wouldn't want your
 ![dancing script youtube thumbnail font](https://images.wondershare.com/filmora/article-images/dancing-script-youtube-thumbnail-font.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Oswald
@@ -252,18 +253,15 @@ When inserting text into a thumbnail, you must balance the visual elements to en
 
 ![river drive youtube thumbnail font](https://images.wondershare.com/filmora/article-images/river-drive-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 18\. Traveler Note
 
 Adventure and travel channels help us know what it's like to visit a place, even though we haven't left our couches. The Traveler Note font brings life and cheer to your travel vlogs as you continue introducing us to different parts of the world.
 
 ![traveler note youtube thumbnail font](https://images.wondershare.com/filmora/article-images/traveler-note-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 19\. Free Love Script
 
@@ -299,6 +297,10 @@ Step1 Launch Wondershare Filmora on your device and select "New Project."
 
 ![filmora new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Click on the icon shown below to import media from your device.
 
 ![filmora import media](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
@@ -307,33 +309,17 @@ Step3 Drag and drop your photos as shown below to create your YouTube Thumbnail 
 
 ![filmora add media to timeline](https://images.wondershare.com/filmora/article-images/filmora-add-media-to-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Add titles to customize the texts in your Thumbnail.
 
 ![filmora add titles](https://images.wondershare.com/filmora/article-images/filmora-add-titles.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 In the Titles panel, you can customize the font. Filmora offers hundreds of fonts for your choosing.
 
 ![filmora customize font](https://images.wondershare.com/filmora/article-images/filmora-customize-font.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6 Select a still frame to be your thumbnail. Click the camera icon on the right side to take a snapshot.
 
@@ -389,11 +375,19 @@ Suppose you post lots of travel content, share videos of you lounging on the bes
 
 ![againts youtube thumbnail font](https://images.wondershare.com/filmora/article-images/againts-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Dancing Script - YouTube Thumbnail Font With a Sweat Vibe
 
 The Dancing Script font is a must-have in your arsenal if you wouldn't want your videos to be too serious. The slanted letters also give your thumbnail a feminine touch, making it great for fashion vlogs or videos about life hacks for ladies.
 
 ![dancing script youtube thumbnail font](https://images.wondershare.com/filmora/article-images/dancing-script-youtube-thumbnail-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Oswald
 
@@ -418,6 +412,10 @@ Are you tired of the boring print fonts and girly cursive text? If you answer ye
 If you are a streamer, gamer, or like to post life hack videos on YouTube, you are probably looking for some good fonts for YouTube thumbnails to make your video less serious. The Beauty and the Beast font is very whimsical, giving your thumbnail a playful feel.
 
 ![beauty and the beast youtube thumbnail font](https://images.wondershare.com/filmora/article-images/beauty-and-the-beast-youtube-thumbnail-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 11\. Chucklesome
 
@@ -455,13 +453,6 @@ The best font for YouTube thumbnail is Badaboom BB font, which has vibrant color
 
 ![badaboom bb youtube thumbnail font](https://images.wondershare.com/filmora/article-images/badaboom-bb-youtube-thumbnail-font.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 17\. River Drive
 
 When inserting text into a thumbnail, you must balance the visual elements to ensure the letters don't overshadow the image. The River Drive font allows you to create bold yet legible text without removing the stunning photo in the background.
@@ -496,6 +487,10 @@ If you have been making YouTube videos for a while now, then you must be familia
 
 ![filmora youtube thumbnail text](https://images.wondershare.com/filmora/article-images/filmora-youtube-thumbnail-text.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The title editing feature on this platform allows you to add creative text to your video and customize it as you see fit. You can also use Wondershare Filmora to make a title with customizable parameters. For instance, you can edit the text titles using three different fill types: color fill, gradient fill, and image fill.
 
 Wondershare Filmora is an excellent tool to help bring your thumbnails alive and reel the masses in to view more videos from your channel. You cannot possibly exhaust the 107 animation styles, 12 types of shadow effects, and more than ten borders that make your text stand out from the rest. If you are unhappy with your current font, you can choose from over 30 categories of titles till you find one that tickles your fancy.
@@ -523,6 +518,10 @@ Step4 Add titles to customize the texts in your Thumbnail.
 Step5 In the Titles panel, you can customize the font. Filmora offers hundreds of fonts for your choosing.
 
 ![filmora customize font](https://images.wondershare.com/filmora/article-images/filmora-customize-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step6 Select a still frame to be your thumbnail. Click the camera icon on the right side to take a snapshot.
 
@@ -553,5 +552,24 @@ A hazy or pixelated thumbnail could discourage the viewer from clicking on your 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-8-key-money-making-moves-for-youtube-rookies/"><u>[New] 8 Key Money-Making Moves for YouTube Rookies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-does-your-channel-benefit-from-regular-youtube-payments/"><u>[New] Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-metaverse-vs-multiverse-a-comprehensive-breakdown-for-2024/"><u>[New] Metaverse vs Multiverse A Comprehensive Breakdown for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-checklist-for-podcast-rss-feed-generation/"><u>[Updated] In 2024, The Ultimate Checklist for Podcast RSS Feed Generation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-techs-compilation-browsers-with-the-best-snapshot-capabilities-for-2024/"><u>[Updated] Top Tech's Compilation Browsers with the Best Snapshot Capabilities for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-strong-online-presence-with-attractive-video-thumbnails/"><u>2024 Approved Building a Strong Online Presence with Attractive Video Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-the-quintessential-thumbnails-for-live-video-success/"><u>Crafting the Quintessential Thumbnails for Live Video Success</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/error-404-unable-to-locate-your-desired-webpage/"><u>Error 404: Unable to Locate Your Desired Webpage</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/from-playtime-to-production-sims-4-video-capturing/"><u>From Playtime to Production Sims 4 Video Capturing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-snug-winter-atmospheres-for-engaging-online-content/"><u>In 2024, Crafting Snug Winter Atmospheres for Engaging Online Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-banner-game-mastering-visual-branding-techniques/"><u>In 2024, Elevate Your Banner Game Mastering Visual Branding Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-note-30-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Note 30 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/iphone-16-vs-iphone-15-key-features-and-differences-when-moving-to-the-latest-baseline-model-insights/"><u>IPhone 16 vs iPhone 15: Key Features and Differences When Moving to the Latest Baseline Model – Insights</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/the-best-no-cost-software-to-split-your-hard-drive-on-windows-versions-include-11-10-8-and-7/"><u>The Best No-Cost Software to Split Your Hard Drive on Windows (Versions Include 11, 10, 8, and 7)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-live-recording-best-15-video-resources/"><u>The Ultimate Guide to Live Recording - Best 15 Video Resources</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tips-for-broadcasting-youtube-content-via-facebook/"><u>Tips for Broadcasting YouTube Content via Facebook</u></a></li>
+</ul></div>
 

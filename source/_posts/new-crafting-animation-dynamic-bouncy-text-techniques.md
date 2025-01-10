@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Animation  Dynamic, Bouncy Text Techniques\""
-date: 2024-12-12T18:50:53.360Z
-updated: 2024-12-16T18:32:17.183Z
+date: 2025-01-04T18:50:15.558Z
+updated: 2025-01-10T16:26:52.735Z
 tags:
   - ai video
   - ai youtube
@@ -53,7 +53,7 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
@@ -61,7 +61,7 @@ You can customize the default effect by double-clicking the shake filter in the 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
@@ -71,7 +71,7 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -81,10 +81,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -97,6 +93,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -125,7 +125,7 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -157,19 +157,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-clear-cinematic-vision-top-camera-stabilizers-reviewed/"><u>[New] Clear Cinematic Vision - Top Camera Stabilizers Reviewed</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unlock-the-power-of-fb-conversation-capture-tools-for-2024/"><u>[Updated] Unlock the Power of FB Conversation Capture Tools for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/all-inclusive-giroptic-panoramic-study/"><u>All-Inclusive Giroptic Panoramic Study</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>Average Earnings Per View What's the Income for YouTubers per Ad Playback?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/designing-efficient-auto-subscribe-web-addresses-for-2024/"><u>Designing Efficient Auto-Subscribe Web Addresses for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discovering-artistic-expression-top-film-tips-on-youtube-for-2024/"><u>Discovering Artistic Expression Top Film Tips on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/first-steps-in-the-digital-dollar-youtube-earning-hacks/"><u>First Steps in the Digital Dollar - YouTube Earning Hacks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile/"><u>Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile)</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-use-iphone-data-recovery-applications-to-get-back-lost-photographs/"><u>How to Use iPhone Data Recovery Applications to Get Back Lost Photographs</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-download-4k-videos-in-mp4-the-most-reliable-conversion-method/"><u>In 2024, Download 4K Videos in MP4 The Most Reliable Conversion Method</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-mp3-from-tweeted-media-a-step-by-step-guide/"><u>In 2024, MP3 From Tweeted Media A Step-by-Step Guide</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-13-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 13 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/master-the-art-of-adding-snapchat-to-your-mac-os-for-2024/"><u>Master the Art of Adding Snapchat to Your Mac OS for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/professional-insights-on-selecting-top-vhs-artistic-upgrades-for-2024/"><u>Professional Insights on Selecting Top VHS Artistic Upgrades for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[New] Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-identifying-the-most-versatile-cam-top-12-screen-swivel-gadgets/"><u>[New] In 2024, Identifying the Most Versatile Cam Top 12 Screen Swivel Gadgets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-economical-growth-methodology-subscribe-now/"><u>[Updated] Economical Growth Methodology - Subscribe Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-gain-on-ig-unveiling-high-payoff-content-strategies/"><u>[Updated] Gain on IG Unveiling High-Payoff Content Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevating-slideshows-incorporate-youtube-videos/"><u>[Updated] In 2024, Elevating Slideshows Incorporate YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-mobile-and-desktop-player-for-avis/"><u>[Updated] Top-Tier Mobile and Desktop Player for AVIs</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/tiff-jpeg-movavi/"><u>無條件免費移動 TIFF 為 JPEG - 使用 Movavi 轉換工具</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-asus-rog-phone-8-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Asus ROG Phone 8? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/aspiring-youtubers-guide-to-affiliate-allies-for-2024/"><u>Aspiring YouTubers' Guide to Affiliate Allies for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-creativitys-canvas-youtube-vs-tiktok/"><u>Choosing Creativity's Canvas Youtube Vs. TikTok</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/economical-embellishments-free-youtube-template-packs-for-2024/"><u>Economical Embellishments FREE YouTube Template Packs for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhanced-entertainment-tv-ready-looping-techniques-for-video-content/"><u>Enhanced Entertainment Tv-Ready Looping Techniques for Video Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-guide-to-gathering-gold-from-guided-goods-gazes-online/"><u>In 2024, A Guide to Gathering Gold From Guided Goods' Gazes Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-direct-to-device-converting-youtube-tracks-for-idevices/"><u>In 2024, Direct to Device Converting YouTube Tracks for iDevices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximizing-phone-mic-for-pc-windows/"><u>Maximizing Phone Mic for PC Windows</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/safe-online-video-conversion-from-youtube-to-mp4/"><u>Safe Online Video Conversion - From YouTube to MP4</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-up-your-stream-simultaneous-views-on-one-screen/"><u>Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/transform-your-websites-performance-with-cutting-edge-cookiebot-tech/"><u>Transform Your Website's Performance With Cutting-Edge Cookiebot Tech</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-windows-hdr-capabilities-for-cutting-edge-video-workflows-for-2024/"><u>Unlocking Windows' HDR Capabilities for Cutting-Edge Video Workflows for 2024</u></a></li>
 </ul></div>
 

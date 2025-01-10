@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Background Dimming in Videos\""
-date: 2024-12-04T17:19:01.696Z
-updated: 2024-12-10T16:52:49.251Z
+date: 2025-01-09T19:15:20.591Z
+updated: 2025-01-10T18:01:31.733Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Even if your set is clean, there could be things like books behind you, which wi
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -64,15 +60,15 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -82,10 +78,14 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -97,22 +97,22 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,21 +129,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-emerging-realities-speak-top-30-metaverse-expressions-arvr/"><u>[New] 2024 Approved Emerging Realities Speak Top 30 Metaverse Expressions [AR/VR]</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-film-frenzy-top-picks-of-free-and-paid-movies-on-iphones/"><u>[New] 2024 Approved Film Frenzy Top Picks of Free & Paid Movies on iPhones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-boosting-your-youtube-earnings-strategies-for-monetizing-short-videos/"><u>[New] Boosting Your YouTube Earnings Strategies for Monetizing Short Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-in-class-streaming-capture-software-for-youtubers/"><u>[Updated] Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-royalty-free-clip-art-strategies-and-sources/"><u>2024 Approved Royalty-Free Clip Art Strategies and Sources</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/debunking-7-myths-ai-in-text-conversations/"><u>Debunking 7 Myths: AI in Text Conversations</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enhancing-facial-realism-applying-motion-blur-effects-via-picsart/"><u>Enhancing Facial Realism Applying Motion Blur Effects via Picsart</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cinema-craftsmanship-unleashed-youtube-green-screens-101/"><u>In 2024, Cinema Craftsmanship Unleashed Youtube Green Screens 101</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>In 2024, Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-eliminate-background-noise-from-online-video-content/"><u>In 2024, Eliminate Background Noise From Online Video Content</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-xr21-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia XR21 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/mastering-secure-deletion-invaluable-articles-and-best-practices-compiled-by-stellars-experts/"><u>Mastering Secure Deletion: Invaluable Articles & Best Practices Compiled by Stellar's Experts</u></a></li>
-<li><a href="https://techidaily.com/remove-y100a-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Y100A unlock screen</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-mp4-tools-for-mac-users-maximizing-youtube-productions/"><u>Top MP4 Tools For Mac Users Maximizing YouTube Productions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transform-your-clips-step-by-step-youtube-end-screen-tutorials/"><u>Transform Your Clips Step-by-Step YouTube End Screen Tutorials</u></a></li>
-<li><a href="https://win-forum.techidaily.com/trasforma-i-file-wav-in-webm-online-e-gratuitamente-con-movavi-conversione-video/"><u>Trasforma I File WAV in WEBM Online E Gratuitamente Con Movavi - Conversione Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-concealed-video-streaming-background-youtube-watch/"><u>[New] Concealed Video Streaming Background YouTube Watch</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ideas-to-maximize-gopro-battery-performance/"><u>[New] Ideas to Maximize GoPro Battery Performance</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-elevated-experiences-through-listening-to-podcasts/"><u>[New] In 2024, Elevated Experiences Through Listening to Podcasts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>2024 Approved Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/becoming-a-pro-with-obs-gaming-recordings/"><u>Becoming a Pro with OBS Gaming Recordings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/growth-hurdle-cleared-500-subscribers-win/"><u>Growth Hurdle Cleared 500 Subscribers Win</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-honor-magic-5-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Honor Magic 5 to iPod | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oppo-a78-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Oppo A78 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximizing-impact-with-every-second-in-a-youtube-short/"><u>Maximizing Impact with Every Second in a YouTube Short</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-connoisseurs-guide-to-youtube-music-orchestration/"><u>The Connoisseur's Guide to YouTube Music Orchestration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/trimming-tactics-for-time-strapped-youtubers/"><u>Trimming Tactics for Time-Strapped YouTubers</u></a></li>
+<li><a href="https://win-webster.techidaily.com/troubleshooting-guide-resolving-issues-with-windows-11-system-imaging-and-restoration/"><u>Troubleshooting Guide: Resolving Issues with Windows 11 System Imaging and Restoration</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-fix-boot-manager-failures-and-get-your-pc-running-again/"><u>Ultimate Guide to Fix Boot Manager Failures & Get Your PC Running Again 💻</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-hear-it-here-first-effective-techniques-for-capturing-and-storing-computer-based-audio-files-in-episodic-format/"><u>Updated Hear It Here First Effective Techniques for Capturing and Storing Computer-Based Audio Files in Episodic Format</u></a></li>
 </ul></div>
 

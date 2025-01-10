@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Discovering Popular Video Threads"
-date: 2024-12-12T19:08:23.421Z
-updated: 2024-12-16T16:18:29.807Z
+date: 2025-01-09T17:48:11.388Z
+updated: 2025-01-10T16:35:18.482Z
 tags:
   - ai video
   - ai youtube
@@ -55,7 +55,7 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: What Does The Highlighted Comment Look Like?
@@ -64,16 +64,12 @@ YouTube has been working on improving the navigation of the comment section for 
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -85,7 +81,7 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Get the URL of Highlighted Comments?
@@ -96,11 +92,11 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -154,6 +150,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -169,21 +169,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-aesthetic-alchemy-transforming-youtube-videos/"><u>[New] Aesthetic Alchemy Transforming YouTube Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-evaluating-mr-beasts-fortune/"><u>[New] Evaluating Mr. Beast’s Fortune</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-recording-powerhouse-tactics-for-windows-10-aficionados/"><u>[New] In 2024, Recording Powerhouse Tactics for Windows 10 Aficionados</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-streamline-your-content-with-these-4-instagram-looping-hacks-for-2024/"><u>[New] Streamline Your Content with These 4 Instagram Looping Hacks for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-improve-your-videography-the-itunes-way-for-2024/"><u>[Updated] Improve Your Videography The iTunes Way for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>2024 Approved Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-leveraging-look-up-table-techniques-for-richer-images-in-pscc/"><u>2024 Approved Leveraging Look-Up Table Techniques for Richer Images in PSCC</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/advanced-techniques-for-youtube-editing-via-finalcut-pro-for-2024/"><u>Advanced Techniques for YouTube Editing via FinalCut Pro for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discovering-the-potential-apple-devices-on-your-youtube-channel/"><u>Discovering the Potential Apple Devices on Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-easy-customization-free-youtube-visual-templates/"><u>In 2024, Easy Customization Free YouTube Visual Templates</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/inside-look-at-levelplay-combat-air-ca4-the-quiet-champion-of-cpu-coolers-on-the-market-today/"><u>Inside Look at Levelplay Combat Air CA4 - The Quiet Champion of CPU Coolers on the Market Today</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/must-have-specifications-in-mac-audio-editing-applications-for-2024/"><u>Must-Have Specifications in Mac Audio Editing Applications for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/new-chatgpt-subscriptions-are-closed-but-why-and-when-will-they-reopen/"><u>New ChatGPT Subscriptions Are Closed, but Why, and When Will They Reopen?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/retracing-the-footsteps-in-facebooks-historical-content-stream-for-2024/"><u>Retracing the Footsteps in Facebook’s Historical Content Stream for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/top-7-editors-de-filmes-mkv-mais-confiaveis-para-pc-e-mac-em-2024/"><u>Top 7 Editors De Filmes MKV Mais Confiáveis Para PC E Mac Em 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/your-music-masterpiece-awaits-step-by-step-to-youtube-playlist-perfection-webmobile/"><u>Your Music Masterpiece Awaits Step-by-Step to YouTube Playlist Perfection (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-comprehensive-insights-into-imovie-techniques-for-youtube-creators/"><u>[New] Comprehensive Insights Into iMovie Techniques for YouTube Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-deciphering-the-code-youtube-community-rules-explained/"><u>[New] Deciphering the Code YouTube Community Rules Explained</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-next-generation-virtual-collaboration-tools-post-zoom-era/"><u>[New] Next Generation Virtual Collaboration Tools, Post-Zoom Era</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amplify-your-brands-voice-the-power-of-shaped-videos/"><u>[Updated] Amplify Your Brand’s Voice The Power of Shaped Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-visual-storytelling-with-youtube-videos/"><u>[Updated] Streamlining Visual Storytelling with YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>2024 Approved A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-in-depth-examination-the-dji-phantom-3-experience/"><u>2024 Approved In-Depth Examination The DJI Phantom 3 Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unveiling-the-mechanisms-that-govern-youtube-after-a-video-is-live/"><u>2024 Approved Unveiling the Mechanisms That Govern YouTube After a Video Is Live</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/counteract-bot-visitors-for-real-audience-growth/"><u>Counteract Bot Visitors for Real Audience Growth</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dvd-a-hdmp4-tramite-codifica-hevch265-senza-costi-alta-fedelta-visiva-garantita/"><u>DVD a HDMP4 Tramite Codifica HEVC/H.265 Senza Costi, Alta Fedeltà Visiva Garantita</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-videos-youtube-trailers-through-filmora-for-2024/"><u>Elevate Your Videos YouTube Trailers Through Filmora for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-officejet-pro-8740-printer-drivers-for-windows-11-10-and-8-download-now/"><u>HP OfficeJet Pro 8740 Printer Drivers for Windows 11, 10 & 8 - Download Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-building-a-solid-foundation-youtube-video-script-basics/"><u>In 2024, Building a Solid Foundation YouTube Video Script Basics</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/meta-quest-3-lite-launch-details-and-leaked-specs-anticipated-price-drop-insights/"><u>Meta Quest 3 Lite Launch Details & Leaked Specs - Anticipated Price Drop Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pioneering-creativity-youtubes-playground-for-talent/"><u>Pioneering Creativity YouTube's Playground for Talent</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/step-by-step-eliminating-sound-from-modern-avi-format-avi-2023-for-2024/"><u>Step-by-Step Eliminating Sound From Modern AVI Format (AVI 2023) for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-platforms-comparison-facebook-vs-twitter-vs-instagram-vs-youtube/"><u>Top Social Platforms Comparison: Facebook Vs. Twitter Vs. Instagram Vs. YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-notch-leaderboard-scrutinizer-for-vloggers-success/"><u>Top-Notch Leaderboard Scrutinizer for Vlogger's Success</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/troubleshooting-your-non-responsive-gpu-insights-from-yl-computing/"><u>Troubleshooting Your Non-Responsive GPU: Insights From YL Computing</u></a></li>
 </ul></div>
 

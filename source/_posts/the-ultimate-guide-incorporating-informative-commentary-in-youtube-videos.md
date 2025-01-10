@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-12-10T16:41:33.331Z
-updated: 2024-12-16T20:46:58.664Z
+date: 2025-01-06T19:35:28.434Z
+updated: 2025-01-10T18:53:49.621Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 2: How to Add YouTube Annotations](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -58,7 +58,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -67,7 +67,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -90,7 +90,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -99,7 +99,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -155,18 +155,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-achieve-perfect-proportions-in-your-fb-videos-through-ratio-knowledge/"><u>[New] 2024 Approved Achieve Perfect Proportions in Your FB Videos Through Ratio Knowledge</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-decoding-the-youtube-view-number-for-profitability/"><u>[New] Decoding the YouTube View Number for Profitability</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-effortless-methods-to-swiftly-erase-signatures/"><u>[New] Effortless Methods to Swiftly Erase Signatures</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-elevate-thumbnails-fantasy-elements-added/"><u>[New] Elevate Thumbnails Fantasy Elements Added</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/inding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>[New] Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-the-insiders-secrets-of-screencastify-recording-for-2024/"><u>[New] The Insider’s Secrets of Screencastify Recording for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-rewind-revolution-iphones-time-turning-ability/"><u>[Updated] Rewind Revolution IPhone's Time-Turning Ability</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-brisk-tutorial-transforming-photos-into-youtube-desktop-thumbnails/"><u>2024 Approved Brisk Tutorial Transforming Photos Into YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/1716169136059-2024-approved-how-to-reverse-image-search-instagram/"><u>2024 Approved How to Reverse Image Search Instagram</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-remedy-for-audio-pause-in-obs-streams/"><u>2024 Approved Remedy for Audio Pause in OBS Streams</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/edit-mov-files-for-free-top-6-cutting-tools-reviewed/"><u>Edit MOV Files for Free Top 6 Cutting Tools Reviewed</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-demystifying-the-art-behind-live-video-thumbnails/"><u>In 2024, Demystifying the Art Behind Live Video Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-engaging-youtube-thumbnails-a-step-by-step-guide/"><u>[New] 2024 Approved Crafting Engaging YouTube Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-quick-guide-sharing-multiple-images-and-movies-on-instagram/"><u>[New] 2024 Approved Quick Guide Sharing Multiple Images & Movies on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-quadcopters-unveiled-their-intricate-workings-revealed/"><u>[New] Quadcopters Unveiled Their Intricate Workings Revealed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-unique-video-reaction-strategies-for-online-enthusiasts/"><u>[Updated] 10 Unique Video Reaction Strategies for Online Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-basic-to-advanced-your-guide-to-system-advancements/"><u>[Updated] From Basic to Advanced Your Guide to System Advancements</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-strategic-media-mapping-charting-your-course-against-competitors-videos/"><u>[Updated] Strategic Media Mapping Charting Your Course Against Competitors' Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-sin-coste-entre-archivos-gif-y-png-con-herramienta-online-gratuita/"><u>Conversión Sin Coste Entre Archivos GIF Y PNG Con Herramienta Online Gratuita</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discovering-the-upgrades-in-apples-latest-airpods-series-a-comparison-of-new-models/"><u>Discovering the Upgrades in Apple's Latest AirPods Series - A Comparison of New Models</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-oppo-a2-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Oppo A2</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/gaming-channel-evolution-best-14-video-ideas-on-youtube/"><u>Gaming Channel Evolution Best 14 Video Ideas on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-10-youtube-storytelling-techniques-that-work/"><u>In 2024, 10 YouTube Storytelling Techniques That Work</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beginners-guide-capturing-youtube-videos-as-screencasts-without-payment/"><u>In 2024, Beginner's Guide Capturing YouTube Videos as Screencasts Without Payment</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-streamlined-language-translation-best-online-subtitle-manipulators/"><u>In 2024, Streamlined Language Translation – Best Online Subtitle Manipulators</u></a></li>
 </ul></div>
 
