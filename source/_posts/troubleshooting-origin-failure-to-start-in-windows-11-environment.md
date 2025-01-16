@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting 'Origin' Failure to Start in Windows 11 Environment
-date: 2025-01-08T16:04:27.034Z
-updated: 2025-01-10T17:30:07.003Z
+date: 2025-01-14T18:17:22.906Z
+updated: 2025-01-15T20:43:27.840Z
 tags:
   - win11
   - win10
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
  If you’ve recently upgraded to Windows 10 Fall Creators Update, version 1709, and found that your **Start menu is not opening** , making it impossible to use the very handy Search feature, you’re not alone.
 
  Many Windows 10 users are reporting this problem as well. But no worries, we’re here to help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fixes for ‘Windows 10 Start Menu Not Working’
 
@@ -45,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1: Relog into your account
@@ -55,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
  1) On your keyboard, press the**Ctrl + Alt + Delete** keys at the same time. Click**Sign out** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3a03daedd.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2) Type in your password and log in again.
 
@@ -84,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4) In PowerShell window, copy and paste in the following command and press the**Enter** key on your keyboard:
 
 net user newusername newpassword /add
@@ -108,17 +104,21 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b92b357675.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Double-click**Sound, video and game controller** . Right-click your audio card driver and click**Uninstall device** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b931f18df7.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When prompted with the following notification, tick the box for**Delete the driver software for this device** and click**Uninstall** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b939274834.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5) Restart your computer after the uninstall of both of your video card driver and your sound card driver.
 
@@ -134,6 +134,10 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b960cea017.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  6.3) Click the **Update** button next to the flagged video and audio card to automatically download and install the correct versions of them (you can do this with the FREE version).
 
  Or click **Update All**  to automatically download and install the correct version of **_all_** the drivers that are missing or out of date on your system (this requires the [**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).
@@ -141,7 +145,7 @@ net user newusername newpassword /add
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b963732280.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 7) Check if your Start menu is back.
@@ -149,7 +153,7 @@ net user newusername newpassword /add
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4: Disable or uninstall third-party antivirus programs
@@ -171,7 +175,7 @@ net user newusername newpassword /add
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b98211438e.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2) View by**Category** , then click**Uninstall a program** .
@@ -204,10 +208,6 @@ net user newusername newpassword /add
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b3b34111eb.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
@@ -215,6 +215,10 @@ net user newusername newpassword /add
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8a563ff80.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  4) Type**sfc /scannow** in and press the**Enter** key on your keyboard. Wait for a while for the process to complete.
 
@@ -226,13 +230,13 @@ DISM /Online /Cleanup-Image /RestoreHealth
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b9c8a8bb33.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6) When these two tests finishes, check if your Start menu is back.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 8: Reinstall Cortana
 
@@ -245,10 +249,6 @@ DISM /Online /Cleanup-Image /RestoreHealth
  2) On the top of the Task Manager window, select**File** option and then choose**Run new task** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/12/img_5a3b8999a1831.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  3) Then type **powershell**  and t  ick the box for**Create this task with administrative privileges** . Click **OK** .
 
@@ -290,20 +290,19 @@ Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-flippant-entry-and-exit-tips/"><u>[New] Flippant Entry & Exit Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[New] In 2024, Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-viewer-interest-with-accurate-time-stamping/"><u>[Updated] Enhancing Viewer Interest with Accurate Time Stamping</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-optimal-introduction-editor-software-apps/"><u>[Updated] Optimal Introduction Editor Software (Apps)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-beat-boulevard-optimal-dj-video-downloads/"><u>2024 Approved Beat Boulevard Optimal DJ Video Downloads</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos/"><u>2024 Approved Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/amplify-your-shorts-impact-with-bespoke-thumbnails-for-2024/"><u>Amplify Your Shorts' Impact with Bespoke Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ascend-in-the-youtube-arena-through-creative-studio-mastery/"><u>Ascend in the YouTube Arena Through Creative Studio Mastery</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/1716464605550-create-captivating-yt-thumbnails-fast/"><u>Create Captivating YT Thumbnails Fast!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-edge-tips-for-low-cost-youtube-sessions/"><u>Cutting-Edge Tips for Low-Cost YouTube Sessions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola Moto G23 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/modern-warfare-2-pc-performance-boosters-fix-these-six-common-causes-of-game-crashes/"><u>Modern Warfare 2 PC Performance Boosters - Fix These Six Common Causes of Game Crashes</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/revive-your-apple-watch-top-six-solutions-for-troubled-pairing/"><u>Revive Your Apple Watch: Top Six Solutions for Troubled Pairing</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/sensory-overload-vr-transforming-viewing-habits-for-2024/"><u>Sensory Overload VR Transforming Viewing Habits for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-art-of-color-in-online-beauty-content/"><u>The Art of Color in Online Beauty Content</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-examining-youtubers-monthly-revenue-strategies/"><u>[New] Examining YouTubers' Monthly Revenue Strategies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-master-list-of-youtube-templates-for-beginners/"><u>[Updated] Master List of YouTube Templates for Beginners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-carryminatis-income-blueprint-journey-through-2023/"><u>2024 Approved CarryMinati's Income Blueprint Journey Through 2023</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-youtube-presence-with-studio-insights-for-2024/"><u>Elevate Your YouTube Presence with Studio Insights for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enablingdisabling-network-discovery-on-windows-11-a-step-by-step-guide/"><u>Enabling/Disabling Network Discovery on Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhance-site-performance-with-our-cookiebot-integrated-tools/"><u>Enhance Site Performance with Our Cookiebot Integrated Tools</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-fix-football-manager-2amo-crashes-for-pc-gamers-solutions-explored/"><u>How to Fix Football Manager 2Amo Crashes for PC Gamers - Solutions Explored</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-find-n3-flip-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Oppo Find N3 Flip Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-honor-play-7t-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Honor Play 7T Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mirrorless-challenge-to-dslr-who-wins-in-video/"><u>Mirrorless Challenge to DSLR Who Wins in Video?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-profitability-on-yt-post-monetization-financial-steps/"><u>Streamline Profitability on YT – Post-Monetization Financial Steps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailoring-your-youtube-audience-the-detailed-guide/"><u>Tailoring Your YouTube Audience - The Detailed Guide</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-and-fixing-sound-issues-with-new-microsoft-drivers-free/"><u>Troubleshooting and Fixing Sound Issues with New Microsoft Drivers [Free]</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/video-voyages-venturing-into-the-vlog-profit-world/"><u>Video Voyages Venturing Into the Vlog Profit World</u></a></li>
 </ul></div>
 

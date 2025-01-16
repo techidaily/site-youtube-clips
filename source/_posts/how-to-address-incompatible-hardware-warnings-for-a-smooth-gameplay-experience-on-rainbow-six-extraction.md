@@ -1,7 +1,7 @@
 ---
 title: How to Address Incompatible Hardware Warnings for a Smooth Gameplay Experience on Rainbow Six Extraction
-date: 2025-01-04T17:03:09.068Z
-updated: 2025-01-10T18:35:43.465Z
+date: 2025-01-10T08:15:52.137Z
+updated: 2025-01-16T04:47:55.366Z
 tags:
   - win11
   - win10
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/6195218912eaa800d5cbedefde726b6171a7555ef
 
  If you want to gain a smooth gaming experience with Deathloop, make sure your PC meets the[minimum system requirements](https://store.steampowered.com/app/1252330/DEATHLOOP/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fixes to try
 
  You may not try them all. Just work your way down the list until you find the one that solves your problem.
@@ -35,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/6195218912eaa800d5cbedefde726b6171a7555ef
 4. [**Temporarily disable third-party software**](https://tools.techidaily.com/drivereasy/download/)
 5. [**Verify the integrity of game files**](https://tools.techidaily.com/drivereasy/download/)
 6. **[Turn off overlay](https://tools.techidaily.com/drivereasy/download/)**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 1 – Run Deathloop as an administrator
 
@@ -53,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/6195218912eaa800d5cbedefde726b6171a7555ef
 
  Restart the game to test. If the crashes reoccur, continue to the second fix.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 2 – Use the dedicated GPU
 
  An integrated GPU may find it hard to support graphics-intensive games. If Deathloop crashes with an_Intel GPU not supported error_ , it means you need to use a stronger GPU. If you have two GPU installed on the computer, follow the steps to choose the dedicated GPU to run the game.
@@ -65,20 +53,32 @@ thumbnail: https://thmb.techidaily.com/6195218912eaa800d5cbedefde726b6171a7555ef
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/use-dedicated-card-1.jpg)
 2. Click**Browse** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/use-dedicated-card-2.jpg)
 3. Navigate to the game’s installation folder and add the Deathloop.exe file.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/use-dedicated-card.jpg)
 4. Click**Options** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/use-dedicated-card-3.jpg)
 5. Select**High performance** and click**Save** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/use-dedicated-card-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 3 – Update your graphics driver
 
@@ -97,13 +97,13 @@ thumbnail: https://thmb.techidaily.com/6195218912eaa800d5cbedefde726b6171a7555ef
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/amd-6800xt.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Reboot your computer after the driver update completes, and check if Deathloop still crashes. If so, try the next solution.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 4 – Temporarily disable third-party software
@@ -116,15 +116,19 @@ You can also close all unnecessary apps in the background. Here is how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/right-click-task-bar-task-manager.jpg)
 2. Under the Process tab, right-click a program you’d like to close and click **End task** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/disable-unnecessary-programs-running-in-the-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Don’t end any programs you’re unfamiliar with, as they may be critical for the functioning of your computer.
 
  Now that you should only leave Deathloop and your game launcher running. Test if you’re able to play the game as expected. If not, check out two more fixes below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5 – Verify the integrity of game files
 
@@ -134,12 +138,12 @@ You can also close all unnecessary apps in the background. Here is how:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/verify-game-files-steam.jpg)
 2. Right-click Deathloop and click**Properties** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/verify-game-files-3.jpg)
 3. Click**Local Files** on the left and click**Verify integrity of game files** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/09/verify-game-files-2-1.jpg)
 
@@ -167,10 +171,6 @@ You can also close all unnecessary apps in the background. Here is how:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/7-2-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Deathloop should be back to normal after you applied the settings as above.
 
  So this is all for Deathloop crashing fixes. Hopefully they helped. If you have any questions or suggestions, please feel free to leave your comment below.
@@ -192,16 +192,16 @@ You can also close all unnecessary apps in the background. Here is how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ut-trim-and-enhance-youtube-editing-tips-for-the-rookie-for-2024/"><u>[New] Cut, Trim & Enhance YouTube Editing Tips for the Rookie for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-explore-new-horizons-mobile-videography-beyond-periscope/"><u>[Updated] Explore New Horizons Mobile Videography Beyond Periscope</u></a></li>
-<li><a href="https://windows11.techidaily.com/2-seamless-integration-how-wsl-is-becoming-more-user-friendly-on-windows-pcs/"><u>2. Seamless Integration: How WSL Is Becoming More User-Friendly on Windows PCs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/creating-low-volume-effects-a-guide-for-fading-out-audio-in-logic-pro-for-2024/"><u>Creating Low Volume Effects A Guide for Fading Out Audio in Logic Pro for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/decoding-video-thread-embellishments-for-2024/"><u>Decoding Video Thread Embellishments for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-video-popularity-on-youtube/"><u>Elevating Video Popularity on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-your-vlog-through-proper-lighting-for-2024/"><u>Elevating Your Vlog Through Proper Lighting for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exploring-the-monetary-mechanics-of-t-series-youtube-channel/"><u>Exploring the Monetary Mechanics of T-Series Youtube Channel</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/free-youtube-extractors-a-comprehensible-guide-for-beginners/"><u>Free YouTube Extractors A Comprehensible Guide for Beginners</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-launchpad-to-success-establishing-your-own-food-flavor-blogchannel/"><u>In 2024, Launchpad to Success Establishing Your Own Food Flavor Blog/Channel</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-craft-your-own-podcast-success-with-writing-tips-and-sample-templates/"><u>[New] Craft Your Own Podcast Success with Writing Tips and Sample Templates</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-entertaining-entrances-tales-that-resonate/"><u>[Updated] 2024 Approved Entertaining Entrances Tales That Resonate</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/500-discount-top-ranking-gaming-laptop-exclusively-offered-on-zdnet-this-october-prime-day-dont-miss-out/"><u>$500 Discount: Top-Ranking Gaming Laptop Exclusively Offered on ZDNet This October Prime Day - Don't Miss Out!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-escalate-your-channel-with-a-swift-move-towards-youtube-partner-status/"><u>2024 Approved Escalate Your Channel with a Swift Move Towards YouTube Partner Status</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/erclockwise-content-youtube-replay-methods-for-2024/"><u>Counterclockwise Content YouTube Replay Methods for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-techniques-elevating-your-youtube-edits-using-imovie-for-2024/"><u>Cutting-Edge Techniques Elevating Your YouTube Edits Using iMovie for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/expert-insights-on-forging-youtube-sponsorship-bonds-using-famebit/"><u>Expert Insights on Forging YouTube Sponsorship Bonds Using FameBit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>In 2024, A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-easy-youtube-animation-subscribe-bars-in-filmora/"><u>In 2024, Crafting Easy YouTube Animation Subscribe Bars in Filmora</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-network-diagnostics-a-step-by-step-guide-to-using-tracert-on-windows/"><u>Mastering Network Diagnostics: A Step-by-Step Guide to Using Tracert on Windows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/natural-setups-comprehensive-free-screen-templates-for-cinephiles/"><u>Natural Setups Comprehensive Free Screen Templates for Cinephiles</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2025-01-05T16:28:40.590Z
-updated: 2025-01-10T17:25:48.666Z
+date: 2025-01-11T03:22:53.712Z
+updated: 2025-01-15T19:23:12.683Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -60,10 +56,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -78,7 +70,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -116,7 +108,11 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -129,7 +125,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -148,6 +144,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -163,18 +163,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-effortless-way-to-personalize-your-youtube-channel-url/"><u>[New] Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-dive-into-youtubes-best-practices-for-playlist-design/"><u>[Updated] Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>[Updated] Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fiverr-cover-content-proportions/"><u>[Updated] In 2024, Fiverr Cover Content Proportions</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-restoring-your-broadcast-essential-steps-for-uninterrupted-fb-live/"><u>[Updated] Restoring Your Broadcast Essential Steps for Uninterrupted FB Live</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/ace-your-budget-gaming-needs-with-acer-aspire-e-15-the-consensus-pick-for-economical-high-performance-computing/"><u>Ace Your Budget Gaming Needs with Acer Aspire E 15 - The Consensus Pick for Economical High-Performance Computing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-visuals-the-science-of-youtube-banners-and-thumbnails-for-2024/"><u>Crafting Visuals The Science of YouTube Banners & Thumbnails for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/from-first-click-to-final-cut-elevating-ps4-recording-techniques/"><u>From First Click to Final Cut Elevating PS4 Recording Techniques</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-iphone-15-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-all-about-virtual-idols-and-their-rise/"><u>In 2024, All About Virtual Idols and Their Rise</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-charting-the-course-of-monetization-for-creator-economy-on-youtubeshorts/"><u>In 2024, Charting the Course of Monetization for Creator Economy on YouTubeshorts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/msi-afterburner-guide-correcting-gpu-recognition-errors-in-the-latest-windows-operating-systems/"><u>MSI Afterburner Guide: Correcting GPU Recognition Errors in the Latest Windows Operating Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/reak-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[New] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>[New] Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enhancing-television-experience-playback-tips-for-youtube-content/"><u>[New] Enhancing Television Experience Playback Tips for YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-a-comprehensive-guide-to-achieving-smooth-color-keying/"><u>[Updated] A Comprehensive Guide to Achieving Smooth Color-Keying</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flashing-feathersticks-short-film-characters-music-for-2024/"><u>[Updated] Flashing Feathersticks Short Film Characters' Music for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>2024 Approved Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>2024 Approved Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-undersea-video-7-easy-to-follow-techniques/"><u>2024 Approved Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>Breaking Into the Digital Realm The WireCast Approach for YouTube Streamers</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-realme-11-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Realme 11 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-12-pro-max-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 12 Pro Max for Free</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/navigating-virtual-realms-how-metas-questplus-boosted-my-bravery-in-vr-exploration/"><u>Navigating Virtual Realms: How Meta's Quest+ Boosted My Bravery in VR Exploration</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photoshops-favorites-the-best-monitors-reviewed/"><u>Photoshop's Favorites The Best Monitors Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pro-gamers-top-5-soundtrack-devices/"><u>Pro Gamers' Top 5 Soundtrack Devices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-aurora-hdr-experience-is-it-transformative/"><u>The Aurora HDR Experience Is It Transformative?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-guide-to-the-premier-10-youtube-news-channels/"><u>Your Guide to the Premier 10 YouTube News Channels</u></a></li>
 </ul></div>
 

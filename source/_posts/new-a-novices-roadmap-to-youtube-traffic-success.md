@@ -1,7 +1,7 @@
 ---
 title: "[New] A Novice's Roadmap to YouTube Traffic Success"
-date: 2025-01-04T18:56:26.739Z
-updated: 2025-01-10T18:56:05.486Z
+date: 2025-01-15T09:01:30.832Z
+updated: 2025-01-15T20:13:57.156Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,6 @@ Ready?
 
 Let’s Go!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -61,6 +57,10 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -88,6 +88,10 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
@@ -95,7 +99,7 @@ Some you will use to dig deeper in and other you will deem irrelevant to your vi
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ####  
@@ -208,6 +212,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -222,10 +230,6 @@ Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -233,10 +237,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -263,7 +263,7 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -285,18 +285,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-shadowing-snaptaking-discreet-methods-to-capture-snapchats/"><u>[New] In 2024, Shadowing SnapTaking Discreet Methods to Capture SnapChats</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-streamlining-video-production-merging-youtube-editing-and-imovies-best-practices/"><u>[Updated] 2024 Approved Streamlining Video Production Merging YouTube Editing & iMovie's Best Practices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-edge-creativity-choosing-high-quality-camera-lenses/"><u>Cutting Edge Creativity Choosing High-Quality Camera Lenses</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/decoding-smartwatch-showdowns-comparing-apple-watch-ultra-and-series-n8-to-discover-ideal-matches-for-you/"><u>Decoding Smartwatch Showdowns: Comparing Apple Watch Ultra and Series N8 to Discover Ideal Matches for You</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/direct-capture-screen-record-on-pcmac-plus-youtube-upload/"><u>Direct Capture Screen Record on PC/Mac + YouTube Upload</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/embracing-constructive-feedback-ignoring-the-rest/"><u>Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-comments-with-emojis-on-youtube/"><u>Enhancing Comments with Emojis on YouTube</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-get-canon-ip110-printer-drivers-on-your-windows-machine-supports-win11-win10-win8-and-win7/"><u>How to Get Canon IP110 Printer Drivers on Your Windows Machine (Supports Win11, Win10, Win8 & Win7)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boost-traffic-to-your-videos-top-seo-practices-for-youtube-success/"><u>In 2024, Boost Traffic to Your Videos Top SEO Practices for YouTube Success</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level/"><u>In 2024, Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-funding-fantasies-or-fiscal-facts/"><u>In 2024, Funding Fantasies or Fiscal Facts?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-pigments-and-palettes-the-artists-guidebook/"><u>In 2024, Pigments & Palettes The Artist's Guidebook</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-power-of-chatgpt-in-providing-reliable-health-guidance-unveiling-seven-key-points/"><u>The Power of ChatGPT in Providing Reliable Health Guidance: Unveiling Seven Key Points</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-premier-intro-list-for-panzoids-for-2024/"><u>[Updated] The Premier Intro List for Panzoids for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-primer-on-establishing-innovative-facebook-gatherings/"><u>A Primer on Establishing Innovative Facebook Gatherings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/access-top-shorter-video-downloads-for-free-online/"><u>Access Top Shorter Video Downloads for FREE Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/behind-the-curtain-how-youtube-tallys-its-views/"><u>Behind the Curtain How YouTube Tally's Its Views</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-tips-for-upgrading-the-firmware-on-your-tp-link-ub400-bluetooth-adapter-download-and-installation-processes-explained/"><u>Expert Tips for Upgrading the Firmware on Your TP-Link UB400 Bluetooth Adapter: Download and Installation Processes Explained</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/first-time-streamers-unite-learn-obs-and-broadcast-to-youtube/"><u>First-Time Streamers Unite Learn OBS & Broadcast to Youtube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guia-expertos-para-liberar-y-converter-contenido-de-itunes-en-mp3/"><u>Guía Expertos Para Liberar Y Converter Contenido De iTunes en MP3</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-asmr-can-enhance-your-physical-and-mental-health-for-2024/"><u>How ASMR Can Enhance Your Physical & Mental Health for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-realme-narzo-n55-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Realme Narzo N55 Phone</u></a></li>
+<li><a href="https://win-able.techidaily.com/pcbmpgif/"><u>PC上でBMPファイルをアニメーションGIFにするための効果的な方法</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-mystique-of-aether-an-introduction-and-guide-on-becoming-an-active-member/"><u>The Mystique of Aether: An Introduction & Guide on Becoming an Active Member</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/transform-your-dextrose-3-mixer-into-a-touchscreen-masterpiece-with-professional-dj-skin-customization/"><u>Transform Your Dextrose 3 Mixer Into a Touchscreen Masterpiece with Professional DJ Skin Customization!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-higher-engagement-with-proven-video-tagging-methods/"><u>Unlock Higher Engagement with Proven Video Tagging Methods</u></a></li>
 </ul></div>
 

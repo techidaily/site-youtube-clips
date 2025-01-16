@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding Video Thread Embellishments"
-date: 2025-01-09T18:54:23.399Z
-updated: 2025-01-10T16:28:53.142Z
+date: 2025-01-13T03:50:01.263Z
+updated: 2025-01-15T18:40:29.846Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 * [Part 7: Tips for Writing a Comment](#part7)
 * [Part 8: Benefits of Highlighted Comments](#part8)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -54,6 +58,10 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -61,16 +69,12 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -88,15 +92,7 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -107,7 +103,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -123,6 +119,10 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -169,24 +169,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mini-movie-script-concept/"><u>[New] 2024 Approved Mini Movie Script Concept</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-drones-unleashed-selecting-the-right-supplementary-gear-for-2024/"><u>[New] Drones Unleashed Selecting the Right Supplementary Gear for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-essential-android-tools-5-leading-ps2-emulator-apps/"><u>[Updated] In 2024, Essential Android Tools 5 Leading PS2 Emulator Apps</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-selecting-optimal-frame-rate-30fps-vs-60fps-for-quality-recording-for-2024/"><u>[Updated] Selecting Optimal Frame Rate 30Fps Vs. 60Fps for Quality Recording for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-15-steps-towards-perfecting-your-educational-video-content-for-youtube/"><u>2024 Approved 15 Steps Towards Perfecting Your Educational Video Content for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-treasure-trove-of-9-complete-holiday-flicks-free-streaming/"><u>2024 Approved A Treasure Trove of 9 Complete Holiday Flicks, Free Streaming</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-best-practices-for-livestreaming-and-archiving-sports-events/"><u>2024 Approved Best Practices for Livestreaming & Archiving Sports Events</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-guide-to-photo-transformation-tools/"><u>2024 Approved Expert Guide to Photo Transformation Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>Bring Playlists Down to YouTube The 5 Best Conversion Resources</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earnings-epicenter-tech-gaming-on-youtube/"><u>Earnings Epicenter Tech Gaming on YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/essential-windows-video-editing-software-for-professional-use/"><u>Essential Windows Video Editing Software for Professional Use</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-hot-40i-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Hot 40i to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-k11x-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo K11x</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-a-successful-online-business-with-youtube-studio/"><u>In 2024, Crafting a Successful Online Business with Youtube Studio</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>In 2024, Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enriching-meta-descriptions-a-template-transformation-journey/"><u>In 2024, Enriching Meta Descriptions A Template Transformation Journey</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premium-dj-visuals-library-seamless-download-experience/"><u>Premium DJ Visuals Library - Seamless Download Experience</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-transforming-shaky-videos-into-cinematic-masterpieces-with-fcpx-for-2024/"><u>Updated Transforming Shaky Videos Into Cinematic Masterpieces with FCPX for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/vloggers-fears-decoded-combat-strategies-for-everyone/"><u>Vloggers' Fears Decoded Combat Strategies for Everyone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-boost-video-velocity-top-android-helpers-for-2024/"><u>[Updated] Boost Video Velocity - Top Android Helpers for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-ten-historical-educational-video-streams-for-students/"><u>[Updated] Top Ten Historical Educational Video Streams (For Students)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhancing-youtube-viewing-with-faster-or-slower-video-pace/"><u>2024 Approved Enhancing YouTube Viewing with Faster or Slower Video Pace</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-film-techniques-on-youtube-by-future-visionaries/"><u>2024 Approved Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-to-view-performances-film-cast-permissions/"><u>2024 Approved Free-to-View Performances Film Cast Permissions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-simplifying-social-media-sharing-from-tiktok-to-fb/"><u>2024 Approved Simplifying Social Media Sharing From TikTok to FB</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/5-effektive-techniken-zum-datentransfer-zwischen-zwei-computern-mit-windows-11-10-8-und-7/"><u>5 Effektive Techniken Zum Datentransfer Zwischen Zwei Computern Mit Windows 11, 10, 8 Und 7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>Dividing Opinions Is Mirrorless Better than DSLR for Vids?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/do-youtubers-get-paid-monthly/"><u>Do YouTubers Get Paid Monthly?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/flavorful-follows-top-food-vloggers-to-track/"><u>Flavorful Follows Top Food Vloggers to Track</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-se-2020-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE (2020) Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-emoji-mastery-for-engaging-youtube-discussions/"><u>In 2024, Emoji Mastery for Engaging YouTube Discussions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-video-visibility-using-creator-studio-wisdom/"><u>In 2024, Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-meizu-21-pro-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Meizu 21 Pro Phone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/master-fast-sharing-youtube-playlists-made-simple/"><u>Master Fast Sharing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723862728633-unleash-your-inner-gamer-with-lenovo-legion-slim-5-a-steal-at-under-1100-from-newegg/"><u>Unleash Your Inner Gamer with Lenovo Legion Slim 5 – A Steal at Under $1,100 From Newegg!</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-final-cut-pro-x-subtitle-editing-tips-and-tricks/"><u>Updated Final Cut Pro X Subtitle Editing Tips and Tricks</u></a></li>
 </ul></div>
 

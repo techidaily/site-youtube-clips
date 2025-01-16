@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2025-01-06T18:29:23.404Z
-updated: 2025-01-10T17:02:02.700Z
+date: 2025-01-09T10:44:37.983Z
+updated: 2025-01-16T09:37:48.949Z
 tags:
   - ai video
   - ai youtube
@@ -36,24 +36,16 @@ You have a great idea for a video, but you’re just not sure how to express it 
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -62,10 +54,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -76,12 +64,16 @@ The first step in writing a script is to develop an outline for the story. You m
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -117,7 +109,15 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,19 +134,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-11-ranked-audio-recorders-of-the-year/"><u>[New] 2024 Approved 11 Ranked Audio Recorders of the Year</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-gameplay-recording-must-haves/"><u>[New] 2024 Approved Gameplay Recording Must-Haves</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-desktopmobile-techniques-for-sound-rate-manipulation-in-youtube/"><u>[New] Desktop/Mobile Techniques for Sound Rate Manipulation in YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid/"><u>[Updated] 10 Best Mobile Edits YouTube Shorts Clips on iOS/Android</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-7-epic-strategy-battles-unveiling-ultimate-total-wars/"><u>[Updated] 2024 Approved Top 7 Epic Strategy Battles Unveiling Ultimate Total Wars</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-best-action-hats-motorcycle-cameras-reviewed-and-ranked/"><u>[Updated] The Best Action Hats Motorcycle Cameras Reviewed and Ranked</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-from-conference-room-to-youtube-google-meet-broadcasting/"><u>2024 Approved From Conference Room to Youtube Google Meet Broadcasting</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-xiaomi-redmi-13c-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Xiaomi Redmi 13C to Another | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-in-depth-guide-to-game-capturing-roblox-and-mac-integration/"><u>In 2024, In-Depth Guide to Game Capturing Roblox & Mac Integration</u></a></li>
-<li><a href="https://driver-install.techidaily.com/install-canon-mx870-support-across-pre-win11-oss/"><u>Install Canon MX870 Support Across Pre-Win11 OSs</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/learning-luminaries-leading-ed-tutorials-online/"><u>Learning Luminaries Leading Ed Tutorials Online</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-media-with-top-5-photo-and-video-apps-on-iosandroid-devices/"><u>Mastering Media with Top 5 Photo & Video Apps on iOS/Android Devices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/skyrocketing-channels-essential-narrative-methods/"><u>Skyrocketing Channels Essential Narrative Methods</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-perfect-end-youtube-outro-essentials-and-top-creators/"><u>The Perfect End YouTube Outro Essentials & Top Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-the-art-of-video-enhancement-from-sdr-basics-to-hdr-excellence/"><u>[New] 2024 Approved Mastering the Art of Video Enhancement From SDR Basics to HDR Excellence</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-craft-cinematic-magic-learn-green-screen-wonders-with-youtube/"><u>[Updated] 2024 Approved Craft Cinematic Magic Learn Green Screen Wonders with YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-closing-with-panache-free-youtubes-1-six/"><u>2024 Approved Closing with Panache Free YouTube's #1 Six</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/evaluating-mr-beasts-monetary-world/"><u>Evaluating Mr. Beast's Monetary World</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-nubia-flip-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock ZTE Nubia Flip 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-game-with-immediate-skilled-valorant-thumbnails/"><u>In 2024, Elevate Your Game with Immediate, Skilled Valorant Thumbnails</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-voice-recorder-mac-5-best-voice-recorders-for-mac-devices/"><u>In 2024, Voice Recorder Mac - 5 Best Voice Recorders for Mac Devices</u></a></li>
+<li><a href="https://solve-help.techidaily.com/quick-solutions-resolve-system-image-not-found-in-windows-effortlessly/"><u>Quick Solutions: Resolve 'System Image Not Found' In Windows Effortlessly</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-picks-downloading-templates-from-youtube-vids/"><u>Top Picks Downloading Templates From YouTube Vids</u></a></li>
 </ul></div>
 

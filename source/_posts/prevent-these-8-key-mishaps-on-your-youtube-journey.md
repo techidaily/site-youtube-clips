@@ -1,7 +1,7 @@
 ---
 title: "Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2025-01-05T19:24:48.747Z
-updated: 2025-01-10T18:30:27.668Z
+date: 2025-01-10T05:43:07.213Z
+updated: 2025-01-16T05:15:33.631Z
 tags:
   - ai video
   - ai youtube
@@ -30,10 +30,14 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -41,6 +45,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -56,19 +64,11 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -84,15 +84,15 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -105,7 +105,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -123,15 +123,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-10-online-tools-to-retrieve-youtube-graphics/"><u>[New] 10 Online Tools to Retrieve YouTube Graphics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-free-and-easy-building-attractive-youtube-intros-without-expense/"><u>[New] 2024 Approved Free & Easy Building Attractive YouTube Intros without Expense</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/onstruct-a-careerscape-on-camera-by-critiquing-closets/"><u>[New] Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-handhinas-and-lenses-for-journey-shots/"><u>[New] Handhinas and Lenses for Journey Shots</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-diverse-video-realms-sites-outshining-youtube/"><u>[Updated] Diverse Video Realms Sites Outshining Youtube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-superior-earners-on-social-media-platform/"><u>[Updated] Superior Earners on Social Media Platform</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-skin-care-secrets-unveiled/"><u>2024 Approved Skin Care Secrets Unveiled</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/fast-track-to-typing-get-your-windows-7-keyboard-drivers-now/"><u>Fast Track to Typing: Get Your Windows 7 Keyboard Drivers Now!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/reel-to-perfection-selecting-the-best-video-editor-for-android/"><u>Reel to Perfection Selecting the Best Video Editor for Android</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-8-online-learning-paths-for-newcomers-to-video/"><u>Top 8 Online Learning Paths for Newcomers to Video</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-eye-on-video-the-premier-cameras-excellence/"><u>[New] In 2024, Eye on Video The Premier Cameras Excellence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-channel-with-these-top-11-budget-friendly-tools/"><u>[Updated] 2024 Approved Elevate Your Channel with These Top 11 Budget-Friendly Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-a-course-to-riches-youtubes-monetary-milestones/"><u>[Updated] Charting a Course to Riches YouTube's Monetary Milestones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-leading-presentation-to-film-tools/"><u>[Updated] Leading Presentation-to-Film Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-video-narratives-for-youtube-success/"><u>2024 Approved Crafting Captivating Video Narratives for YouTube Success</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-online-converter-convert-m1v-files-to-avi-format-using-movavi/"><u>Free Online Converter - Convert M1V Files to AVI Format Using Movavi</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guide-to-clearing-audacitys-sound-device-glitches-windows-11/"><u>Guide to Clearing Audacity's Sound Device Glitches Windows 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-remove-image-background-in-photopea-for-2024/"><u>How to Remove Image Background In Photopea for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-chuckle-chronicles-top-youtube-humorists-masterpieces/"><u>In 2024, Chuckle Chronicles Top YouTube Humorists' Masterpieces</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/symphony-of-streams-efficiently-uploading-melodies/"><u>Symphony of Streams Efficiently Uploading Melodies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-canon-editing-kit-freepay-for-luts-included/"><u>Ultimate Canon Editing Kit - Free/Pay for LUTs Included</u></a></li>
 </ul></div>
 

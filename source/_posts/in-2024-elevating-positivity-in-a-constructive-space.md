@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-01-09T18:14:19.427Z
-updated: 2025-01-10T19:08:42.507Z
+date: 2025-01-09T01:37:57.060Z
+updated: 2025-01-16T03:09:00.023Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/5307ccfc777a39b3d6969599149826d5178dfcbdd
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,24 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-bring-footage-together-ken-burns-technique-for-camtasa-users/"><u>[New] 2024 Approved Bring Footage Together Ken Burns Technique for Camtasa Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-beyond-likes-understanding-youtubes-true-view-metrics/"><u>[New] Beyond Likes Understanding YouTube’s True View Metrics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-breaking-the-internet-hashtag-wisdom-for-short-films/"><u>[New] Breaking the Internet Hashtag Wisdom for Short Films</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-download-youtube-videos-anywhere-anytime-free-android-tips/"><u>[New] Download YouTube Videos Anywhere, Anytime Free Android Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters/"><u>[New] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-tips-for-flv-file-fusion-on-youtube/"><u>[New] Essential Tips for FLV File Fusion on YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-pinnacle-color-balance-pro/"><u>[New] In 2024, Pinnacle Color Balance Pro</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-iconic-inning-cameo-examination/"><u>[Updated] 2024 Approved Iconic Inning - Cameo Examination</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-amass-higher-views-with-powerful-youtube-tags/"><u>[Updated] Amass Higher Views with #Powerful YouTube Tags</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-box-it-up-right-10-online-haunts-for-tailored-gift-boxes/"><u>[Updated] Box It Up Right 10 Online Haunts for Tailored Gift Boxes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-decoding-youtubes-operations-following-uploads-for-2024/"><u>[Updated] Decoding YouTube’s Operations Following Uploads for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-grasping-the-basics-of-av1-compression/"><u>[Updated] Grasping the Basics of AV1 Compression</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-high-fidelity-mobile-sound-selector/"><u>[Updated] High Fidelity Mobile Sound Selector</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-optimizing-screencapture-techniques-for-maximum-results/"><u>[Updated] In 2024, Optimizing ScreenCapture Techniques for Maximum Results</u></a></li>
-<li><a href="https://discover-community.techidaily.com/1-retrieving-damaged-scanning-files-a-comprehensive-guide-by-yl-computing/"><u>1. Retrieving Damaged Scanning Files: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/customizing-windows-11-taskbar-color-expert-strategies-and-techniques/"><u>Customizing Windows 11 Taskbar Color: Expert Strategies and Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-elite-makeup-vloggers-shaping-2024s-beauty-scene/"><u>The Elite Makeup Vloggers Shaping 2024'S Beauty Scene</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-financial-scale-one-million-youtube-viewers-pay/"><u>The Financial Scale One Million YouTube Viewers' Pay</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[New] Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-summit-elite-production-space-25/"><u>[New] Summit Elite Production Space 25</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enhancing-content-quality-with-advanced-video-editing/"><u>[Updated] Enhancing Content Quality with Advanced Video Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-guide-to-managing-fast-forward-functions/"><u>[Updated] In 2024, The Ultimate Guide to Managing Fast Forward Functions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-customize-your-youtube-view-adjust-speed-settings/"><u>2024 Approved Customize Your YouTube View Adjust Speed Settings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videography-7-free-sound-effects-collection/"><u>2024 Approved Elevate Your Videography - 7 Free Sound Effects Collection</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-deeper-dive-into-youtube-seo-and-keywords-for-2024/"><u>A Deeper Dive Into YouTube SEO and Keywords for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accelerate-yt-growth-strategies-for-1kplus-subscribers/"><u>Accelerate YT Growth Strategies for 1K+ Subscribers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-gamers-showcase-premium-setups-unveiled/"><u>Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/importing-audio-steps-for-inshot-video-editing-for-2024/"><u>Importing Audio Steps for InShot Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-bend-the-light-homegrown-animated-innovations/"><u>In 2024, Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-vivo-y78plus-t1-edition-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Vivo Y78+ (T1) Edition to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-nokia-c300-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Nokia C300 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/ultimate-guide-to-mastering-linux-skills-through-elite-foundation-courses-and-intensive-bootcamps/"><u>Ultimate Guide to Mastering Linux Skills Through Elite Foundation Courses & Intensive Bootcamps</u></a></li>
 </ul></div>
 

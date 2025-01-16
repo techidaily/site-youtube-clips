@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2025-01-06T19:35:28.434Z
-updated: 2025-01-10T18:53:49.621Z
+date: 2025-01-12T23:13:27.453Z
+updated: 2025-01-15T17:05:32.030Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,7 +54,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -67,7 +63,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -77,7 +73,15 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -89,18 +93,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -140,6 +136,10 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -155,18 +155,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-engaging-youtube-thumbnails-a-step-by-step-guide/"><u>[New] 2024 Approved Crafting Engaging YouTube Thumbnails A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-quick-guide-sharing-multiple-images-and-movies-on-instagram/"><u>[New] 2024 Approved Quick Guide Sharing Multiple Images & Movies on Instagram</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-quadcopters-unveiled-their-intricate-workings-revealed/"><u>[New] Quadcopters Unveiled Their Intricate Workings Revealed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-10-unique-video-reaction-strategies-for-online-enthusiasts/"><u>[Updated] 10 Unique Video Reaction Strategies for Online Enthusiasts</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-basic-to-advanced-your-guide-to-system-advancements/"><u>[Updated] From Basic to Advanced Your Guide to System Advancements</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-strategic-media-mapping-charting-your-course-against-competitors-videos/"><u>[Updated] Strategic Media Mapping Charting Your Course Against Competitors' Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/conversion-sin-coste-entre-archivos-gif-y-png-con-herramienta-online-gratuita/"><u>Conversión Sin Coste Entre Archivos GIF Y PNG Con Herramienta Online Gratuita</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/discovering-the-upgrades-in-apples-latest-airpods-series-a-comparison-of-new-models/"><u>Discovering the Upgrades in Apple's Latest AirPods Series - A Comparison of New Models</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-oppo-a2-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Oppo A2</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/gaming-channel-evolution-best-14-video-ideas-on-youtube/"><u>Gaming Channel Evolution Best 14 Video Ideas on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-10-youtube-storytelling-techniques-that-work/"><u>In 2024, 10 YouTube Storytelling Techniques That Work</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-beginners-guide-capturing-youtube-videos-as-screencasts-without-payment/"><u>In 2024, Beginner's Guide Capturing YouTube Videos as Screencasts Without Payment</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-streamlined-language-translation-best-online-subtitle-manipulators/"><u>In 2024, Streamlined Language Translation – Best Online Subtitle Manipulators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tailor-made-melodies-assembling-your-own-youtube-playlist/"><u>[New] Tailor-Made Melodies Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>In 2024, 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-apple-iphone-6s-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On Apple iPhone 6s? 5 Tips You Must Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-multitasking-sync-many-yt-videos-simultaneously/"><u>Mastering Multitasking Sync Many YT Videos Simultaneously</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-rated-mp4-editor-for-windows-8-professional-results-made-easy-for-2024/"><u>New Top-Rated MP4 Editor for Windows 8 Professional Results Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/personalizing-public-vs-private-settings-on-youtube/"><u>Personalizing Public vs Private Settings on YouTube</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/speak-simply-top-10-software-solutions-to-streamline-your-voice-recordings-for-2024/"><u>Speak Simply Top 10 Software Solutions to Streamline Your Voice Recordings for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgraded-drivers-for-your-hp-officejet-pro-8620-in-windows-os/"><u>Upgraded Drivers for Your HP OfficeJet Pro 8620 in Windows OS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
 </ul></div>
 

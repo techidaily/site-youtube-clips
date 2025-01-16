@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Fix for Broken Headphone Connection in Windows 10 Devices
-date: 2025-01-04T17:07:05.284Z
-updated: 2025-01-10T18:17:31.922Z
+date: 2025-01-13T10:41:46.362Z
+updated: 2025-01-16T06:16:24.940Z
 tags:
   - win11
   - win10
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 
  Here are three simple fixes you can try. You don’t necessarily have to try them all. Just start at the top of the list and work your way down.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fix No Sound Issue on Windows 10
 
 1. [**Check cables and volumes**](https://tools.techidaily.com/drivereasy/download/)
@@ -29,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 4. **[Update your audio driver](https://tools.techidaily.com/drivereasy/download/)**
 5. [**Disable audio enhancements**](https://tools.techidaily.com/drivereasy/download/)
 6. [**Restart audio services**](https://tools.techidaily.com/drivereasy/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1: Check cable and volumes
 
@@ -46,15 +46,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 ![](https://images.drivereasy.com/wp-content/uploads/2016/04/img_570b4f3700616.png)
 2. In the**Playback** tab, ensure there’s a green tick on**Speakers** . This indicates that your speakers are the default playback device.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Default speaker ticked Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Default-speaker-ticked-Windows10.png)  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If your Speakers are NOT already set as the default, this is doubtless your problem. To fix, just click them, click**Set Default** , then click **OK** and test whether you have sound.  
 ![Set default speakers Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Set-default-speakers-Windows-10.png)  
@@ -66,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 ![Test speaker sound format Windows 10](https://images.drivereasy.com/wp-content/uploads/2016/04/Test-speaker-sound-format-Windows-10.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 3: Uninstall your audio driver
@@ -81,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 3. In Device Manager, expand**Sound, video and game controllers** , right-click on your sound card, and click **Uninstall** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/05/img_57355165cc4c9.png)
@@ -91,11 +83,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 5. Restart your computer and check to see if the problem is resolved. If it’s not, move on to[Method 3](https://tools.techidaily.com/drivereasy/download/) below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 4: Update your audio driver
@@ -113,10 +101,18 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 ![](https://images.drivereasy.com/wp-content/uploads/2017/06/img_5949d2f95d64f.png)
 3. Click the **Update** button next to a flagged audio driver to automatically download and install the correct version of this driver (you can do this with the FREE version of Driver Easy).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2017/06/img_5949d31484e2f.jpg)  
  Or click **Update All**  to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **Pro** version which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)
 
 4. Restart your computer and check to see if you now have sound.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 5: Disable audio enhancements
 
@@ -130,15 +126,15 @@ To do so, follow these steps:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-272.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  3) Select one**Default Device** and select**Properties** .
 
 In the example below, the default device is Speakers / Headphones.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/06/image-275.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  4) On the**Enhancements** tab,**select** the**Disable all enhancements** check box. Then click**OK** .
 
@@ -147,6 +143,10 @@ In the example below, the default device is Speakers / Headphones.
 5) Check to see if the sound issue is resolved.
 
 **Note** if you have multiple default devices, you may need to repeat the steps above for each default device until the sound issue is resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 6: Restart audio services
 
@@ -184,18 +184,17 @@ Follow these steps to restart audio services.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-photobooth-frustration-unfreezing-video-playback/"><u>[New] Photobooth Frustration Unfreezing Video Playback</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-drafting-dynamic-denouements/"><u>[Updated] Drafting Dynamic Denouements</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-revolutionizing-video-praise-with-innovative-approaches/"><u>[Updated] Revolutionizing Video Praise with Innovative Approaches</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterclass-choosing-the-pinnacle-in-hdr-cameras/"><u>2024 Approved Masterclass Choosing the Pinnacle in HDR Cameras</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/9-best-phone-monitoring-apps-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>9 Best Phone Monitoring Apps for Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-branding-made-simple-and-free/"><u>Channel Branding Made Simple & Free</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/1716464747861-channel-name-wizardry-brainstorm-and-create/"><u>Channel Name Wizardry Brainstorm & Create!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigate-youtubes-studio-editor-to-master-videography/"><u>Navigate YouTube's Studio Editor to Master Videography</u></a></li>
-<li><a href="https://games-able.techidaily.com/platform-exclusive-games-might-be-a-thing-of-the-past-heres-why-thats-good/"><u>Platform-Exclusive Games Might Be a Thing of The Past: Here's Why That's Good</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/understanding-system-backups-a-comprehensive-guide-to-protecting-your-windows-operating-system/"><u>Understanding System Backups: A Comprehensive Guide to Protecting Your Windows Operating System</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/update-drivers-brother-mfc-j480dw-printer-support-for-microsoft-windows/"><u>Update Drivers: Brother MFC-J480DW Printer Support for Microsoft Windows</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/windows-11-audio-tweaks-removing-sound-enhancement-options-easily/"><u>Windows 11 Audio Tweaks: Removing Sound Enhancement Options Easily</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/your-ultimate-guide-to-downloading-youtube-on-ios/"><u>Your Ultimate Guide to Downloading YouTube on iOS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-top-6-methods-for-capturing-your-netflix-viewing-experience-on-mac/"><u>[Updated] 2024 Approved Top 6 Methods for Capturing Your Netflix Viewing Experience on Mac</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[Updated] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-crafting-the-perfect-sonic-storytelling-on-social-media/"><u>[Updated] Crafting the Perfect Sonic Storytelling on Social Media</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-templates-unlocking-your-videos-potential/"><u>[Updated] Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-free-services-for-designing-impactful-youtube-intros/"><u>[Updated] Essential Free Services for Designing Impactful YouTube Intros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-anatomy-of-apple-m1-chip-redefining-tech/"><u>2024 Approved The Anatomy of Apple M1 Chip, Redefining Tech</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-oneplus-nord-n30-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from OnePlus Nord N30 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-hal-initialization-failed-issues-on-windows-11-step-by-step-tutorial/"><u>Fixing 'HAL Initialization Failed' Issues on Windows 11 - Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/free-online-tools-for-youtube-channel-starters/"><u>Free Online Tools for YouTube Channel Starters</u></a></li>
+<li><a href="https://article-files.techidaily.com/free-range-creativity-with-premium-ae-samples/"><u>Free-Range Creativity with Premium AE Samples</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/step-by-step-guide-to-fixing-non-responsive-peripherals-in-windows-expert-tips-by-yl-software/"><u>Step-by-Step Guide to Fixing Non-Responsive Peripherals in Windows - Expert Tips by YL Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-razer-barracuda-x-mic-problems-in-windows-operating-systems/"><u>Troubleshooting Guide: Resolving Razer Barracuda X Mic Problems in Windows Operating Systems</u></a></li>
 </ul></div>
 

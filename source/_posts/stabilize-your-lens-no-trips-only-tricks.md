@@ -1,7 +1,7 @@
 ---
 title: "\"Stabilize Your Lens  No Trips, Only Tricks\""
-date: 2025-01-06T18:45:17.546Z
-updated: 2025-01-10T16:55:41.009Z
+date: 2025-01-11T02:44:32.193Z
+updated: 2025-01-16T00:17:31.875Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -37,6 +37,10 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
@@ -59,12 +63,16 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -83,10 +91,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -96,7 +100,7 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -121,10 +125,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -140,18 +140,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/op-8-software-linux-friendly-editing-tools-for-2024/"><u>[New] Top 8 Software Linux-Friendly Editing Tools for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-transform-speech-into-text-the-accurate-google-method/"><u>[Updated] Transform Speech Into Text The Accurate Google Method</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-recommended-videos-block-the-videos/"><u>[Updated] YouTube Recommended Videos - Block the Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-quantum-hdr-imaging/"><u>2024 Approved Navigating the World of Quantum HDR Imaging</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-chilly-ambiance-ideal-winter-bgs-for-videos/"><u>In 2024, Chilly Ambiance Ideal Winter BGs for Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-commercial-ventures-enhanced-by-virtual-engineering/"><u>In 2024, Commercial Ventures Enhanced by Virtual Engineering</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-youtube-channel-aesthetics-essential-size-and-dimension-tips/"><u>Mastering YouTube Channel Aesthetics Essential Size and Dimension Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/no-cost-enjoyable-9-festive-feasts-in-one-wholesome-film-series/"><u>No Cost, Enjoyable 9 Festive Feasts in One Wholesome Film Series</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/orchestrating-a-journey-through-hidden-youtube-archives/"><u>Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/retail-insights-expose-potential-quadruple-return-rates-for-intel-core-i7-13700k-and-i5-cores-vs-last-gen-whats-the-impact/"><u>Retail Insights Expose Potential Quadruple Return Rates for Intel Core I7-13700K & I5 Cores vs Last Gen – What's the Impact?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/rooting-in-cities-cultivating-urban-biodiversity/"><u>Rooting in Cities Cultivating Urban Biodiversity</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-fixing-ksuserdll-not-detected-error-for-smooth-operations/"><u>The Definitive Guide to Fixing 'ksuser.dll' Not Detected Error for Smooth Operations</u></a></li>
-<li><a href="https://win-forum.techidaily.com/ultimate-guide-securing-your-windows-pc-with-easy-to-follow-methods/"><u>Ultimate Guide: Securing Your Windows PC with Easy-to-Follow Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-camera-operational-obs-challenge-won-for-2024/"><u>[New] Camera Operational OBS Challenge Won for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dissecting-video-ranking-algorithms-on-youtube/"><u>[New] Dissecting Video Ranking Algorithms on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-8-trending-youtube-videos/"><u>[New] In 2024, Top 8 Trending YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>[Updated] In 2024, Access All Subtitles Top 10 Free Tools for YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-top-10-capture-cards-for-youtube/"><u>[Updated] In 2024, The Top 10 Capture Cards for YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-heavy-lift-drones-you-should-know/"><u>[Updated] In 2024, Top 10 Heavy Lift Drones You Should Know</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-budgets-with-effective-youtube-marketing/"><u>2024 Approved Boosting Budgets with Effective YouTube Marketing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-youtuber-revolutionary-jake-pauls-content-conquest/"><u>2024 Approved The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722979006874-a-clear-and-concise-description-of-the-customers-problem-along-with-any-troubleshooting-steps-already-taken/"><u>A Clear and Concise Description of the Customer's Problem Along with Any Troubleshooting Steps Already Taken</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charting-your-course-in-the-realm-of-youtube-shorts-for-2024/"><u>Charting Your Course in the Realm of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps-for-2024/"><u>Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-avoid-unwanted-interrucier-top-7-selective-android-adblockers-reviewed/"><u>In 2024, Avoid Unwanted Interrucier Top 7 Selective Android AdBlockers Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>In 2024, Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-13-pro-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 13 Pro Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-fixes-for-f1-202n-game-crash-issues-on-windows-pc/"><u>Resolved: Fixes for F1 202N Game Crash Issues on Windows PC</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tips-for-superior-sound-recordings-without-a-microphone/"><u>Tips for Superior Sound Recordings Without a Microphone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Boost Views with Your Own YouTube Thumbnail Design"
-date: 2025-01-05T16:20:27.421Z
-updated: 2025-01-10T18:48:31.904Z
+date: 2025-01-10T08:23:57.361Z
+updated: 2025-01-16T07:17:44.040Z
 tags:
   - ai video
   - ai youtube
@@ -35,15 +35,15 @@ YouTube custom thumbnails are a great way to get people's attention to your YouT
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Add Custom Thumbnails to Your YouTube Videos \[Steps, Tools and Tips\]
 
 We have just made a video tutorial about how to make a YouTube video thumbnail, check it below to find out the tips and tricks of making customized YouTube thumbnail.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
@@ -54,10 +54,6 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 1\. **Preview the video and choose the target video still.** You can click the Playback button and check the video and pause it at the desired frame. Or, you can step through each frame by clicking the Preview Frame button and Next Frame icon. Click Next to continue.
 
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
@@ -74,7 +70,7 @@ Of course, you can use some of the best tools to make a YouTube video thumbnail.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 1\.   **Create YouTube Thumbnail with Online solution - Canva**
@@ -101,10 +97,6 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
@@ -114,11 +106,11 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -135,6 +127,10 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
@@ -148,10 +144,6 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
 ![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -168,7 +160,7 @@ Sometimes big channels can get away with stuff like this, because large portions
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
@@ -201,6 +193,10 @@ Beyond simply using colors that are different from other people’s colors, you 
 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
 #### 6. Make Your Text Huge
@@ -229,6 +225,10 @@ When you get more people watching your video for longer, it increases your watch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -244,22 +244,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-tutorial-for-transforming-profile-photographs-on-social-networks-for-2024/"><u>[Updated] Step-by-Step Tutorial for Transforming Profile Photographs on Social Networks for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-revenue-from-a-million-watches-on-youtube/"><u>2024 Approved Decoding Revenue From A Million Watches on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/amplify-your-video-content-with-precision-insights-from-social-blade-and-youtube/"><u>Amplify Your Video Content with Precision Insights From Social Blade & YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722582967555-compact-criacr-bluetooth-fm-transmitter-cp2n-in-depth-review-and-analysis/"><u>Compact Criacr Bluetooth FM Transmitter (CP2n) - In-Depth Review and Analysis</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-clicks-top-tags-for-gamers-content-for-2024/"><u>Crafting Clicks Top Tags for Gamers' Content for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/decoding-youtubes-user-comment-selection-criteria/"><u>Decoding YouTube's User-Comment Selection Criteria</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-hp-officejet-pro-8610-drivers-compatible-with-windows-111087xp/"><u>Download & Install HP Officejet Pro 8610 Drivers: Compatible with Windows 11/10/8/7/XP</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/evaluating-the-top-video-streaming-apps-for-phones-for-2024/"><u>Evaluating the Top Video Streaming Apps for Phones for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Itel A70 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-captivating-viewers-youtubers-guide-to-dynamic-game-sessions/"><u>In 2024, Captivating Viewers YouTubers’ Guide to Dynamic Game Sessions</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-guide-to-identifying-recent-instagram-leavers/"><u>In 2024, Guide to Identifying Recent Instagram Leavers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>In 2024, Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
-<li><a href="https://fox-within.techidaily.com/in-depth-adata-sd-card-rescue-techniques-for-complete-data-retrieval/"><u>In-Depth ADATA SD Card Rescue Techniques for Complete Data Retrieval</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/scrutinizing-the-legalities-of-youtube-versus-creative-commons/"><u>Scrutinizing the Legalities of Youtube Versus Creative Commons</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/shrink-it-down-youtubes-video-trimming-process/"><u>Shrink It Down YouTube's Video Trimming Process</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/why-users-are-giving-back-the-7-main-grounds-for-returning-apples-vision-pro-as-revealed-by-reddit-coverage/"><u>Why Users Are Giving Back: The 7 Main Grounds for Returning Apple's Vision Pro, as Revealed by Reddit Coverage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-visibility-with-youtube-branding-techniques/"><u>[New] Elevate Your Visibility with YouTube Branding Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-from-components-to-creativity-designing-your-own-4k-editor-pc/"><u>[Updated] 2024 Approved From Components to Creativity Designing Your Own 4K Editor PC</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-vlc-capture-tool-assessment/"><u>[Updated] 2024 Approved VLC Capture Tool Assessment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>2024 Approved Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-detailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>In 2024, Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-essential-software-for-windows-filmmakers-critical-edits-selection/"><u>In 2024, Essential Software for Windows Filmmakers Critical Edits Selection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-professional-visual-enhancements-mastering-the-use-of-luts-in-ae/"><u>In 2024, Professional Visual Enhancements Mastering the Use of LUTs in AE</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-m14-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy M14 5G</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-top-rated-avi-file-combiners-join-videos-without-cost/"><u>In 2024, Top-Rated AVI File Combiners Join Videos Without Cost</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/inviting-support-without-coercion-listeners-guide/"><u>Inviting Support Without Coercion Listener's Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/lunar-luster-online-a-curated-list-of-hdr-sky-images-for-2024/"><u>Lunar Luster Online A Curated List of HDR Sky Images for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/procure-no-cost-media-content-from-prime-4-youtube-vids/"><u>Procure No-Cost Media Content From Prime 4 YouTube Vids</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-adverts-recent-changes-and-compliance/"><u>YouTube Adverts Recent Changes and Compliance</u></a></li>
 </ul></div>
 

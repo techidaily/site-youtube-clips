@@ -1,7 +1,7 @@
 ---
 title: "Seeking Outstanding User Contributions"
-date: 2025-01-04T16:38:27.590Z
-updated: 2025-01-10T16:37:42.608Z
+date: 2025-01-08T23:19:43.827Z
+updated: 2025-01-15T23:08:34.649Z
 tags:
   - ai video
   - ai youtube
@@ -54,10 +54,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -69,11 +65,11 @@ YouTube labels comment replies as well and call it "Highlighted Reply." You can 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -84,10 +80,6 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
@@ -95,6 +87,10 @@ The ways to acquire the URL or link for a highlighted comment are different for 
 Suppose you are a viewer who is going through the comments section of a video. If you want to get the highlighted URL for the comment, simply click on the timestamp (e.g., 2 weeks ago) beside the commentator's username.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
@@ -107,7 +103,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -123,6 +119,10 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -169,16 +169,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/13-herramientas-de-presentacion-innovadoras-como-alternativa-a-prezi-para-2024/"><u>13 Herramientas De Presentación Innovadoras Como Alternativa a Prezi Para 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-magic-6-lite-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor Magic 6 Lite without App | Dr.fone</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/concealing-files-on-your-pc-a-step-by-step-guide-for-windows-11-users/"><u>Concealing Files on Your PC: A Step-by-Step Guide for Windows 11 Users</u></a></li>
-<li><a href="https://win-guides.techidaily.com/how-to-speed-up-pc-launch-expert-tips-by-yl-software-team/"><u>How to Speed Up PC Launch - Expert Tips by YL Software Team</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>In 2024, Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prime-video-entries-the-best-16-to-maximize-viewership/"><u>Prime Video Entries The Best 16 to Maximize Viewership</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/syncing-your-youtube-watchlist-with-instagram-feed/"><u>Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
-<li><a href="https://windows11.techidaily.com/window-wizardry-redesigning-cursor-sets/"><u>Window Wizardry: Redesigning Cursor Sets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/be-live-excellence-a-comprehensive-tutorial-for-2024/"><u>YouTube Live Excellence A Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-snippets-guide-essential-insights-unveiled/"><u>YouTube Snippets Guide Essential Insights Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-decoding-the-mystery-of-youtube-shorts/"><u>[New] Decoding the Mystery of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-diy-tips-for-instant-custom-youtube-shorts-coverage/"><u>[New] DIY Tips for Instant Custom YouTube Shorts Coverage</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-enlightening-your-youtube-footage-with-proper-lighting/"><u>[New] Enlightening Your YouTube Footage with Proper Lighting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nvesting-wisely-in-subscribers-get-more-for-less-for-2024/"><u>[New] Investing Wisely in Subscribers Get More for Less for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube/"><u>[Updated] Enjoy a Stream of Nine Complete Christmas Capsules on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-gopro-expertise-unleashed-livestreams-directed-at-periscope-and-facebook/"><u>[Updated] Gopro Expertise Unleashed Livestreams Directed at Periscope & Facebook</u></a></li>
+<li><a href="https://fox-making.techidaily.com/accelerating-your-online-presence-strategies-for-superior-website-response-times/"><u>Accelerating Your Online Presence: Strategies for Superior Website Response Times</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-garmin-forerunner-745-the-ultimate-multisport-gps-watch/"><u>Comprehensive Evaluation of the Garmin Forerunner 745: The Ultimate Multisport GPS Watch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>In 2024, An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/master-the-art-of-cryptocurrency-mining-setup-and-optimization-techniques-using-yl-software/"><u>Master the Art of Cryptocurrency Mining: Setup & Optimization Techniques Using YL Software</u></a></li>
+<li><a href="https://windows11.techidaily.com/solutions-to-microsoft-error-code-x00000000/"><u>Solutions to Microsoft Error Code X00000000</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-an-ai-artist-for-2024/"><u>Updated What Is an AI Artist for 2024</u></a></li>
 </ul></div>
 

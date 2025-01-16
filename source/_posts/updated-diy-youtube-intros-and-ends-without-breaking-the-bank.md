@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2025-01-04T19:43:05.824Z
-updated: 2025-01-10T18:16:16.422Z
+date: 2025-01-14T11:50:54.670Z
+updated: 2025-01-16T02:44:24.295Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,14 +143,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-10-best-youtube-conversion-tools-for-webm-format/"><u>[Updated] 10 Best YouTube Conversion Tools for WebM Format</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevating-your-channel-maximizing-adsense-on-youtube/"><u>[Updated] Elevating Your Channel Maximizing AdSense on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/empower-everyday-narratives-free-extensions-and-mobile-magic/"><u>Empower Everyday Narratives – Free Extensions & Mobile Magic</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/free-software-for-sound-changes-amplify-and-elevate-your-vocal-impact/"><u>Free Software For Sound Changes - Amplify and Elevate Your Vocal Impact</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-make-a-recovery-drive-saving-your-system-from-catastrophic-failures/"><u>How to Make a Recovery Drive: Saving Your System From Catastrophic Failures</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac/"><u>In 2024, Digital Recorder Snap Your Screen, Upload to YouTube Online/PC/Mac</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-tecno-pova-6-pro-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Tecno Pova 6 Pro 5G FRP</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-final-line-unavailable-issue-on-your-iphone-a-comprehensive-guide/"><u>Resolving 'Final Line Unavailable' Issue on Your iPhone: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/utilizing-royalty-free-beats-in-your-youtube-clips/"><u>Utilizing Royalty-Free Beats in Your YouTube Clips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-9-powerful-methods-to-make-money-on-your-youtube-shorts/"><u>2024 Approved 9 Powerful Methods to Make Money on Your YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discovering-your-curated-collection-of-tunes-in-youtubes-depths/"><u>2024 Approved Discovering Your Curated Collection of Tunes in YouTube's Depths</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-filmmaker-tips-youtube-trailers-using-filmora/"><u>2024 Approved Filmmaker Tips YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-making-a-channels-story-visible-in-snippets/"><u>2024 Approved Making a Channel's Story Visible in Snippets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-hidden-layer-capturing-chats-as-fb-media-files/"><u>2024 Approved The Hidden Layer Capturing Chats as FB Media Files</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/isomp4avimkv/"><u>最適のフリーソフトで安心移行：圧縮せずに完全なISO画像をMP4・AVI・MKV形式へ変換する方法</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-step-by-step-guide-through-youtubes-aspect-ratio-landscapes/"><u>A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-lengthy-video-to-captivating-animation-create-gifs-with-ease/"><u>From Lengthy Video to Captivating Animation - Create Gifs with Ease</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-infinix-zero-5g-2023-turbo-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Zero 5G 2023 Turbo Fingerprint Lock</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dive-deep-into-designing-dynamic-youtube-live-thumbnails/"><u>In 2024, Dive Deep Into Designing Dynamic YouTube Live Thumbnails</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p40plus-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Itel P40+ Phone Without Password?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/remove-a-background-in-affinity-photo-for-2024/"><u>Remove a Background in Affinity Photo for 2024</u></a></li>
 </ul></div>
 
