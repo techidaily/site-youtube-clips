@@ -1,7 +1,7 @@
 ---
 title: "\"The Crème De La Créativité  YouTube Subscriber List\""
-date: 2025-01-15T08:06:06.654Z
-updated: 2025-01-16T11:20:09.367Z
+date: 2025-01-19T16:33:55.658Z
+updated: 2025-01-22T16:59:07.445Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Fernanfloo](#fern)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  PewDiePie
@@ -74,12 +74,16 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  4\.  Smosh
@@ -96,6 +100,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -105,22 +113,14 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,17 +137,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-spatial-symphony-with-mac-recording/"><u>[New] In 2024, Spatial Symphony with Mac Recording</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-efficient-practices-for-ps3-video-capture-setup/"><u>[Updated] Efficient Practices for PS3 Video Capture Setup</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-platform-power-play-obs-versus-twitch-studio/"><u>[Updated] In 2024, Platform Power Play OBS Versus Twitch Studio</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-iphone-video-mastery-from-fast-to-extremely-slow-motion-content/"><u>[Updated] IPhone Video Mastery From Fast to Extremely Slow Motion Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-picsart-app-complete-review-and-guide-2024/"><u>[Updated] PicsArt App Complete Review and Guide 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-out-your-audience-youtubes-blueprint/"><u>2024 Approved Charting Out Your Audience YouTube's Blueprint</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/educational-history-vlogs-the-ultimate-list/"><u>Educational History Vlogs - The Ultimate List</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-photos-with-these-top-11-tutorials/"><u>Elevate Your Photos with These Top 11 Tutorials</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-se-2020ipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone SE (2020)/iPad Without Computer</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/imagemorph-magic/"><u>ImageMorph Magic</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-boosting-visibility-the-art-of-crafting-youtube-channel-backlinks/"><u>In 2024, Boosting Visibility The Art of Crafting YouTube Channel Backlinks</u></a></li>
-<li><a href="https://discover-help.techidaily.com/top-rated-dvd-to-avi-converter-software-of-2024-for-windows-11-users/"><u>Top Rated DVD to AVI Converter Software of 2024 for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-accolades-across-platforms-for-video-creators/"><u>[New] Accolades Across Platforms for Video Creators</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-next-gen-clarity-leading-ps5-compatible-hdmi-21-displays-for-2024/"><u>[New] Next Gen Clarity Leading PS5 Compatible HDMI 2.1 Displays for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-3-steps-for-perfect-instagram-video-margins-for-2024/"><u>[Updated] 3 Steps for Perfect Instagram Video Margins for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-compact-powerful-windows-11-camcorders-a-must-try-list/"><u>[Updated] Compact, Powerful Windows 11 Camcorders - A Must-Try List</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-prime-selector-20-twitters-animated-treasure-chest/"><u>2024 Approved Prime Selector 2.0 Twitter's Animated Treasure Chest</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-grand-introduction-all-you-need-to-know-about-the-new-samsung-phone/"><u>The Grand Introduction: All You Need to Know About the New Samsung Phone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-beginners-guide-to-making-money-on-youtubers/"><u>Your Beginner's Guide to Making Money on YouTubers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/your-own-soundtrack-awaits-step-by-step-youtube-playlist-creation-guide-webmobile/"><u>Your Own Soundtrack Awaits Step-by-Step YouTube Playlist Creation Guide (Web/Mobile)</u></a></li>
 </ul></div>
 

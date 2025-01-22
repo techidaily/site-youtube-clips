@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dissecting the Narrative in YouTube Dialogues"
-date: 2025-01-13T20:11:44.507Z
-updated: 2025-01-15T22:20:00.055Z
+date: 2025-01-18T16:28:21.893Z
+updated: 2025-01-22T16:58:58.235Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can combine these additional filters to narrow your comments search for YouTube.
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -78,7 +74,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -108,7 +108,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -127,14 +127,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -160,6 +156,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -175,22 +175,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-the-pathway-to-stellar-visual-results-through-color-tuning/"><u>[New] 2024 Approved The Pathway to Stellar Visual Results Through Color Tuning</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-syncing-sound-with-visuals-on-facebook-essential-guide/"><u>[New] In 2024, Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-tandem-display-data-archiving/"><u>[New] In 2024, Tandem Display Data Archiving</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-all-you-need-to-know-about-the-apple-m1-max-clip/"><u>[Updated] All You Need to Know About the Apple M1 Max Clip</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-compreranzo-il-background-ottenere-video-piu-chiaro-su-youtube/"><u>[Updated] Compreranzo Il Background Ottenere Video Più Chiaro Su YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-slicephoto-inspection-for-2024/"><u>[Updated] SlicePhoto Inspection for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-content-creation-in-todays-revenue-landscape/"><u>2024 Approved Content Creation in Today’s Revenue Landscape</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/bring-back-lost-slides-in-your-ppt-file-with-simple-recovery-steps/"><u>Bring Back Lost Slides in Your PPT File with Simple Recovery Steps!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/discovering-2023s-cinematic-hidden-gems-for-2024/"><u>Discovering 2023'S Cinematic Hidden Gems for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dive-deep-into-the-world-of-creator-studio/"><u>Dive Deep Into the World of Creator Studio</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>In 2024, Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking/"><u>In 2024, Elevate Your Aspects A Beginner' Cookbook for ASMR Filmmaking</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/laughters-launchpad-7-funny-video-frameworks-for-comedians/"><u>Laughter's Launchpad 7 Funny Video Frameworks for Comedians</u></a></li>
-<li><a href="https://tools.techidaily.com/stellarinfo/repair-for-pdf/"><u>Stellar Repair for PDF</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-fix-for-touch-input-not-responsive-on-your-display-device/"><u>Step-by-Step Fix for 'Touch Input Not Responsive' On Your Display Device</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/ultimate-guide-to-easy-youtube-subtitle-and-closed-caption-addition/"><u>Ultimate Guide to Easy YouTube Subtitle and Closed Caption Addition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-economical-audience-expansion-buy-subscribers-not-time/"><u>[New] Economical Audience Expansion Buy Subscribers, Not Time</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-power-up-revenue-choose-the-best-15-facebook-insights-for-sale-boosting-for-2024/"><u>[New] Power Up Revenue Choose the Best 15 Facebook Insights for Sale Boosting for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-lightning-lanes-moving-iphone-photos-to-pc/"><u>[Updated] 2024 Approved Lightning Lanes Moving iPhone Photos to PC</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-defending-your-videos-against-youtube-copyright-strikes/"><u>2024 Approved Defending Your Videos Against YouTube Copyright Strikes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-reinstallation-steps-to-restore-photo-viewer-in-windows-10/"><u>2024 Approved Reinstallation Steps to Restore Photo Viewer in Windows 10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-ultimate-list-of-mac-screen-capture-tools/"><u>2024 Approved The Ultimate List of Mac Screen Capture Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-correcting-coredll-missing-issue-in-windows-systems/"><u>Guide to Correcting Core.Dll Missing Issue in Windows Systems</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-7-plus-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone 7 Plus?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-craft-your-channels-moniker-youtube-naming-tools-and-tips/"><u>In 2024, Craft Your Channel's Moniker YouTube Naming Tools and Tips</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>In 2024, Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-checklist-of-key-elements-in-tagging-a-video/"><u>The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
 </ul></div>
 

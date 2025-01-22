@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Animation  Dynamic, Bouncy Text Techniques\""
-date: 2025-01-12T06:32:47.136Z
-updated: 2025-01-16T05:11:33.679Z
+date: 2025-01-18T16:11:28.970Z
+updated: 2025-01-22T17:02:01.446Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
@@ -50,10 +50,6 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -61,22 +57,22 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -87,7 +83,7 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -128,6 +124,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -157,20 +157,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-blueprint-for-buzzing-outro/"><u>[New] Blueprint for Buzzing Outro</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-pro-level-playback-advanced-techniques-for-capturing-minecraft-games-on-mac/"><u>[New] Pro-Level Playback Advanced Techniques for Capturing Minecraft Games on Mac</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-crystal-clear-audio-top-10-podcast-mics/"><u>[Updated] Crystal Clear Audio Top 10 Podcast Mics</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets/"><u>[Updated] Elevate Your Shots Vlogger's Guide to the 9 Finest Camera Gadgets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-end-screen-creation-made-simple-free-templates-and-guides/"><u>[Updated] End Screen Creation Made Simple - Free Templates & Guides</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-from-novice-to-expert-free-lut-techniques-for-color-grading/"><u>[Updated] From Novice to Expert Free LUT Techniques for Color Grading</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-dive-into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>2024 Approved Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-easy-youtube-introduction-design-tips-and-tricks/"><u>2024 Approved Easy YouTube Introduction Design Tips and Tricks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-fresh-concepts-for-youtube-channels-inspiration-at-its-peak/"><u>2024 Approved Fresh Concepts for YouTube Channels Inspiration at Its Peak</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-nokia-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Nokia</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g-5g-2023-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G 5G (2023) Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-seamless-media-transition-from-youtube-to-mp3-format/"><u>In 2024, Seamless Media Transition From YouTube to MP3 Format</u></a></li>
-<li><a href="https://driver-error.techidaily.com/limited-available-resources-on-device/"><u>Limited Available Resources on Device</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/revolutionizing-channel-management-through-tubebuddy/"><u>Revolutionizing Channel Management Through TubeBuddy</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/by-step-crafting-youtube-content-in-sony-vegas/"><u>Step-by-Step Crafting YouTube Content in Sony Vegas</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unleashing-the-power-of-teamsnap-for-virtual-meetings/"><u>[New] 2024 Approved Unleashing the Power of TeamSnap for Virtual Meetings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-dish-on-titles-crafting-captivating-cookery-channel-names/"><u>[New] Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-boost-your-youtube-output-rapid-video-rendering-and-transfer/"><u>[Updated] Boost Your YouTube Output - Rapid Video Rendering and Transfer</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discovering-the-timeline-for-youtube-earnings/"><u>[Updated] Discovering the Timeline for YouTube Earnings</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pinnacle-designs-premium-no-cost-ae-toolkit/"><u>[Updated] Pinnacle Designs Premium, No-Cost AE Toolkit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-demystifying-income-flow-to-creators-within-the-short-video-model/"><u>2024 Approved Demystifying Income Flow to Creators Within the Short Video Model</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>2024 Approved Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-the-pitfalls-of-youtube-monetization-mistakes/"><u>2024 Approved Navigating the Pitfalls of YouTube Monetization Mistakes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discovering-how-youtube-runs-its-creator-workshop-for-2024/"><u>Discovering How YouTube Runs Its Creator Workshop for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/fullframe-alliance-how-to-choose-your-mcn-strategically/"><u>FullFrame Alliance How to Choose Your MCN Strategically</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-nokia-c32-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-zte-axon-40-lite-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from ZTE Axon 40 Lite to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-breaking-down-barriers-with-shared-youtube-curations/"><u>In 2024, Breaking Down Barriers with Shared YouTube Curations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-analysis-of-srt-unpacking-its-significance/"><u>In 2024, Expert Analysis of SRT Unpacking Its Significance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-realistic-facial-rendering-implementing-motion-blur-in-photo-editing-via-picsart/"><u>In 2024, Realistic Facial Rendering Implementing Motion Blur in Photo Editing via Picsart</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/learn-the-safest-ways-to-extract-and-convert-youtube-tracks-to-mp3/"><u>Learn the Safest Ways to Extract and Convert YouTube Tracks to MP3</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximizing-youtube-profits-strategies-for-revenue-growth/"><u>Maximizing YouTube Profits Strategies for Revenue Growth</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/pioneering-tech-insights-from-toms-hardware-your-ultimate-resource-for-computer-components/"><u>Pioneering Tech Insights From Tom's Hardware: Your Ultimate Resource for Computer Components</u></a></li>
 </ul></div>
 

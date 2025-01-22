@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Efficient Deletion Techniques for Online Discussions"
-date: 2025-01-11T03:22:53.712Z
-updated: 2025-01-15T19:23:12.683Z
+date: 2025-01-17T16:18:13.302Z
+updated: 2025-01-22T16:02:31.579Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -68,10 +72,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -107,14 +107,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -124,19 +116,27 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -145,7 +145,7 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -163,22 +163,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/reak-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>[New] Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-breakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>[New] Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-enhancing-television-experience-playback-tips-for-youtube-content/"><u>[New] Enhancing Television Experience Playback Tips for YouTube Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-a-comprehensive-guide-to-achieving-smooth-color-keying/"><u>[Updated] A Comprehensive Guide to Achieving Smooth Color-Keying</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-flashing-feathersticks-short-film-characters-music-for-2024/"><u>[Updated] Flashing Feathersticks Short Film Characters' Music for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>2024 Approved Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>2024 Approved Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-undersea-video-7-easy-to-follow-techniques/"><u>2024 Approved Mastering Undersea Video 7 Easy-to-Follow Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>Breaking Into the Digital Realm The WireCast Approach for YouTube Streamers</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-realme-11-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Realme 11 5G Quickly | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-12-pro-max-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 12 Pro Max for Free</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/navigating-virtual-realms-how-metas-questplus-boosted-my-bravery-in-vr-exploration/"><u>Navigating Virtual Realms: How Meta's Quest+ Boosted My Bravery in VR Exploration</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/photoshops-favorites-the-best-monitors-reviewed/"><u>Photoshop's Favorites The Best Monitors Reviewed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pro-gamers-top-5-soundtrack-devices/"><u>Pro Gamers' Top 5 Soundtrack Devices</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-aurora-hdr-experience-is-it-transformative/"><u>The Aurora HDR Experience Is It Transformative?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/your-guide-to-the-premier-10-youtube-news-channels/"><u>Your Guide to the Premier 10 YouTube News Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>[New] Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hilarity-highway-the-funniest-youtube-videos-on-twitter/"><u>[New] Hilarity Highway The Funniest YouTube Videos on Twitter</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-cash-flow-chart-launching-a-successful-podcast/"><u>[Updated] Comprehensive Cash Flow Chart Launching a Successful Podcast</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-obs-live-to-instagram-feed/"><u>[Updated] In 2024, Direct OBS Live to Instagram Feed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-the-blank-thumbnail-scenario-in-shorts-for-2024/"><u>Avoiding the Blank Thumbnail Scenario in Shorts for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cross-platform-comparison-iphone-vs-android-youtube-viewing/"><u>Cross-Platform Comparison IPhone vs Android YouTube Viewing</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/experience-the-ultimate-multipurpose-anker-maggo-magnetic-charger-station-featuring-qi-usb-c-and-6-additional-ports/"><u>Experience the Ultimate Multipurpose Anker MagGo Magnetic Charger Station: Featuring Qi, USB-C, and 6 Additional Ports</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-infinix-hot-40-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Infinix Hot 40 for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-building-a-stronger-presence-with-effective-youtube-pairings/"><u>In 2024, Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-controlling-youtubes-playback-speed-mobile-and-pc/"><u>In 2024, Controlling YouTube's Playback Speed - Mobile and PC</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premier-tactics-capturing-high-quality-sporting-live-events-for-2024/"><u>Premier Tactics Capturing High-Quality Sporting Live Events for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Samsung Galaxy S23+ | Dr.fone</u></a></li>
 </ul></div>
 

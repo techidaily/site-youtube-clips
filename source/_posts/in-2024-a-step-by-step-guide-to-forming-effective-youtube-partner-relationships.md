@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, A Step-by-Step Guide to Forming Effective YouTube Partner Relationships\""
-date: 2024-07-22T21:03:42.401Z
-updated: 2024-07-23T21:03:42.401Z
+date: 2025-01-15T16:35:04.049Z
+updated: 2025-01-22T16:18:03.193Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
 # YouTube Collaboration Guide to Find Partners and Make Collab Videos
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,14 +39,8 @@ Finding someone to collab with, approaching them, and figuring out how to actual
 
 Wondershare Filmora has all the essential features needed by a PC video editing app like creating slideshows, trimming, merging, cropping, adding background music, rotating videos as well as some special features like APP, motion elements, animated texts, overlays, and filters, etc., and finally, the users can upload their edited video to YouTube directly. Just get started and create your own YouTube video with Wondershare Filmora!
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **6 Tips About Finding Collab Partners**
 
 Here are 6 questions you should ask yourself when you’re looking for potential collaborators on YouTube.
@@ -84,9 +75,6 @@ The time to start brainstorming is not after you’ve already sent a collab requ
 
 You can do a long-distance collab, but if it is possible to physically meet up with someone to plan and shoot the videos then that’s way better.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Ask Someone to Collab**
 
 ![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
@@ -122,8 +110,9 @@ It usually isn’t difficult to find contact information for a YouTuber. If you 
 You can also reach out through DMs or other social media. If you use a platform like Twitter, however, you may want to be a bit more casual and start a conversation before building up to asking them about a collab.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Collab Video**
 
 Here are 3 ways you can collaborate with other YouTubers.
@@ -200,8 +189,9 @@ Wondershare Filmora has all the essential features needed by a PC video editing 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **6 Tips About Finding Collab Partners**
 
 Here are 6 questions you should ask yourself when you’re looking for potential collaborators on YouTube.
@@ -238,9 +228,6 @@ You can do a long-distance collab, but if it is possible to physically meet up w
 
 ## **How to Ask Someone to Collab**
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
 
 Here’s an example of a collab pitch, and a template you can use to write your own! It’s from filmora.io’s free YouTube Toolkit, which you can [download with the Get Subs Guide here](https://www.filmora.io/free-youtube-subscribers).
@@ -274,8 +261,9 @@ It usually isn’t difficult to find contact information for a YouTuber. If you 
 You can also reach out through DMs or other social media. If you use a platform like Twitter, however, you may want to be a bit more casual and start a conversation before building up to asking them about a collab.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Collab Video**
 
 Here are 3 ways you can collaborate with other YouTubers.
@@ -300,9 +288,157 @@ In order to pull off a collab like this, you need to be able to meet in person.
 
  It’s harder to collab if you can’t meet up, but it isn’t impossible. You can exchange footage to use in each other’s videos, or you can record a Google Hangout or Skype chat.
 
+## **Launching Your Collab**
+
+Here are some tips for making sure both you and your partner get the most out of the collab videos you've made.
+
+#### **Agree on a Launch Date/Time**
+
+If you each have a video for your own channel then you want to make sure those go up at the same time. It’ll be awkward if you post your video and shout out your partner/their collab video and when people go to check that out it isn’t up.
+
+You may want to post your videos as unlisted initially if you’re worried about one of you taking longer to upload. Then, once your videos are both completely ready to go, you can switch their listing to ‘public’ at the exact same time.
+
+#### **Promote Your Collab**
+
+Before you post your collab videos, you might want to build hype by mentioning the upcoming collab video in your solo videos leading up to it. If you and your partner are active on platforms like Instagram and Snapchat, you can do things like post behind the scenes pictures of your collab videos to generate excitement.
+
+#### **Comment on Each Other’s Videos**
+
+After you’ve posted your collabs, make sure to leave each other comments about how much fun it was working together. You might want to interact publicly on social media too. Overall, just be friends. You want to maintain this relationship to leave the door open to future collabs, and your viewers will want to believe in your friendship too. Your partner's subscribers are more likely to be interested in you when they feel like you're buddies with one of their favorite creators.
+
+ Make sure to discuss how much promotion you'll each do for the collab before and after it launches. If one of you does a ton of promotion and the other just does one tweet, it won't make the person who's done way more promotion feel great.
+
+ Have you ever collaborated on YouTube? If you could collaborate with anyone, who would it be and what kind of video would you make?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+If you watch YouTube then you don’t need to be told why it’s a good idea for creators to collaborate. You get the chance to grow by being introduced to your partner’s audience, you make a friend to support and be supported by as you both grow your channels, and it always looks like a ton of fun. The question isn’t why you should collab, it’s how.
+
+Finding someone to collab with, approaching them, and figuring out how to actually make the video can be all be challenging. Here are some tips:
+
+ 1. [6 Tips About Finding Collab Partners](#findingpartners)
+ 2. [How to Ask Someone to Collab](#asking)
+ 3. [How to Make a Collab video](#videotypes)
+ 4. [Launching Your Collab](#launch)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Best YouTube Video Editor--Wondershare Filmora
+
+Wondershare Filmora has all the essential features needed by a PC video editing app like creating slideshows, trimming, merging, cropping, adding background music, rotating videos as well as some special features like APP, motion elements, animated texts, overlays, and filters, etc., and finally, the users can upload their edited video to YouTube directly. Just get started and create your own YouTube video with Wondershare Filmora!
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## **6 Tips About Finding Collab Partners**
+
+Here are 6 questions you should ask yourself when you’re looking for potential collaborators on YouTube.
+
+#### **1\. Who Are My Friends?**
+
+The easiest way to think of a potential collab partner is just to think of who you’re already friendly with. The best place to look for collab partners is probably in your list of subscribers. Someone who already knows what you do and enjoys it will probably be receptive to the idea of doing a video with you.
+
+You can even sort your own subscribers by their sub counts to find someone with about the same sized channel as you.
+
+#### **2\. Who’s In The Same Boat as Me?**
+
+You don’t have to already have a friendship, or even a creator-subscriber, relationship with someone to consider them as a potential partner (although it’s not a bad idea to subscribe to them before you send your request).
+
+Consider people who are in the same niche as you who have approximately the same sized channel as you. If you’re in different genres the collab doesn’t make sense, and if there’s a significant size difference between your channels then it’s a lot more valuable to one of you than the other.
+
+#### **3\. What Can This Person Offer My Audience?**
+
+Part of why you collaborate is to grow your audience, but that should never be at the expense of your current subscriber base. Before you reach out to a potential collab partner, seriously consider whether you think your audience will enjoy a video that features them.
+
+Your partner should be someone who delivers content that is relevant to your own audience (for example, it makes no sense for a tech YouTuber to collaborate with someone whose channel is about cupcakes – their techie audience doesn’t want to learn about cupcakes).
+
+#### **4\. Do I Like Their Videos?**
+
+Before you send anyone a message, make sure you’ve watched and enjoyed a few of their videos. If you don’t find them entertaining then your audience probably won’t either. Also, if you don’t seem to have any knowledge of someone’s content then they probably won’t want to work with you.
+
+#### **5\. What Kind of Videos Could We Make?**
+
+The time to start brainstorming is not after you’ve already sent a collab request. You should think of a few ideas before you reach out, both to show your potential partner that you’re serious and to ensure that your audience is getting well-planned content.
+
+#### **6\. Who’s in My Area?**
+
+You can do a long-distance collab, but if it is possible to physically meet up with someone to plan and shoot the videos then that’s way better.
+
+## **How to Ask Someone to Collab**
+
+![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
+
+Here’s an example of a collab pitch, and a template you can use to write your own! It’s from filmora.io’s free YouTube Toolkit, which you can [download with the Get Subs Guide here](https://www.filmora.io/free-youtube-subscribers).
+
+Here are some more tips:
+
+#### **1\. Use Their Name**
+
+This one probably seems basic, but it is very easy to send a message where you just say ‘hey’ and jump to your point without actually using someone’s name. That’s a mistake in this scenario. You want to let your potential partner know that you are specifically interested in working with them and aren’t just fishing for anyone who might work with you.
+
+#### **2\. Mention Their Content**
+
+Show an interest in your future partner’s videos. You should have watched at least a couple of them as part of deciding to reach out, so mention a video of theirs that you liked and talk about why. Let the other person know that you genuinely enjoy what they do and think your audience will too.
+
+#### **3\. Pitch Video Ideas**
+
+You should have a couple of ideas for videos you could do together ready when you contact someone. You don’t want to reach out to someone and then seem like you expect them to do all the planning. You may not end up doing one of the ideas you pitch, but you’ll still come off better if you have something in mind when you first send your message.
+
+#### **4\. Keep Your Message Simple**
+
+You don’t want to overwhelm someone with a huge amount of text the first time you contact them. Check out the example at the beginning of this section to get an idea of the length you should go for.
+
+#### **5\. Be an Equal**
+
+Remember that you are just as wonderful a creator as the person you are approaching. You don’t want to fawn too heavily and cast yourself more as a fan than a serious creator in your own right (not that you can’t be both).
+
+#### **6\. Most Creators Have an Email Address on Their Channel Page**
+
+It usually isn’t difficult to find contact information for a YouTuber. If you go to someone’s channel page and click into the About tab, there will usually be a section called ‘For business inquiries’ under ‘Details’. Click ‘View Email Address’ next to that and you’ll have a means of contacting the person you want to collaborate with.
+
+You can also reach out through DMs or other social media. If you use a platform like Twitter, however, you may want to be a bit more casual and start a conversation before building up to asking them about a collab.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## **How to Make a Collab Video**
+
+Here are 3 ways you can collaborate with other YouTubers.
+
+#### **Shout Each Other Out**
+
+This is the easiest way to collab because you don’t have to meet up or do much planning together. Essentially, you just make your own video and let everyone know how much you like your partner’s channel (combined with linking your viewers to them), and they do the same.
+
+Make sure to agree beforehand on how long you’ll spend plugging each other in your videos, so one of you doesn’t go on way longer than the other.
+
+This probably isn’t a hugely effective method of collaborating if your goal is to grow (I wouldn’t check out someone’s channel just because I was told to), but it certainly is easy.
+
+#### **Be Guests in Each Other’s Videos**
+
+This might be the most fun type of collab to watch. The person whose channel the video appears on is the ‘host’ and the video is done in something closer to their usual style (which will be more appealing to their subscribers), and their collab partner is a guest. You might want to do two of these videos so you each have one for your own channel.
+
+ Depending on your YouTube niche, you might do a fun activity together or you might interview your guest about a subject you think your subscribers are interested in.
+
+In order to pull off a collab like this, you need to be able to meet in person.
+
+#### **Long Distance Collaborations**
+
+ It’s harder to collab if you can’t meet up, but it isn’t impossible. You can exchange footage to use in each other’s videos, or you can record a Google Hangout or Skype chat.
+
 ## **Launching Your Collab**
 
 Here are some tips for making sure both you and your partner get the most out of the collab videos you've made.
@@ -355,8 +491,9 @@ Wondershare Filmora has all the essential features needed by a PC video editing 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **6 Tips About Finding Collab Partners**
 
 Here are 6 questions you should ask yourself when you’re looking for potential collaborators on YouTube.
@@ -391,14 +528,8 @@ The time to start brainstorming is not after you’ve already sent a collab requ
 
 You can do a long-distance collab, but if it is possible to physically meet up with someone to plan and shoot the videos then that’s way better.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **How to Ask Someone to Collab**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
 
 Here’s an example of a collab pitch, and a template you can use to write your own! It’s from filmora.io’s free YouTube Toolkit, which you can [download with the Get Subs Guide here](https://www.filmora.io/free-youtube-subscribers).
@@ -456,8 +587,9 @@ In order to pull off a collab like this, you need to be able to meet in person.
  It’s harder to collab if you can’t meet up, but it isn’t impossible. You can exchange footage to use in each other’s videos, or you can record a Google Hangout or Skype chat.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Launching Your Collab**
 
 Here are some tips for making sure both you and your partner get the most out of the collab videos you've made.
@@ -482,163 +614,9 @@ After you’ve posted your collabs, make sure to leave each other comments about
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-If you watch YouTube then you don’t need to be told why it’s a good idea for creators to collaborate. You get the chance to grow by being introduced to your partner’s audience, you make a friend to support and be supported by as you both grow your channels, and it always looks like a ton of fun. The question isn’t why you should collab, it’s how.
-
-Finding someone to collab with, approaching them, and figuring out how to actually make the video can be all be challenging. Here are some tips:
-
- 1. [6 Tips About Finding Collab Partners](#findingpartners)
- 2. [How to Ask Someone to Collab](#asking)
- 3. [How to Make a Collab video](#videotypes)
- 4. [Launching Your Collab](#launch)
-
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Best YouTube Video Editor--Wondershare Filmora
-
-Wondershare Filmora has all the essential features needed by a PC video editing app like creating slideshows, trimming, merging, cropping, adding background music, rotating videos as well as some special features like APP, motion elements, animated texts, overlays, and filters, etc., and finally, the users can upload their edited video to YouTube directly. Just get started and create your own YouTube video with Wondershare Filmora!
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## **6 Tips About Finding Collab Partners**
-
-Here are 6 questions you should ask yourself when you’re looking for potential collaborators on YouTube.
-
-#### **1\. Who Are My Friends?**
-
-The easiest way to think of a potential collab partner is just to think of who you’re already friendly with. The best place to look for collab partners is probably in your list of subscribers. Someone who already knows what you do and enjoys it will probably be receptive to the idea of doing a video with you.
-
-You can even sort your own subscribers by their sub counts to find someone with about the same sized channel as you.
-
-#### **2\. Who’s In The Same Boat as Me?**
-
-You don’t have to already have a friendship, or even a creator-subscriber, relationship with someone to consider them as a potential partner (although it’s not a bad idea to subscribe to them before you send your request).
-
-Consider people who are in the same niche as you who have approximately the same sized channel as you. If you’re in different genres the collab doesn’t make sense, and if there’s a significant size difference between your channels then it’s a lot more valuable to one of you than the other.
-
-#### **3\. What Can This Person Offer My Audience?**
-
-Part of why you collaborate is to grow your audience, but that should never be at the expense of your current subscriber base. Before you reach out to a potential collab partner, seriously consider whether you think your audience will enjoy a video that features them.
-
-Your partner should be someone who delivers content that is relevant to your own audience (for example, it makes no sense for a tech YouTuber to collaborate with someone whose channel is about cupcakes – their techie audience doesn’t want to learn about cupcakes).
-
-#### **4\. Do I Like Their Videos?**
-
-Before you send anyone a message, make sure you’ve watched and enjoyed a few of their videos. If you don’t find them entertaining then your audience probably won’t either. Also, if you don’t seem to have any knowledge of someone’s content then they probably won’t want to work with you.
-
-#### **5\. What Kind of Videos Could We Make?**
-
-The time to start brainstorming is not after you’ve already sent a collab request. You should think of a few ideas before you reach out, both to show your potential partner that you’re serious and to ensure that your audience is getting well-planned content.
-
-#### **6\. Who’s in My Area?**
-
-You can do a long-distance collab, but if it is possible to physically meet up with someone to plan and shoot the videos then that’s way better.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
-## **How to Ask Someone to Collab**
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
-![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
-
-Here’s an example of a collab pitch, and a template you can use to write your own! It’s from filmora.io’s free YouTube Toolkit, which you can [download with the Get Subs Guide here](https://www.filmora.io/free-youtube-subscribers).
-
-Here are some more tips:
-
-#### **1\. Use Their Name**
-
-This one probably seems basic, but it is very easy to send a message where you just say ‘hey’ and jump to your point without actually using someone’s name. That’s a mistake in this scenario. You want to let your potential partner know that you are specifically interested in working with them and aren’t just fishing for anyone who might work with you.
-
-#### **2\. Mention Their Content**
-
-Show an interest in your future partner’s videos. You should have watched at least a couple of them as part of deciding to reach out, so mention a video of theirs that you liked and talk about why. Let the other person know that you genuinely enjoy what they do and think your audience will too.
-
-#### **3\. Pitch Video Ideas**
-
-You should have a couple of ideas for videos you could do together ready when you contact someone. You don’t want to reach out to someone and then seem like you expect them to do all the planning. You may not end up doing one of the ideas you pitch, but you’ll still come off better if you have something in mind when you first send your message.
-
-#### **4\. Keep Your Message Simple**
-
-You don’t want to overwhelm someone with a huge amount of text the first time you contact them. Check out the example at the beginning of this section to get an idea of the length you should go for.
-
-#### **5\. Be an Equal**
-
-Remember that you are just as wonderful a creator as the person you are approaching. You don’t want to fawn too heavily and cast yourself more as a fan than a serious creator in your own right (not that you can’t be both).
-
-#### **6\. Most Creators Have an Email Address on Their Channel Page**
-
-It usually isn’t difficult to find contact information for a YouTuber. If you go to someone’s channel page and click into the About tab, there will usually be a section called ‘For business inquiries’ under ‘Details’. Click ‘View Email Address’ next to that and you’ll have a means of contacting the person you want to collaborate with.
-
-You can also reach out through DMs or other social media. If you use a platform like Twitter, however, you may want to be a bit more casual and start a conversation before building up to asking them about a collab.
-
-## **How to Make a Collab Video**
-
-Here are 3 ways you can collaborate with other YouTubers.
-
-#### **Shout Each Other Out**
-
-This is the easiest way to collab because you don’t have to meet up or do much planning together. Essentially, you just make your own video and let everyone know how much you like your partner’s channel (combined with linking your viewers to them), and they do the same.
-
-Make sure to agree beforehand on how long you’ll spend plugging each other in your videos, so one of you doesn’t go on way longer than the other.
-
-This probably isn’t a hugely effective method of collaborating if your goal is to grow (I wouldn’t check out someone’s channel just because I was told to), but it certainly is easy.
-
-#### **Be Guests in Each Other’s Videos**
-
-This might be the most fun type of collab to watch. The person whose channel the video appears on is the ‘host’ and the video is done in something closer to their usual style (which will be more appealing to their subscribers), and their collab partner is a guest. You might want to do two of these videos so you each have one for your own channel.
-
- Depending on your YouTube niche, you might do a fun activity together or you might interview your guest about a subject you think your subscribers are interested in.
-
-In order to pull off a collab like this, you need to be able to meet in person.
-
-#### **Long Distance Collaborations**
-
- It’s harder to collab if you can’t meet up, but it isn’t impossible. You can exchange footage to use in each other’s videos, or you can record a Google Hangout or Skype chat.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## **Launching Your Collab**
-
-Here are some tips for making sure both you and your partner get the most out of the collab videos you've made.
-
-#### **Agree on a Launch Date/Time**
-
-If you each have a video for your own channel then you want to make sure those go up at the same time. It’ll be awkward if you post your video and shout out your partner/their collab video and when people go to check that out it isn’t up.
-
-You may want to post your videos as unlisted initially if you’re worried about one of you taking longer to upload. Then, once your videos are both completely ready to go, you can switch their listing to ‘public’ at the exact same time.
-
-#### **Promote Your Collab**
-
-Before you post your collab videos, you might want to build hype by mentioning the upcoming collab video in your solo videos leading up to it. If you and your partner are active on platforms like Instagram and Snapchat, you can do things like post behind the scenes pictures of your collab videos to generate excitement.
-
-#### **Comment on Each Other’s Videos**
-
-After you’ve posted your collabs, make sure to leave each other comments about how much fun it was working together. You might want to interact publicly on social media too. Overall, just be friends. You want to maintain this relationship to leave the door open to future collabs, and your viewers will want to believe in your friendship too. Your partner's subscribers are more likely to be interested in you when they feel like you're buddies with one of their favorite creators.
-
- Make sure to discuss how much promotion you'll each do for the collab before and after it launches. If one of you does a ton of promotion and the other just does one tweet, it won't make the person who's done way more promotion feel great.
-
- Have you ever collaborated on YouTube? If you could collaborate with anyone, who would it be and what kind of video would you make?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -662,14 +640,8 @@ Follow @Richard Bennett
 
 Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1** just happened suddenly a few years ago. This article will inform you about all the things you want to know about **AV1 Youtube** settings. I will let you know the tutorial to turn in AV1 settings on YouTube and the reason why should choose AV1 along with the others, and some more things about AV1.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![av1 logo](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: How to turn on AV1 settings on YouTube?
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
@@ -688,9 +660,6 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Why choose AV1 over VP9 and other formats?
 
 Now, do you need a reason why you should choose AV1 compared to VP9 and the others? As you know, there is also another video codec like VP9\. There are also the others such as VVC, and many more. So what is the superiority of AV1 over the others? I will let you know why you should choose AV1 in this part.
@@ -701,14 +670,15 @@ The main thing is, as mentioned before, AV1 is developed by a consortium of comp
 
 Also, these days, with a format that provides a much smaller workload for internet providers. Their today focus is, that AV1 can reach the quality but can get the job done with 20% more efficiency. Then, with AV1 encoding, a "standard" 4K movie will be much more accessible than it is now. These are some more reasons why you should choose AV1.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Royalty-free
 
 As mentioned before, AV1 is royalty-free. AV1 is such a next-generation of royalty video codec. It means that it is not just free to use, but also free of charge, obligations, or even liability. It is an open and royalty-free video codec that the video platform will not charge to pay royalties to the Moving Picture Experts Group (MPEG), the developer of video codecs.
 
 ![av1 is royalty-free](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When it comes to the group that will ask for the royalty, MPEG is not the only one. There are also other patent groups and companies that can ask for it. Aomedia integrated Google, Mozilla, and Cisco, while they were busy creating their new video codec. However, the three companies joined together to create one codec to beat them all.
 
@@ -726,14 +696,15 @@ AV1 is undoubtedly superior if we compare it to other available video codecs and
 
 There are also three essential improvements, which are simplifying the existing feature (also complete removal) and picking the tool used by VVC/H.266 (It is lack originality but so much work on it) and improvement periodically improvement of an existing tool, it is too few and also not original. We haven't known yet when AV2 will be done completely though, maybe there still be some more essential improvements.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: What's the best video editor for YouTubers with AV1 format?
 
 When we talk about YouTube, it feels incomplete if we don't talk about the video editor. So, what is the best video editing software for YouTubers with AV1 format? Yes, it is [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is such a great video editing software that allows you to import and edit many video file formats. Filmora also allows users to export AV1 MP4 format video and then can directly upload it to YouTube.
 
 ![filmora logo](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) gives some ways to export your videos. Here are the five ways. You can also customize the export settings then you can save them to reuse the same settings next time. The first is you can export your project file and video to the local computer. It supports export as MP4, AVI, WMV, AV1, MOV, GoPro Cineform, F4V, MKV, TS, and 3GP.
 
@@ -766,7 +737,26 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-elevate-your-play-with-these-5-windows-11-recording-approaches/"><u>[New] 2024 Approved Elevate Your Play with These 5 Windows 11 Recording Approaches</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-insiders-guide-to-mastering-fb-live-recordings/"><u>[New] 2024 Approved The Insider's Guide to Mastering FB Live Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-insiders-guide-to-youtube-success-for-2024/"><u>[Updated] The Insider's Guide to YouTube Success for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>[Updated] The Ultimate Ringer's Guide Shaping iPhone Sounds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-voice-versus-video-making-the-right-media-selection-for-2024/"><u>[Updated] Voice Versus Video Making the Right Media Selection for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-broadcasting-brilliance-in-final-fragments/"><u>2024 Approved Broadcasting Brilliance in Final Fragments</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-subtitling-and-cc-addition-techniques-for-youtube-users/"><u>2024 Approved Effortless Subtitling & CC Addition Techniques for YouTube Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/8-top-notch-free-editors-to-enhance-your-youtube-content-efficiency/"><u>8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/asmr-audio-excellence-high-quality-mic-recommendations-for-2024/"><u>ASMR Audio Excellence High-Quality Mic Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breakthrough-youtube-success-essential-tips-from-creator-studio-guide-for-2024/"><u>Breakthrough YouTube Success Essential Tips From Creator Studio Guide for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/converting-youtube-videos-into-engaging-gifs-on-devices/"><u>Converting YouTube Videos Into Engaging GIFs on Devices</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-captivating-video-narratives-for-youtube-success-for-2024/"><u>Crafting Captivating Video Narratives for YouTube Success for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-mobvoi-ticwatch-pro-3s-dual-screens-and-advanced-gps-boosting-battery-efficiency/"><u>Expert Analysis: Mobvoi TicWatch Pro 3'S Dual Screens & Advanced GPS - Boosting Battery Efficiency</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-add-custom-thumbnails-to-your-youtube-videos/"><u>How To Add Custom Thumbnails to Your YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-swift-sharing-twitter-to-whatsapp-videos/"><u>In 2024, Swift Sharing Twitter to WhatsApp Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-samsung-cf591-a-monitor-for-serious-gamers/"><u>In-Depth Look at the Samsung CF591 – A Monitor for Serious Gamers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-fixes-for-windows-11-sluggish-closure-a-step-by-step-guide/"><u>Quick Fixes for Windows 11 Sluggish Closure: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

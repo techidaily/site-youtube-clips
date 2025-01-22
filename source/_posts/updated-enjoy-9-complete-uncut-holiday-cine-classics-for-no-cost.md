@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost"
-date: 2025-01-08T18:48:54.553Z
-updated: 2025-01-15T17:40:45.818Z
+date: 2025-01-19T16:34:03.122Z
+updated: 2025-01-22T16:32:08.683Z
 tags:
   - ai video
   - ai youtube
@@ -26,25 +26,29 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
@@ -54,16 +58,12 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
@@ -74,15 +74,15 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -99,18 +99,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-operational-status-achieved-cameras-ready-for-2024/"><u>[New] Operational Status Achieved - Cameras Ready for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-audio-integration-your-youtube-playlist/"><u>2024 Approved Audio Integration Your YouTube Playlist</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-earnings-on-youtube-the-crucial-number-of-video-views-for-money/"><u>2024 Approved Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-jumpstart-traffic-top-tier-video-seo-tools/"><u>2024 Approved Jumpstart Traffic – Top-Tier Video SEO Tools</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/beyond-simplicity-exploring-the-intricacies-of-youtubes-view-count-algorithm-for-2024/"><u>Beyond Simplicity Exploring the Intricacies of YouTube’s View Count Algorithm for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/breakthrough-in-video-production-advanced-techniques-for-uploading-360-content-on-youtube-for-2024/"><u>Breakthrough in Video Production Advanced Techniques for Uploading 360° Content on YouTube for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/building-your-brand-as-a-reviewer-of-cars-and-automotive-gear-for-2024/"><u>Building Your Brand as a Reviewer of Cars and Automotive Gear for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-compelling-thumbnails-for-your-youtube-content/"><u>Crafting Compelling Thumbnails for Your YouTube Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lent-10-tech-choices-for-livestream-monitoring/"><u>Excellent 10 Tech Choices for Livestream Monitoring</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/how-to-convert-multiple-pdfs-into-separate-flipbooks-with-custom-file-names-via-flipbuildercom/"><u>How to Convert Multiple PDFs Into Separate Flipbooks with Custom File Names via FlipBuilder.com</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-does-youtube-offer-regular-viewers-money/"><u>In 2024, Does YouTube Offer Regular Viewers Money?</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-icy-performance-and-expensive-price-tag-of-the-gigabyte-b650-aorus-elite-ax-motherboard-with-ample-usb-ports/"><u>In-Depth Review: Icy Performance and Expensive Price Tag of the Gigabyte B650 Aorus Elite AX Motherboard with Ample USB Ports</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/is-it-possible-to-use-miracast-with-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>Is it Possible to Use Miracast with Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-youtubes-livestream-landscape-without-massive-followings/"><u>[Updated] Navigating YouTube's Livestream Landscape without Massive Followings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-biggest-fifa-visuals-youtube-insights-graphed/"><u>2024 Approved Biggest FIFA Visuals YouTube Insights Graphed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-add-logowatermark-to-youtube-video-for-2024/"><u>How to Add Logo/Watermark to YouTube Video for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oneplus-11r-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from OnePlus 11R to New Android? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-google-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Google</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mac-users-the-best-5-streaming-platforms-revealed/"><u>In 2024, Mac Users The Best 5 Streaming Platforms Revealed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/perfecting-video-speed-for-engaging-instagram-stories/"><u>Perfecting Video Speed for Engaging Instagram Stories</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/strategies-for-video-discovery-boosting-viewership-cost-free/"><u>Strategies for Video Discovery Boosting Viewership Cost-Free</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-power-of-persuasion-hire-success-stories-1-10/"><u>The Power of Persuasion Hire Success Stories #1-10</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/transform-your-videos-simple-steps-to-include-youtube-subtitlescc/"><u>Transform Your Videos Simple Steps to Include YouTube Subtitles/CC</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/troubleshooting-why-are-your-shorts-thumbnails-hiding/"><u>Troubleshooting Why Are Your Shorts' Thumbnails Hiding?</u></a></li>
+<li><a href="https://win-premium.techidaily.com/windows-7810112/"><u>シンオダリオ双方向同期:Windows 7,8,10,11用簡単なアプローチ2つ</u></a></li>
 </ul></div>
 

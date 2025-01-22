@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Video Setup Must-Haves\""
-date: 2025-01-10T01:13:15.253Z
-updated: 2025-01-15T23:41:51.660Z
+date: 2025-01-17T16:16:19.136Z
+updated: 2025-01-22T16:14:07.431Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Smartphone Camera Gear](#phone)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Cameras
@@ -54,6 +54,10 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -65,7 +69,7 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -80,6 +84,10 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -89,10 +97,6 @@ Another useful piece of lighting equipment to have is a reflector. A reflector i
 When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
 
@@ -111,14 +115,10 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -135,24 +135,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-exemplary-execution-using-apple-watch-to-open-mac/"><u>[New] Exemplary Execution Using Apple Watch to Open Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-pinnacle-gold-text-rendering-in-top-8-3d-web-spaces-for-2024/"><u>[New] Pinnacle Gold Text Rendering in Top 8 3D Web Spaces for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-audiovisual-decision-making-is-podcast-or-youtube-more-appealing/"><u>[Updated] Audiovisual Decision-Making Is Podcast or YouTube More Appealing?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snap-sharing-made-simple-camera-roll-to-social-now-for-2024/"><u>[Updated] Snap Sharing Made Simple Camera Roll to Social Now for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>2024 Approved Boosting Your Content Quality Essential Tips for YouTube Users</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-capture-and-relive-your-favorite-moments-anywhere-anytime-the-best-in-free-video-downloaders-for-youtubes/"><u>2024 Approved Capture and Relive Your Favorite Moments Anywhere, Anytime The Best in Free Video Downloaders for YouTubes</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-beginners-guide-to-sony-vegas-and-youtube-cutting/"><u>A Beginner's Guide to Sony Vegas and YouTube Cutting</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/direct-conversion-of-spotify-music-5-tools-for-youtube-streaming/"><u>Direct Conversion of Spotify Music 5 Tools for YouTube Streaming</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-instantly-design-custom-coverage-for-your-short-videos/"><u>How To Instantly Design Custom Coverage For Your Short Videos</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-seamlessly-install-battleye-troubleshooting-guide/"><u>How to Seamlessly Install BattlEye - Troubleshooting Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-creating-a-viral-youtube-sensation-simplified-action-plan/"><u>In 2024, Creating a Viral YouTube Sensation Simplified Action Plan</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>In 2024, Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-14-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi 14 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prosperous-gaming-vids-through-smart-hash-implementation/"><u>Prosperous Gaming Vids Through Smart Hash Implementation</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/quality-comic-graphics-and-wide-screen-illustrations-download-funny-wallpaper-pics-with-ylcomputings-yl-engine/"><u>Quality Comic Graphics & Wide Screen Illustrations - Download Funny Wallpaper Pics with Ylcomputing's YL Engine</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/removing-your-personalized-recommendations-on-instagram-a-step-by-step-guide/"><u>Removing Your Personalized Recommendations on Instagram: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/smb-social-media-strategies-infographic-guide/"><u>SMB Social Media Strategies Infographic Guide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-fixing-the-notorious-minecraft-error-code-5/"><u>Step-by-Step Solution for Fixing the Notorious Minecraft Error Code #5</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-beyond-boundaries-channel-youtube-for-exciting-green-screens/"><u>[New] Beyond Boundaries Channel Youtube for Exciting Green Screens</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-buying-made-simple-a-beginners-toolkit/"><u>[Updated] In 2024, Channel Buying Made Simple A Beginner’s Toolkit</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>2024 Approved Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-an-impactful-waterway-teaser/"><u>Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-samsung-galaxy-z-fold-5-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Samsung Galaxy Z Fold 5 online without jailbreak</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-discover-10-amazing-world-wanderlust-channels/"><u>In 2024, Discover 10 Amazing World Wanderlust Channels</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-30-pro-windows-10-mastery-hacks/"><u>In 2024, Top 30 Pro Windows 10 Mastery Hacks</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/income-levels-of-mr-beast/"><u>Income Levels of Mr. Beast</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-update-installing-lenovo-thunderbolt-3-hub-software/"><u>Latest Update: Installing Lenovo Thunderbolt 3 Hub Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/premium-audio-modification-gadgets-for-youtube-go-getters/"><u>Premium Audio Modification Gadgets for YouTube Go-Getters</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solve-your-iphone-camera-autofocus-issues-with-easy-tricks/"><u>Solve Your iPhone Camera Autofocus Issues with Easy Tricks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-creating-self-extracting-fx-in-win11/"><u>Step-by-Step: Creating Self-Extracting FX in Win11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-potential-of-your-smart-home-with-a-linksys-ea8300-router-review/"><u>Unveiling the Potential of Your Smart Home with a Linksys EA8300 Router Review</u></a></li>
 </ul></div>
 

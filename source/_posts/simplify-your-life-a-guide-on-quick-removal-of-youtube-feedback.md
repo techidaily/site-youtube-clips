@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2025-01-13T02:59:05.439Z
-updated: 2025-01-15T19:13:23.492Z
+date: 2025-01-17T16:49:19.387Z
+updated: 2025-01-22T16:55:12.117Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
@@ -50,10 +50,6 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -76,6 +72,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -112,7 +112,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -124,23 +124,23 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
 
@@ -163,16 +163,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-precision-zoom-mastery-in-microsoft-teams-sessions/"><u>[New] 2024 Approved Precision Zoom Mastery in Microsoft Teams Sessions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-a-deep-dive-into-youtube-writers-workshop-space/"><u>[New] A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-blend-acoustic-elements-with-visual-content-in-premiere-pro/"><u>2024 Approved Blend Acoustic Elements with Visual Content in Premiere Pro</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/datmp4/"><u>簡単な手順でDATファイルからMP4へのスムーズな変換方法</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-ryzen-hemosn-9-9950x-dominates-competitors-on-cinebench-r23-world-record-setting-performance-at-65ghz/"><u>AMD Ryzen Hemosn 9 9950X Dominates Competitors on Cinebench R23: World Record-Setting Performance at 6.5GHz</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/compreranzo-il-background-ottenere-video-piu-chiaro-su-youtube-for-2024/"><u>Compreranzo Il Background Ottenere Video Più Chiaro Su YouTube for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-the-nuances-of-gamers-channel-templates/"><u>Navigating the Nuances of Gamers' Channel Templates</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/techniques-for-efficiently-blending-flv-files/"><u>Techniques for Efficiently Blending FLV Files</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/the-ultimate-list-of-music-video-makers-for-unforgettable-videos-for-2024/"><u>The Ultimate List of Music Video Makers for Unforgettable Videos for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ultimate-mememix-download-now/"><u>Ultimate Mememix Download Now</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/youtube-writers-and-their-payment-frequency/"><u>YouTube' Writers and Their Payment Frequency</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[New] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[New] Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-download-mp3-from-social-network-posts/"><u>[Updated] 2024 Approved Download Mp3 From Social Network Posts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-unveiling-elite-choices-a-guide-to-hdr-cameras/"><u>[Updated] 2024 Approved Unveiling Elite Choices A Guide to HDR Cameras</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-best-practices-for-hash-tags-in-fb-marketing-campaigns/"><u>[Updated] In 2024, Best Practices for Hash Tags in FB Marketing Campaigns</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieve-unprecedented-image-quality-via-av1-on-youtube/"><u>2024 Approved Achieve Unprecedented Image Quality via AV1 on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-charm-in-the-click-a-thumbnail-hack-for-youtube-shorts/"><u>2024 Approved Crafting Charm in the Click A Thumbnail Hack for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>2024 Approved Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-debut-video-capture-review/"><u>2024 Approved Debut Video Capture Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-online-media-crafter/"><u>2024 Approved Online Media Crafter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/8-superior-benefits-of-joining-linkedins-elite-group/"><u>8 Superior Benefits of Joining LinkedIn's Elite Group</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-avoiding-unwanted-accounts-on-insta/"><u>In 2024, Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-practices-boosting-your-game-videos-with-tags/"><u>In 2024, Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channeling-creativity-get-green-screen-tips-from-youtube/"><u>In 2024, Channeling Creativity Get Green Screen Tips From YouTube</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-invisible-vids-on-social-reveal-the-top-12-techniques-to-restore-appearance-in-23/"><u>In 2024, Invisible Vids on Social? Reveal the Top 12 Techniques to Restore Appearance in '23</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/sieben-der-fuhrenden-software-losungen-zur-videobearbeitung-auf-windows-systemen-versione-1110/"><u>Sieben Der Führenden Software-Lösungen Zur Videobearbeitung Auf Windows-Systemen (Versione 11/10)</u></a></li>
 </ul></div>
 
