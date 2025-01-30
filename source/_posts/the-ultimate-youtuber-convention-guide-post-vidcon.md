@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Youtuber Convention Guide (Post-VidCon)\""
-date: 2025-01-18T16:07:38.482Z
-updated: 2025-01-22T16:51:38.858Z
+date: 2025-01-26T20:17:26.091Z
+updated: 2025-01-29T23:57:46.602Z
 tags:
   - ai video
   - ai youtube
@@ -36,19 +36,11 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -59,6 +51,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -87,10 +83,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -150,6 +142,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -163,7 +159,7 @@ Sydney, Australia: February
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -204,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -247,16 +247,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-captivate-viewers-the-art-of-crafting-short-videos/"><u>[Updated] 2024 Approved Captivate Viewers The Art of Crafting Short Videos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-enhance-engagement-with-these-15-snap-insights/"><u>[Updated] Enhance Engagement with These 15 Snap Insights</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-audiophiles-recommend-top-5-headset-choices/"><u>2024 Approved Audiophiles Recommend Top 5 Headset Choices</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/audio-dialogue-recorder-for-2024/"><u>Audio Dialogue Recorder for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/exploring-premium-cameras-a-2024-guide/"><u>Exploring Premium Cameras A 2024 Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/harnessing-hashtags-elevating-your-youtube-gaming-series/"><u>Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-b-roll-builder-kit/"><u>In 2024, B-Roll Builder Kit</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-best-18-webcam-recorders-to-try/"><u>In 2024, Best 18 Webcam Recorders to Try</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-is-sns-hdr-pro-the-gold-standard-for-hdr-editors/"><u>In 2024, Is SNS HDR Pro the Gold Standard for HDR Editors?</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlock-new-tongues-with-these-top-9-free-websites-to-learn-languages/"><u>Unlock New Tongues with These Top 9 Free Websites to Learn Languages</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-becoming-a-bull-or-bear-best-stock-vids-on-youtube/"><u>[New] Becoming a Bull or Bear Best Stock Vids on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[New] Channel Growth Blueprint Selecting Between Studio and Latest Beta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-googles-augmented-reality-stickers-in-spotlight-a-comparative-analysis/"><u>[Updated] 2024 Approved Google’s Augmented Reality Stickers in Spotlight - A Comparative Analysis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-prevent-social-discomfort-block-options/"><u>[Updated] 2024 Approved Prevent Social Discomfort Block Options</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unlock-the-full-potential-of-snapkit-in-business-ads/"><u>[Updated] 2024 Approved Unlock the Full Potential of SnapKit in Business Ads</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-profits-soar-the-secrets-to-successful-youtube-monetization/"><u>[Updated] Channel Profits Soar The Secrets to Successful YouTube Monetization</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-to-learn-4-youtube-channels-unlocking-the-secrets-of-background-substitution-for-2024/"><u>[Updated] Free-to-Learn 4 YouTube Channels Unlocking the Secrets of Background Substitution for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722134339961-chatgpt-desktop-unavailable-yet-discover-exceptional-open-source-tools-to-bridge-the-gap/"><u>ChatGPT Desktop Unavailable Yet? Discover Exceptional Open Source Tools to Bridge the Gap.</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-with-ease-best-7-android-browsers-without-pop-ups/"><u>Navigate With Ease Best 7 Android Browsers Without Pop-Ups</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/supercharge-your-channel-with-smart-youtube-collaborations/"><u>Supercharge Your Channel with Smart YouTube Collaborations</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316648-9781401949594-the-biology-of-belief-10th-anniversary-edition/"><u>The Biology of Belief 10th Anniversary Edition | Free Book</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlocking-ai-potential-on-ios-discover-which-iphone-models-will-embrace-apples-innovative-features-siri-upgrades-included-gadgetguru/"><u>Unlocking AI Potential on iOS: Discover Which iPhone Models Will Embrace Apple’s Innovative Features, Siri Upgrades Included | GadgetGuru</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/yt-insider-tips-from-chroma-keying-to-cinematic-creations/"><u>YT Insider Tips From Chroma Keying to Cinematic Creations</u></a></li>
 </ul></div>
 
