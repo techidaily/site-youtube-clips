@@ -1,7 +1,7 @@
 ---
 title: "Regular Vlogger Discussion Guidelines"
-date: 2025-01-24T19:01:06.776Z
-updated: 2025-01-29T21:28:31.862Z
+date: 2025-02-03T16:53:06.845Z
+updated: 2025-02-11T02:01:36.326Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -52,7 +56,7 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -60,10 +64,6 @@ By commenting on what you’re watching/reading you have a better chance of capi
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -74,10 +74,6 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -100,12 +96,16 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
@@ -114,7 +114,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,22 +132,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-efficient-photographic-snipping-techniques-windows-11/"><u>[Updated] 2024 Approved Efficient Photographic Snipping Techniques, Windows 11</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-complete-package-of-top-zoom-capturing-gear/"><u>[Updated] The Complete Package of Top Zoom Capturing Gear</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-access-all-subtitles-top-10-free-tools-for-youtube-videos/"><u>2024 Approved Access All Subtitles Top 10 Free Tools for YouTube Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieving-broadcast-excellence-your-guide-to-youtubes-live-360-videos/"><u>2024 Approved Achieving Broadcast Excellence Your Guide to YouTube's Live 360 Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-captivating-content-at-your-fingertips-download-youtube-for-ios/"><u>2024 Approved Captivating Content at Your Fingertips Download YouTube for iOS</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-integration-of-luts-for-enhanced-cinematography/"><u>2024 Approved Seamless Integration of LUTs for Enhanced Cinematography</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-swiftly-stow-facebook-broadcasts-for-smartphonedesktop-users/"><u>2024 Approved Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-the-definitive-guide-to-flawless-morphvox-technique/"><u>2024 Approved The Definitive Guide to Flawless MorphVOX Technique</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/5-effective-tricks-for-youtube-subscriber-surges-for-2024/"><u>5 Effective Tricks for YouTube Subscriber Surges for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/academic-allies-premier-educators-on-youtube/"><u>Academic Allies Premier Educators on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/achieving-youtube-live-prominence-with-pro-level-tips/"><u>Achieving YouTube Live Prominence with Pro-Level Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-viewership-responsibly-strategies-that-work-for-2024/"><u>Boosting Viewership Responsibly Strategies That Work for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/creative-command-center-studio-for-youtubers/"><u>Creative Command Center Studio for YouTubers</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-troubleshooting-for-correcting-missing-d3dx934dll-problems/"><u>DIY Troubleshooting for Correcting Missing d3dx9_34.dll Problems</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-insta-vid-techniques-scaling-videos-to-perfect-size-in-fcpx/"><u>In 2024, Insta-Vid Techniques Scaling Videos to Perfect Size in FCPX</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/procedure-dettagliata-per-ripristinare-windows-server-2008-r2-on-previous-data-points/"><u>Procedure Dettagliata per Ripristinare Windows Server 지원 2008 R2 on Previous Data Points</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/vocwma-movavi/"><u>VOC到WMA無成本直週天翻譯 - 利用Movavi優化</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-content-with-these-10-reaction-wonders/"><u>[New] 2024 Approved Elevate Your Content with These 10 Reaction Wonders</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[New] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[New] Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-searching-for-monetary-rewards-of-review-vlogs/"><u>[New] In 2024, Searching for Monetary Rewards of Review Vlogs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-unlocking-the-secrets-to-effective-screen-capturing-with-apeaksoft/"><u>[New] In 2024, Unlocking the Secrets to Effective Screen Capturing with Apeaksoft</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-the-era-of-streaming-find-facebooks-video-treasure-for-2024/"><u>[New] In the Era of Streaming, Find Facebook's Video Treasure for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-expert-recommendations-free-chat-apps-with-screen-viewing/"><u>[Updated] 2024 Approved Expert Recommendations Free Chat Apps with Screen Viewing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-voyage-for-valuables-5-prime-map-expeditions-for-2024/"><u>[Updated] Voyage for Valuables 5 Prime Map Expeditions for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieve-unprecedented-image-quality-via-av1-on-youtube/"><u>2024 Approved Achieve Unprecedented Image Quality via AV1 on YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exotic-escapes-the-ultimate-guide-to-virtual-villa-enhancements/"><u>Exotic Escapes: The Ultimate Guide to Virtual Villa Enhancements</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>In 2024, Audience Allure Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-audience-focus-top-webcams-that-bring-life-to-podcasts/"><u>In 2024, Audience Focus Top Webcams That Bring Life to Podcasts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channeling-creativity-get-green-screen-tips-from-youtube/"><u>In 2024, Channeling Creativity Get Green Screen Tips From YouTube</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210193273-9781609259716-soul-vows/"><u>Soul Vows | Free Book</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/winters-chill-and-your-videos-selecting-heated-backdrops/"><u>Winter's Chill & Your Videos Selecting Heated Backdrops</u></a></li>
 </ul></div>
 

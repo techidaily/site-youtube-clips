@@ -1,7 +1,7 @@
 ---
 title: "The Power of Politeness in Growing Your Audience"
-date: 2025-01-27T21:54:09.283Z
-updated: 2025-01-30T03:17:06.637Z
+date: 2025-02-05T03:03:47.934Z
+updated: 2025-02-10T19:15:48.714Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ There are people who think that if people like their videos they’ll subscribe,
    3. [Step 3: Create a Moment - Make Subscribing Part of the Experience](#moment)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is a 'Call To Action'?
@@ -49,7 +49,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -62,10 +62,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -77,13 +73,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -95,6 +91,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
@@ -115,21 +115,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-charting-the-undisclosed-territories-of-youtube-videos/"><u>[New] Charting the Undisclosed Territories of YouTube Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-ultimate-method-for-screen-recording-across-platforms/"><u>[New] In 2024, The Ultimate Method for Screen Recording Across Platforms</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-building-a-business-from-blogs-and-video-reviews/"><u>[Updated] Building a Business From Blogs and Video Reviews</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-building-engagement-the-role-of-youtube-shorts-template-design/"><u>[Updated] Building Engagement The Role of YouTube Shorts Template Design</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-decoding-the-functionality-of-youtubes-media-hub/"><u>[Updated] Decoding the Functionality of YouTube's Media Hub</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-evaluating-the-impact-of-true-to-self-imagery-on-instagram/"><u>[Updated] In 2024, Evaluating the Impact of True-to-Self Imagery on Instagram</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-luminous-techniques-crafting-captivating-cinematic-pieces/"><u>[Updated] Luminous Techniques Crafting Captivating Cinematic Pieces</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-capture-clarity-at-no-cost-top-screen-recorder-for-windows-and-macos/"><u>2024 Approved Capture Clarity at No Cost - Top Screen Recorder for Windows & MacOS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers/"><u>2024 Approved Essential Insights How to Choose Among the Top 9 Free YouTube Makers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cutting-edge-techniques-to-upgrade-channel-descriptions-for-2024/"><u>Cutting-Edge Techniques to Upgrade Channel Descriptions for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-samsung-galaxy-m14-4g-frp-by-drfone-android/"><u>How Can We Bypass Samsung Galaxy M14 4G FRP?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/micro-enterprises-guide-to-viral-video-promotion/"><u>Micro-Enterprises' Guide to Viral Video Promotion</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/step-by-step-incorporating-hp-printer-in-pc-network/"><u>Step-by-Step: Incorporating HP Printer in PC Network</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/the-best-of-the-best-yts-premier-unboxing-sites-for-2024/"><u>The Best of the Best YT's Premier Unboxing Sites for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unleash-tech-potential-insights-from-toms-hardware-reviews/"><u>Unleash Tech Potential - Insights From Tom's Hardware Reviews</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-tips-elevating-content-with-tags/"><u>[New] Cutting-Edge Tips Elevating Content with Tags</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-deciphering-youtubes-shorts-funding-mechanism/"><u>[New] Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-explore-and-capture-mountains-with-best-cameras/"><u>[Updated] 2024 Approved Explore and Capture Mountains with Best Cameras</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-initiate-flip-reverse-video-display-on-vlc-software/"><u>[Updated] 2024 Approved Initiate Flip Reverse Video Display on VLC Software</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-from-novice-to-expert-a-comprehensible-guide-to-final-cut-pro/"><u>[Updated] From Novice to Expert A Comprehensible Guide to Final Cut Pro</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/behind-the-magic-cinematic-technique-1-5-insights-for-2024/"><u>Behind the Magic Cinematic Technique #1-5 Insights for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-apps-for-3d-video-intros-on-social-platforms/"><u>Best Apps for 3D Video Intros on Social Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creative-camerawork-innovative-techniques-for-video-savvy-youtubers-for-2024/"><u>Creative Camerawork Innovative Techniques for Video-Savvy YouTubers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-recommendations-top-functional-and-stylish-mac-mouse-options-of-2024/"><u>Expert Recommendations: Top Functional & Stylish Mac Mouse Options of 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/guide-resolving-msi-afterburners-inability-to-detect-gpu-on-latest-windows-versions/"><u>Guide: Resolving MSI Afterburner's Inability to Detect GPU on Latest Windows Versions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-xiaomi-redmi-note-13-pro-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Xiaomi Redmi Note 13 Pro 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/paint-a-picture-of-perfection-chromatic-mastery-for-beauty/"><u>Paint a Picture of Perfection Chromatic Mastery for Beauty</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-playlist-pivot-new-order-strategies-for-youtube/"><u>The Playlist Pivot New Order Strategies for YouTube</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-resolving-farming-simulator-22-startup-issues/"><u>Troubleshooting Steps: Resolving 'Farming Simulator 22' Startup Issues</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/turning-product-analysis-into-income-via-video-platforms/"><u>Turning Product Analysis Into Income via Video Platforms</u></a></li>
 </ul></div>
 

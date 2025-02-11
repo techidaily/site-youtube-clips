@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Video's Visibility with Perfect Thumbnail Sizing"
-date: 2025-01-20T16:27:10.279Z
-updated: 2025-01-22T16:55:15.174Z
+date: 2025-02-08T00:27:54.313Z
+updated: 2025-02-11T03:22:47.139Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 * [**Part 2:** **Upload and Change a Custom YouTube Thumbnail to Your Video**](#part2)
 * [**Part 3:** **Q&A-- About Creating YouTube Thumbnails**](#part3)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
 Every content creator needs to select the right youtube thumbnail size for any given video.
@@ -56,6 +52,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -68,10 +68,6 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
@@ -81,9 +77,17 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -93,10 +97,6 @@ To change the thumbnail on an already uploaded video you need to follow these st
 * From the menu go to **Videos** and then select the video you want to upload a custom thumbnail to via its title or thumbnail
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
@@ -110,10 +110,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -122,6 +118,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -136,7 +136,7 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -172,20 +172,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-camera-balance-gimbals-for-drones-explained/"><u>[New] 2024 Approved Mastering Camera Balance Gimbals for Drones Explained</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-does-the-sub4sub-strategy-improve-content-consumption/"><u>[New] Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-top-8-free-online-havens-for-3d-text-psdfiles/"><u>[New] In 2024, Top 8 FREE Online Havens for 3D Text PSDFiles</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elite-channel-analyzer-top-youtube-positioning-tool/"><u>[Updated] Elite Channel Analyzer Top YouTube Positioning Tool</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/countering-harshness-maintaining-poise-online/"><u>Countering Harshness Maintaining Poise Online</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/do-youtubers-get-paid-monthly-for-2024/"><u>Do YouTubers Get Paid Monthly for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/earn-while-playing-games-online/"><u>Earn While Playing Games Online</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/from-instant-sharing-to-long-term-storage-snapshots-journey/"><u>From Instant Sharing to Long-Term Storage Snapshots' Journey</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-samsung-galaxy-s24plus-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Samsung Galaxy S24+ Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-11-pro-max-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 11 Pro Max After Forgetting the Passcode?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/prime-picks-of-youtubes-snackable-shorter-videos-free/"><u>Prime Picks of YouTube's Snackable Shorter Videos (FREE)</u></a></li>
-<li><a href="https://extra-information.techidaily.com/radiate-on-screen-quicker-ways-to-brighten-iphone-media/"><u>Radiate on Screen Quicker Ways to Brighten iPhone Media</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-art-of-disregarding-harmful-youtube-comments/"><u>The Art of Disregarding Harmful YouTube Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-impact-of-user-engagement-on-advertising/"><u>The Hidden Impact of User Engagement on Advertising</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-honor-x50iplus-by-fonelab-android-recover-music/"><u>Undelete lost music from Honor X50i+</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-streamline-task-management-with-safaris-picture-in-picture/"><u>[New] 2024 Approved Streamline Task Management with Safari's Picture In Picture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-the-insiders-guide-to-recording-games-in-windows-11/"><u>[New] In 2024, The Insider's Guide to Recording Games in Windows 11</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-city-planning-for-climate-action-a-comprehensive-guide/"><u>2024 Approved City Planning for Climate Action A Comprehensive Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oneplus-nord-ce-3-lite-5g-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your OnePlus Nord CE 3 Lite 5G Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-realme-11-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/adobe-premiere-pro-101-for-youtube-clips-and-edits/"><u>Adobe Premiere Pro 101 for YouTube Clips and Edits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/copyright-rules-for-screenshotting-and-archiving-youtube-videos/"><u>Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deciding-on-the-best-videography-camera-type-dslr-or-mirrorless-for-2024/"><u>Deciding on the Best Videography Camera Type DSLR or Mirrorless for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-solo-streamer-to-global-content-powerhouse/"><u>From Solo Streamer to Global Content Powerhouse</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-infinix-smart-8-hd-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Infinix Smart 8 HD Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-content-composer-arena/"><u>In 2024, Content Composer Arena</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/profit-from-youtube-monetize-youtube-shorts-and-boost-your-income/"><u>Profit From YouTube Monetize YouTube Shorts and Boost Your Income</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/uncovering-the-flaw-in-apples-latest-anti-theft-feature-expert-advice-on-securing-your-devices-techsafety/"><u>Uncovering the Flaw in Apple's Latest Anti-Theft Feature: Expert Advice on Securing Your Devices | TechSafety</u></a></li>
 </ul></div>
 

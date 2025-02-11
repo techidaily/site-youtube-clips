@@ -1,7 +1,7 @@
 ---
 title: "Seeking Outstanding User Contributions"
-date: 2025-01-27T02:24:24.867Z
-updated: 2025-01-29T17:36:31.519Z
+date: 2025-02-04T00:40:32.113Z
+updated: 2025-02-10T20:03:55.214Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 * [Part 8: Benefits of Highlighted Comments](#part8)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
@@ -58,10 +58,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -73,7 +69,7 @@ YouTube labels comment replies as well and call it "Highlighted Reply." You can 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -92,11 +88,11 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -107,7 +103,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -123,6 +119,10 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -169,22 +169,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-beginners-blueprint-optimal-gopro-extras-for-2024/"><u>[New] Beginner’s Blueprint Optimal GoPro Extras for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-from-zero-to-hero-in-the-youtube-world-starting-your-channel-and-earning-money/"><u>[New] In 2024, From Zero to Hero in the Youtube World Starting Your Channel & Earning Money</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-knowledge-keepers-premier-10-tools-to-record-teaching-sessions/"><u>[Updated] Knowledge Keepers Premier 10 Tools to Record Teaching Sessions</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-cutting-edge-editing-solutions-just-for-vimeo/"><u>2024 Approved Cutting-Edge Editing Solutions Just for Vimeo</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-cash-kings-leading-youtube-creators/"><u>2024 Approved Digital Cash Kings Leading YouTube Creators</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/coping-with-youtube-copyright-claims-a-step-by-step-guide-for-2024/"><u>Coping with YouTube Copyright Claims A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dominate-youtube-with-these-strategic-freefire-video-hashtags-for-2024/"><u>Dominate YouTube with These Strategic FreeFire Video Hashtags for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/exclusive-guide-to-legal-gaming-music-without-price-tag/"><u>Exclusive Guide to Legal Gaming Music Without Price Tag</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-a59-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A59 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-x8b-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove X8b PIN</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/identifying-your-individual-song-collection-on-youtube/"><u>Identifying Your Individual Song Collection on YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>In 2024, Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/maximize-your-savings-on-tech-products-with-zdnets-2021-guide-to-navigating-black-friday-and-cyber-monday-sales/"><u>Maximize Your Savings on Tech Products with ZDNet's 2021 Guide to Navigating Black Friday and Cyber Monday Sales!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/must-have-talker-alteration-tech-for-content-makers/"><u>Must-Have Talker Alteration Tech for Content Makers</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silent-battlefields-restoring-sounds-in-battlefield-4/"><u>Silent Battlefields: Restoring Sounds in Battlefield 4</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transforming-skincare-secrets-into-social-stardom/"><u>Transforming Skincare Secrets Into Social Stardom</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unleashing-potential-a-step-by-step-approach-to-youtube-links/"><u>Unleashing Potential A Step-by-Step Approach to YouTube Links</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevating-channel-excellence-with-ideas-and-vision/"><u>[New] 2024 Approved Elevating Channel Excellence with Ideas & Vision</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unpacked-strategies-for-optimal-viewing-of-live-videos/"><u>[New] 2024 Approved Unpacked Strategies for Optimal Viewing of Live Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-tv-broadcasts-with-seamless-video-loops-from-youtube/"><u>2024 Approved Enhance TV Broadcasts with Seamless Video Loops From YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diversify-referrals-tactics-for-effective-youtube-backlinks/"><u>Diversify Referrals Tactics for Effective YouTube Backlinks</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-humor-in-ai-can-intelligent-systems-craft-comical-tales/"><u>Exploring Humor in AI: Can Intelligent Systems Craft Comical Tales?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-raw-to-radiant-youtubes-art-of-visual-aesthetic/"><u>From Raw to Radiant Youtube's Art of Visual Aesthetic</u></a></li>
+<li><a href="https://windows11.techidaily.com/guide-how-to-stop-cortana-in-windows-11/"><u>Guide: How to Stop Cortana in Windows 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-xiaomi-redmi-a2plus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Xiaomi Redmi A2+ to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/leading-cable-modem-routers-for-optimal-home-networking-2024-edition/"><u>Leading Cable Modem-Routers for Optimal Home Networking - 2024 Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamlined-mobile-posting-from-apple-devices/"><u>Streamlined Mobile Posting From Apple Devices</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-10-best-80s-movies-to-watch-right-now/"><u>The 10 Best ‘80S Movies to Watch Right Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlock-the-youtube-algorithm-maximizing-viewership-with-strategic-featured-listings/"><u>Unlock the Youtube Algorithm Maximizing Viewership with Strategic Featured Listings</u></a></li>
 </ul></div>
 
