@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Decoding YouTube’s Operations Following Uploads"
-date: 2025-02-08T18:51:36.595Z
-updated: 2025-02-10T22:18:31.658Z
+date: 2025-02-19T16:31:52.249Z
+updated: 2025-02-20T16:30:40.834Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,24 +85,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-mastering-hdr-photography-your-essential-list/"><u>[New] 2024 Approved Mastering HDR Photography Your Essential List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-adjusting-youtubes-viewership-limits-for-content/"><u>[New] Adjusting YouTube's Viewership Limits for Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-clout-not-content-efficient-video-length-reduction/"><u>[New] Cutting Clout, Not Content Efficient Video Length Reduction</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-visuals-the-science-of-youtube-banners-and-thumbnails/"><u>[Updated] Crafting Visuals The Science of YouTube Banners & Thumbnails</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-5-dynamic-fitness-series-ideas-to-enhance-viewer-retention/"><u>[Updated] In 2024, 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-visionmeter-recording-suite/"><u>2024 Approved VisionMeter Recording Suite</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/best-vocal-modification-software-for-content-creators-for-2024/"><u>Best Vocal Modification Software for Content Creators for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-evaluation-of-western-digitals-data-lifeguard-a-detailed-review/"><u>Comprehensive Evaluation of Western Digital's Data Lifeguard: A Detailed Review</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/formulating-impressive-online-media-introductions/"><u>Formulating Impressive Online Media Introductions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-building-bonds-before-buying-subscription-strategies/"><u>In 2024, Building Bonds Before Buying Subscription Strategies</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-brewing-uncomfortable-elixirs-in-minecraft/"><u>Mastering the Art of Brewing Uncomfortable Elixirs in Minecraft</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/seamlessly-enter-the-realm-of-ios-vr-videos-for-2024/"><u>Seamlessly Enter the Realm of IOS VR Videos for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-recording-calls-with-ios-and-understanding-legality-across-states-insights/"><u>Step-by-Step Guide: Recording Calls with iOS and Understanding Legality Across States - Insights</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/test-your-mic-in-a-flash-a-step-by-step-guide-for-fast-audio-verification/"><u>Test Your Mic in a Flash - A Step-by-Step Guide for Fast Audio Verification</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-vr-wave-crafting-engaging-360-video-narratives-for-youtube-audiences/"><u>The VR Wave Crafting Engaging 360 Video Narratives for YouTube Audiences</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-the-secrets-of-your-personalized-youtube-playlists/"><u>Unlocking the Secrets of Your Personalized Youtube Playlists</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/vidvibes-merge-android-and-ios-insta-photos-for-2024/"><u>VidVibes Merge Android & iOS Insta Photos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-innovative-zooctorial-conceptual-kits/"><u>[New] Innovative Zooctorial Conceptual Kits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-ultimate-guide-to-mobizens-screen-capture-tool/"><u>[New] Ultimate Guide to Mobizen's Screen Capture Tool</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-melodic-mix-audio-meets-images-online/"><u>[Updated] Melodic Mix Audio Meets Images Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-youtube-success-by-uploading-from-twitch-streams/"><u>2024 Approved Crafting YouTube Success by Uploading From Twitch Streams</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-cultivating-cash-by-critiquing-consumer-commodities-online/"><u>2024 Approved Cultivating Cash by Critiquing Consumer Commodities Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>2024 Approved Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clip-conquest-top-tags-for-dominating-video-trends-on-social-media/"><u>Clip Conquest Top Tags for Dominating Video Trends on Social Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discover-your-inner-artist-with-these-leading-android-graphics-tools/"><u>Discover Your Inner Artist with These Leading Android Graphics Tools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-activate-brother-l25cuprincess-drivers-installed-in-a-flash-on-windows/"><u>Download & Activate: Brother L25cuprincess Drivers Installed in a Flash on Windows</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-silent-cast-what-to-do-when-chromecast-wont-play-sounds-correctly/"><u>Fixing Silent Cast: What to Do When Chromecast Won't Play Sounds Correctly</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-successfully-resolve-the-unfixable-l-ec-mistake-on-dvd-with-imgburn-software/"><u>How to Successfully Resolve the Unfixable L-EC Mistake on DVD with ImgBurn Software</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/seeking-instructions-firmware-update-process-for-your-scanner-guided-by-yl-computing-software-experts/"><u>Seeking Instructions: Firmware Update Process for Your Scanner - Guided by YL Computing Software Experts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-choosing-the-perfect-external-usb-optical-drive-compatible-with-windows-1110-systems/"><u>Ultimate Guide to Choosing the Perfect External USB Optical Drive Compatible with Windows 11/10 Systems</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dissecting the Narrative in YouTube Dialogues"
-date: 2025-02-10T03:09:53.809Z
-updated: 2025-02-10T18:48:39.890Z
+date: 2025-02-17T16:59:34.804Z
+updated: 2025-02-20T17:19:29.323Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,14 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -78,7 +82,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -108,7 +112,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -128,14 +132,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -175,18 +175,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-choice-10-budget-friendly-caption-tools/"><u>[New] Essential Choice 10 Budget-Friendly Caption Tools</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-ultimate-checklist-for-crafting-dynamic-vimeo-conclusions/"><u>[New] In 2024, The Ultimate Checklist for Crafting Dynamic Vimeo Conclusions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ideoblogging-victory-surviving-ten-frequent-phobias/"><u>[New] Videoblogging Victory Surviving Ten Frequent Phobias</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-expedite-your-social-media-presence-streamlined-video-upload-methods-for-instagram-desktop/"><u>[Updated] 2024 Approved Expedite Your Social Media Presence Streamlined Video Upload Methods for Instagram Desktop</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-cutting-edge-computers-notebook-recommendations-for-editors/"><u>[Updated] Cutting-Edge Computers Notebook Recommendations for Editors</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-unveiling-the-secrets-of-enhancing-video-sessions-in-google-meet/"><u>[Updated] In 2024, Unveiling the Secrets of Enhancing Video Sessions in Google Meet</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-of-breed-top-10-youtube-stations-for-journalism/"><u>2024 Approved Best of Breed Top 10 YouTube Stations for Journalism</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips/"><u>Bringing Heartwarmth to the Winter 5 Snug Cinematographic Tips</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Oppo A1 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-live-stream-to-youtube-with-wirecast/"><u>How to Live Stream to Youtube with Wirecast?</u></a></li>
-<li><a href="https://games-able.techidaily.com/seamless-xbox-viewing-on-a-secondary-laptop-screen/"><u>Seamless Xbox Viewing on a Secondary Laptop Screen</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-future-of-vr-sensory-experience-anticipating-the-integration-of-taste-touch-and-smell/"><u>The Future of VR Sensory Experience: Anticipating the Integration of Taste, Touch & Smell</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-lightroom-crafting-breathtaking-hdr-photos/"><u>[Updated] Mastering Lightroom Crafting Breathtaking HDR Photos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-broadcasting-brilliance-in-final-fragments/"><u>2024 Approved Broadcasting Brilliance in Final Fragments</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-subtitling-and-cc-addition-techniques-for-youtube-users/"><u>2024 Approved Effortless Subtitling & CC Addition Techniques for YouTube Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/asmr-audio-excellence-high-quality-mic-recommendations-for-2024/"><u>ASMR Audio Excellence High-Quality Mic Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breakthrough-youtube-success-essential-tips-from-creator-studio-guide-for-2024/"><u>Breakthrough YouTube Success Essential Tips From Creator Studio Guide for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/broad-overview-delving-into-google-podcasts-application-for-2024/"><u>Broad Overview Delving Into Google Podcasts Application for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-spotlight-tactics-a-3-step-guide/"><u>Instagram Spotlight Tactics A 3-Step Guide</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-how-to-easily-use-korean-to-english-video-translators/"><u>New In 2024, How To Easily Use Korean to English Video Translators</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/perfecting-your-video-game-broadcast-the-obs-way-for-2024/"><u>Perfecting Your Video Game Broadcast The OBS Way for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/step-by-step-handbrake-masterclass-transforming-vob-videos-into-high-quality-mp4-format/"><u>Step-by-Step Handbrake Masterclass: Transforming VOB Videos Into High-Quality MP4 Format</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down YouTube Short Barriers for 2024"
-date: 2024-07-22T20:35:59.679Z
-updated: 2024-07-23T20:35:59.679Z
+date: 2025-02-16T17:04:58.858Z
+updated: 2025-02-20T17:16:52.718Z
 tags:
   - ai video
   - ai youtube
@@ -40,302 +40,13 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 03 [Here are the solutions for YouTube Common Issues](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## What is YouTube Shorts?
-
-YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
-
-## Where can I find YouTube Shorts?
-
-Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
-
-#### Is YouTube Shorts available on Google Play or App Store?
-
-No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
-
-#### How to access YouTube Shorts on YouTube app
-
-1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
-2. You’ll then see a selection of thumbnails that harbors popular Shorts.
-3. Choose any video then click on it to bring you into the vertical video player.
-4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
-
-#### How to create YouTube Shorts
-
-Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
-
-Step 1\. You first need to install the YouTube app on your device then sign in to your account.
-
-Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
-
-Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
-
-Step 4\. You’ll then land on the “YouTube Shorts” recording page.
-
-Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
-
-Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
-
-Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
-
-Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
-
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
-
-Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
-
-Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
-
-Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
-
-## Here are the solutions for YouTube Common Issues
-
-Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
-
-#### Solution 1\. Update YouTube app
-
-Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
-
-##### On Android device
-
-1. Launch Google Play Store.
-2. Next, tap on the “three diagonal lines” at the top section of your screen.
-3. Then select the “My Apps & Games” option.
-4. Search for YouTube app and tap on the “Update” button.
-
-##### On iOS device
-
-1. Open the “App Store”
-2. Tap on your “Profile” icon.
-3. Then tap on the “Update” tab to fix the issue.
-
-##### On your computer
-
-1. Search for YouTube streaming app from the Google Play Store.
-2. Here, you’ll see an update button in case your app needs an update.
-3. Next, click on the “Update” button and wait for the update to complete.
-4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
-
-#### Solution 2\. Clear Cache
-
-A corrupt system may also cause issues with the normal operation of your application.
-
-1. Go to the “Settings” button on your phone.
-2. Then go to the “Apps” section and tap on “All Apps”
-3. Select the “YouTube” app from the list.
-4. Next, go to the “App Settings” and click on the “Storage” section.
-5. Tap on the “Clear cache and data” option.
-6. Finally, relaunch the YouTube app and check whether the issue is resolved.
-
-![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
-
-#### Solution 3\. Check if Shorts is available in your country
-
-Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
-
-1. First, download and install a VPN app.
-2. Next, select the USA or India server location to fake a GPS location.
-3. Then clear the cache from the YouTube app and click it open.
-4. You should now find the option to view and even upload Shorts from your device.
-
-#### Solution 4\. Ensure your video is set as YouTube Shorts
-
-Your video should be set as YouTube Shorts before posting.
-
-1. Identify the video that you wish to post.
-2. Add the “#shorts” in your title and description.
-3. See that each video is up to 60 seconds only.
-4. Post the video and see whether the issue isn’t reoccurring.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Conclusion
-
-It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
-
-With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
-
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
-
-#### In this article
-
-01 [What is YouTube Shorts?](#part1)
-
-02 [Where can I find YouTube Shorts?](#part2)
-
-03 [Here are the solutions for YouTube Common Issues](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is YouTube Shorts?
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Where can I find YouTube Shorts?
-
-Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
-
-#### Is YouTube Shorts available on Google Play or App Store?
-
-No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
-
-#### How to access YouTube Shorts on YouTube app
-
-1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
-2. You’ll then see a selection of thumbnails that harbors popular Shorts.
-3. Choose any video then click on it to bring you into the vertical video player.
-4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
-
-#### How to create YouTube Shorts
-
-Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
-
-Step 1\. You first need to install the YouTube app on your device then sign in to your account.
-
-Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
-
-Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
-
-Step 4\. You’ll then land on the “YouTube Shorts” recording page.
-
-Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
-
-Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
-
-Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
-
-Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
-
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
-
-Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
-
-Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
-
-Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
-
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
-
-## Here are the solutions for YouTube Common Issues
-
-Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
-
-#### Solution 1\. Update YouTube app
-
-Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
-
-##### On Android device
-
-1. Launch Google Play Store.
-2. Next, tap on the “three diagonal lines” at the top section of your screen.
-3. Then select the “My Apps & Games” option.
-4. Search for YouTube app and tap on the “Update” button.
-
-##### On iOS device
-
-1. Open the “App Store”
-2. Tap on your “Profile” icon.
-3. Then tap on the “Update” tab to fix the issue.
-
-##### On your computer
-
-1. Search for YouTube streaming app from the Google Play Store.
-2. Here, you’ll see an update button in case your app needs an update.
-3. Next, click on the “Update” button and wait for the update to complete.
-4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
-
-#### Solution 2\. Clear Cache
-
-A corrupt system may also cause issues with the normal operation of your application.
-
-1. Go to the “Settings” button on your phone.
-2. Then go to the “Apps” section and tap on “All Apps”
-3. Select the “YouTube” app from the list.
-4. Next, go to the “App Settings” and click on the “Storage” section.
-5. Tap on the “Clear cache and data” option.
-6. Finally, relaunch the YouTube app and check whether the issue is resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
-![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
-
-#### Solution 3\. Check if Shorts is available in your country
-
-Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
-
-1. First, download and install a VPN app.
-2. Next, select the USA or India server location to fake a GPS location.
-3. Then clear the cache from the YouTube app and click it open.
-4. You should now find the option to view and even upload Shorts from your device.
-
-#### Solution 4\. Ensure your video is set as YouTube Shorts
-
-Your video should be set as YouTube Shorts before posting.
-
-1. Identify the video that you wish to post.
-2. Add the “#shorts” in your title and description.
-3. See that each video is up to 60 seconds only.
-4. Post the video and see whether the issue isn’t reoccurring.
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Conclusion
-
-It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
-
-With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
-
-![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
-
-#### In this article
-
-01 [What is YouTube Shorts?](#part1)
-
-02 [Where can I find YouTube Shorts?](#part2)
-
-03 [Here are the solutions for YouTube Common Issues](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
-## What is YouTube Shorts?
-
-YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
 ## Where can I find YouTube Shorts?
 
@@ -374,9 +85,6 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
@@ -387,9 +95,6 @@ Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Here are the solutions for YouTube Common Issues
 
 Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
@@ -473,9 +178,6 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Where can I find YouTube Shorts?
 
 Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
@@ -501,9 +203,6 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
@@ -516,9 +215,282 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
+![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
+
+Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
+
+Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
+
+![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Here are the solutions for YouTube Common Issues
+
+Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
+
+#### Solution 1\. Update YouTube app
+
+Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
+
+##### On Android device
+
+1. Launch Google Play Store.
+2. Next, tap on the “three diagonal lines” at the top section of your screen.
+3. Then select the “My Apps & Games” option.
+4. Search for YouTube app and tap on the “Update” button.
+
+##### On iOS device
+
+1. Open the “App Store”
+2. Tap on your “Profile” icon.
+3. Then tap on the “Update” tab to fix the issue.
+
+##### On your computer
+
+1. Search for YouTube streaming app from the Google Play Store.
+2. Here, you’ll see an update button in case your app needs an update.
+3. Next, click on the “Update” button and wait for the update to complete.
+4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
+
+#### Solution 2\. Clear Cache
+
+A corrupt system may also cause issues with the normal operation of your application.
+
+1. Go to the “Settings” button on your phone.
+2. Then go to the “Apps” section and tap on “All Apps”
+3. Select the “YouTube” app from the list.
+4. Next, go to the “App Settings” and click on the “Storage” section.
+5. Tap on the “Clear cache and data” option.
+6. Finally, relaunch the YouTube app and check whether the issue is resolved.
+
+![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
+
+#### Solution 3\. Check if Shorts is available in your country
+
+Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
+
+1. First, download and install a VPN app.
+2. Next, select the USA or India server location to fake a GPS location.
+3. Then clear the cache from the YouTube app and click it open.
+4. You should now find the option to view and even upload Shorts from your device.
+
+#### Solution 4\. Ensure your video is set as YouTube Shorts
+
+Your video should be set as YouTube Shorts before posting.
+
+1. Identify the video that you wish to post.
+2. Add the “#shorts” in your title and description.
+3. See that each video is up to 60 seconds only.
+4. Post the video and see whether the issue isn’t reoccurring.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
+
+With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
+
+![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
+
+#### In this article
+
+01 [What is YouTube Shorts?](#part1)
+
+02 [Where can I find YouTube Shorts?](#part2)
+
+03 [Here are the solutions for YouTube Common Issues](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## What is YouTube Shorts?
+
+YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
+
+## Where can I find YouTube Shorts?
+
+Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
+
+#### Is YouTube Shorts available on Google Play or App Store?
+
+No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
+
+#### How to access YouTube Shorts on YouTube app
+
+1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
+2. You’ll then see a selection of thumbnails that harbors popular Shorts.
+3. Choose any video then click on it to bring you into the vertical video player.
+4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
+
+#### How to create YouTube Shorts
+
+Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
+
+Step 1\. You first need to install the YouTube app on your device then sign in to your account.
+
+Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
+
+Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
+
+![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+
+Step 4\. You’ll then land on the “YouTube Shorts” recording page.
+
+Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
+
+Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
+
+Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
+
+Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
+
+![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+
+Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
+
+Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
+
+Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
+
+![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+
+## Here are the solutions for YouTube Common Issues
+
+Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
+
+#### Solution 1\. Update YouTube app
+
+Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
+
+##### On Android device
+
+1. Launch Google Play Store.
+2. Next, tap on the “three diagonal lines” at the top section of your screen.
+3. Then select the “My Apps & Games” option.
+4. Search for YouTube app and tap on the “Update” button.
+
+##### On iOS device
+
+1. Open the “App Store”
+2. Tap on your “Profile” icon.
+3. Then tap on the “Update” tab to fix the issue.
+
+##### On your computer
+
+1. Search for YouTube streaming app from the Google Play Store.
+2. Here, you’ll see an update button in case your app needs an update.
+3. Next, click on the “Update” button and wait for the update to complete.
+4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
+
+#### Solution 2\. Clear Cache
+
+A corrupt system may also cause issues with the normal operation of your application.
+
+1. Go to the “Settings” button on your phone.
+2. Then go to the “Apps” section and tap on “All Apps”
+3. Select the “YouTube” app from the list.
+4. Next, go to the “App Settings” and click on the “Storage” section.
+5. Tap on the “Clear cache and data” option.
+6. Finally, relaunch the YouTube app and check whether the issue is resolved.
+
+![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
+
+#### Solution 3\. Check if Shorts is available in your country
+
+Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
+
+1. First, download and install a VPN app.
+2. Next, select the USA or India server location to fake a GPS location.
+3. Then clear the cache from the YouTube app and click it open.
+4. You should now find the option to view and even upload Shorts from your device.
+
+#### Solution 4\. Ensure your video is set as YouTube Shorts
+
+Your video should be set as YouTube Shorts before posting.
+
+1. Identify the video that you wish to post.
+2. Add the “#shorts” in your title and description.
+3. See that each video is up to 60 seconds only.
+4. Post the video and see whether the issue isn’t reoccurring.
+
+## Conclusion
+
+It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
+
+With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
+
+![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
+
+#### In this article
+
+01 [What is YouTube Shorts?](#part1)
+
+02 [Where can I find YouTube Shorts?](#part2)
+
+03 [Here are the solutions for YouTube Common Issues](#part3)
+
+## What is YouTube Shorts?
+
+YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
+
+## Where can I find YouTube Shorts?
+
+Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
+
+#### Is YouTube Shorts available on Google Play or App Store?
+
+No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
+
+#### How to access YouTube Shorts on YouTube app
+
+1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
+2. You’ll then see a selection of thumbnails that harbors popular Shorts.
+3. Choose any video then click on it to bring you into the vertical video player.
+4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
+
+#### How to create YouTube Shorts
+
+Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
+
+Step 1\. You first need to install the YouTube app on your device then sign in to your account.
+
+Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
+
+Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
+
+![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+
+Step 4\. You’ll then land on the “YouTube Shorts” recording page.
+
+Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
+
+Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
+
+Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
+
+Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
+
 ![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
@@ -638,123 +610,6 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
-![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-
-And here it is with hair clips:
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
-![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-
-Now you can set your smartphone upon any stable surface, like a table or a stack of books.
-
- _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### **DIY adjustable tripod using books and a towel**
-
-You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
-
-But if you can use any stable surface, why do people buy tripods?
-
-Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
-
-To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
-
-1. Set up the area where you’re going to sit while you’re filming on one end of the table.
-2. Put the towel down over the approximate spot you want your camera to be.
-3. Stack your books on top of the towel.
-4. Put your camera on top of the books.
-
-Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-### **DIY gripping ‘Gorillapod’ using wire and tape**
-
-Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
-
-Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
-
- ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-_All of your supplies plus the finished product._
-
-**Readying your legs**
-
-**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
-
-**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
-
-Repeat this with the other two wires.
-
- **Attaching your legs**
-
-_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
-
-_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
-
- Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
-
-_Note: make sure the bolt is a fit for your camera before you get too far into this process._
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
-
-### DIY Your Video with Wondershare Filmora
-
-Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Here are 3 of our favorite DIY tripods.
-
-### **DIY smartphone tripod using binder clips or hair clips**
-
-You’re a solo operation and your best camera is on your phone. That’s pretty common.
-
-If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
-
-No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
-
-Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
-
-Here it is with binder clips:
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
@@ -782,6 +637,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -789,6 +648,10 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -830,16 +693,10 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -879,19 +736,17 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -913,9 +768,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -936,16 +788,14 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -958,22 +808,20 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -997,9 +845,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -1022,9 +867,97 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
+
+### DIY Your Video with Wondershare Filmora
+
+Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Here are 3 of our favorite DIY tripods.
+
+### **DIY smartphone tripod using binder clips or hair clips**
+
+You’re a solo operation and your best camera is on your phone. That’s pretty common.
+
+If you have a DSLR then you can set it down on any stable surface while filming yourself, but your phone can’t stand up by itself. It needs something or someone to hold it. Do you just accept that and shoot everything as a selfie?
+
+No. No, you don’t, because there are common household items that can help you out of this problem. For this DIY tripod, you need either **2 binder clips** or **2 ‘claw clips’** (also called ‘hair jaws’).
+
+Hold your phone in landscape mode (horizontally, so it’s long rather than tall) and attach clips to the bottom corners. If you are worried about scratching your screen, fold up some paper to place between your clip and your phone.
+
+Here it is with binder clips:
+
+![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+And here it is with hair clips:
+
+![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+Now you can set your smartphone upon any stable surface, like a table or a stack of books.
+
+ _Here are some more cool ideas!_
+
+### **DIY adjustable tripod using books and a towel**
+
+You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
+
+But if you can use any stable surface, why do people buy tripods?
+
+Because it isn’t convenient to rearrange your furniture whenever you want to make a video, and also because tripods are adjustable. You can change their height, you can use them to pan or tilt, and it’s pretty easy to move them a bit forwards or backward while you’re setting up your shot.
+
+To get similar functions from the ‘any stable surface’ solution you can use a **table**, a **stack of books**, and a **towel**.
+
+1. Set up the area where you’re going to sit while you’re filming on one end of the table.
+2. Put the towel down over the approximate spot you want your camera to be.
+3. Stack your books on top of the towel.
+4. Put your camera on top of the books.
+
+Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
+
+### **DIY gripping ‘Gorillapod’ using wire and tape**
+
+Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
+
+Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
+
+ ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+_All of your supplies plus the finished product._
+
+**Readying your legs**
+
+**_Step 1:_** Bend 2 inches at one end of each wire into a ‘U’ shape. You will probably need pliers for this.
+
+**_Step 2:_** Pick up one of your pieces of wire and wrap one end with electrical tape. Go around 5-10 times (to prevent it from coming undone at the end) and then, without cutting your tape, start moving up and wrapping the rest of your wire. Stop before your ‘U’ section.
+
+Repeat this with the other two wires.
+
+ **Attaching your legs**
+
+_**Step 1:**_ Place the ‘U’ section of a leg against your bolt. The bolt’s threading should be pointing away from the leg. Now, use your tape to attach them. Wind it around 2 or 3 times, then repeat the process with both of the other legs individually.
+
+_**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 as tightly as you can.
+
+ Your camera will mount onto the bolt! You’ll be able to use this as a normal table-top tripod or use the flexible legs to grab onto different things like a Gorillapod. _Read more at_ [_Instructables_.](http://www.instructables.com/id/Pocket-Tripod/)
+
+_Note: make sure the bolt is a fit for your camera before you get too far into this process._
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -1046,7 +979,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-implementing-photography-snippets-from-videos/"><u>[Updated] 2024 Approved Implementing Photography Snippets From Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-noir-nights-transitioning-with-pro/"><u>[Updated] Noir Nights - Transitioning with Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-gif-editor-how-to-make-animated-gif-images-online-from-youtube-video/"><u>2024 Approved GIF Editor How to Make Animated GIF Images Online From YouTube Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods-for-2024/"><u>Bursting Laughter Crafting Engaging Reaction Videos on YouTube (3 Methods) for 2024</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/clonar-su-hd-facilmente-utilizando-simbolo-del-sistema-top-3-soluciones-optimizadas-para-google/"><u>Clonar Su HD Fácilmente Utilizando Símbolo Del Sistema: Top 3 Soluciones Optimizadas Para Google</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creating-simple-videos-top-10-youtube-projects-anyone-can-do-for-2024/"><u>Creating Simple Videos Top 10 YouTube Projects Anyone Can Do for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/direct-from-device-to-digital-world-recording-your-apple-gadgets/"><u>Direct From Device to Digital World Recording Your Apple Gadgets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/echoes-of-the-past-the-top-10-youtube-sources-for-history-lovers-for-2024/"><u>Echoes of the Past The Top 10 YouTube Sources for History Lovers for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-vivo-s18-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Vivo S18 Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-x-ios-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone X iOS System? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/perfecting-your-vids-a-comprehensive-youtube-studio-tutorial/"><u>Perfecting Your Vids A Comprehensive YouTube Studio Tutorial</u></a></li>
+</ul></div>
 

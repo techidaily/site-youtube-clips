@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost"
-date: 2025-02-10T00:16:49.907Z
-updated: 2025-02-10T16:17:44.436Z
+date: 2025-02-14T17:16:42.063Z
+updated: 2025-02-20T16:34:11.460Z
 tags:
   - ai video
   - ai youtube
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 
 If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
@@ -43,7 +39,7 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
@@ -55,27 +51,27 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
@@ -83,6 +79,10 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -99,24 +99,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-chart-success-the-top-online-stock-portals/"><u>[New] Chart Success The Top Online Stock Portals</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-essential-audio-tools-free-superior-dj-templates-online/"><u>[New] Essential Audio Tools Free, Superior DJ Templates Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-strategic-social-sharing-master-facebook-story-linking/"><u>[New] Strategic Social Sharing Master Facebook Story Linking</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-crafting-content-for-specific-youtube-subsets/"><u>[Updated] Crafting Content for Specific Youtube Subsets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-does-investing-in-video-growth-pay-off-on-yt/"><u>[Updated] Does Investing in Video Growth Pay Off on YT?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-gif-to-sticker-guide-mastering-conversion-on-discord-whatsapp-telegram/"><u>[Updated] GIF to Sticker Guide Mastering Conversion on Discord, WhatsApp, Telegram</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-diy-youtube-thumbnails-on-smartphones/"><u>2024 Approved DIY YouTube Thumbnails on Smartphones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boosting-revenue-with-youtube-short-videos-a-complete-plan-for-2024/"><u>Boosting Revenue with YouTube Short Videos – A Complete Plan for 2024</u></a></li>
-<li><a href="https://win-studio.techidaily.com/comment-resoudre-le-probleme-de-la-commande-attrib-qui-nest-plus-actif/"><u>Comment Résoudre Le Problème De 'La Commande Attrib' Qui N'Est Plus Actif?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-standout-youtube-thumbnails-with-ease/"><u>Crafting Standout YouTube Thumbnails with Ease</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-video-visibility-through-thumbnails-for-2024/"><u>Elevating Video Visibility Through Thumbnails for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Vivo G2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/is-there-a-new-champion-in-voip-services-or-does-vonage-still-reign-supreme/"><u>Is There a New Champion in VoIP Services, or Does Vonage Still Reign Supreme?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/making-money-with-videos-strategies-for-the-aspiring-vlogger/"><u>Making Money with Videos Strategies for the Aspiring Vlogger</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/protecting-your-digital-wealth-expert-tips-on-securely-storing-cryptocurrency-by-yl-computing-yl-software/"><u>Protecting Your Digital Wealth: Expert Tips on Securely Storing Cryptocurrency by YL Computing | YL Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tackling-steam-library-no-sync-error-solution/"><u>Tackling Steam Library: No Sync Error Solution</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-ultimate-guide-to-optimizing-web-video-load-times-with-effective-compression-strategies/"><u>The Ultimate Guide to Optimizing Web Video Load Times with Effective Compression Strategies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-places-for-discovering-premium-soundtracks-from-instagram-and-designing-exceptional-ringtone-alerts-for-2024/"><u>Top Places for Discovering Premium Soundtracks From Instagram & Designing Exceptional Ringtone Alerts for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/be-earnings-guide-policy-overhaul-explained-for-2024/"><u>YouTube Earnings Guide Policy Overhaul Explained for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ensure-flawless-slack-conversations-best-10-free-recorder-apps/"><u>[New] Ensure Flawless Slack Conversations Best 10 Free Recorder Apps</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-ranking-win11s-best-no-cost-screen-recording-software/"><u>[New] In 2024, Ranking Win11's Best No-Cost Screen Recording Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-quick-and-cool-xbox-snapshots-a-gamers-bible-for-2024/"><u>[New] Quick & Cool Xbox Snapshots A Gamers' Bible for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-beauty-blogging-beginnings-crafting-a-captivating-youtube-channel/"><u>2024 Approved Beauty Blogging Beginnings Crafting a Captivating YouTube Channel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-configure-youtubes-audience-options-with-ease/"><u>2024 Approved Configure YouTube's Audience Options with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>2024 Approved Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-dangerous-subscriber-scams-online/"><u>2024 Approved Decoding Dangerous Subscriber Scams Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-free-youtube-video-editing-apps-for-iphone-and-ipad-for-2024/"><u>Best Free YouTube Video Editing Apps for iPhone & iPad for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/captioning-techniques-for-professional-youtube-content-for-2024/"><u>Captioning Techniques for Professional YouTube Content for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-normalizing-audio-in-3-quick-ways-audio-normalization/"><u>In 2024, Normalizing Audio in 3 Quick Ways-Audio Normalization</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-pro-level-video-creation-made-easy-tips-and-tricks-for-stunning-movies/"><u>New In 2024, Pro-Level Video Creation Made Easy Tips and Tricks for Stunning Movies</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-11-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 11 Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/ssdwindows-10cdcd/"><u>SSD安装Windows 10指南：带CD和无CD两种启动方法</u></a></li>
 </ul></div>
 

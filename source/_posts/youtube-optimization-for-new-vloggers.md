@@ -1,7 +1,7 @@
 ---
 title: "YouTube Optimization for New Vloggers"
-date: 2025-02-07T17:14:15.001Z
-updated: 2025-02-10T17:37:34.920Z
+date: 2025-02-18T17:00:52.101Z
+updated: 2025-02-20T16:00:56.959Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -52,15 +56,15 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -93,6 +97,10 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -160,6 +168,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -194,10 +206,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -207,10 +215,6 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -225,10 +229,6 @@ Want to know more thumbnail maker? Check our picks of the [best free YouTube thu
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -263,7 +263,7 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -285,21 +285,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-youtube-to-insta-a-video-posting-guide-for-2024/"><u>[New] From YouTube to Insta A Video Posting Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-cloud-costs-top-picks-for-value/"><u>[New] In 2024, Cloud Costs Top Picks for Value</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-premier-racing-games-roundup/"><u>[New] Premier Racing Games Roundup</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/outubings-endgame-secrets-from-top-creators-and-templates/"><u>[New] YouTubing's Endgame Secrets From Top Creators and Templates</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-advanced-techniques-using-jump-cuts-effectively/"><u>[Updated] Advanced Techniques Using Jump Cuts Effectively</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-easy-relaxation-no-license-sounds/"><u>[Updated] In 2024, Easy Relaxation No-License Sounds</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-secret-story-spotters-top-5-app-recommendations/"><u>[Updated] In 2024, Secret Story Spotters Top 5 App Recommendations</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/combining-power-of-abbyy-with-alteryx-for-enhanced-data-management-and-process-automation-solutions/"><u>Combining Power of ABBYY with Alteryx for Enhanced Data Management and Process Automation Solutions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/fast-techniques-for-reordering-youtube-video-queues/"><u>Fast Techniques for Reordering YouTube Video Queues</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/green-filming-gurus-on-yt-transform-your-set-with-greenscreens/"><u>Green Filming Gurus on YT Transform Your Set with Greenscreens</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cool-climates-with-a-warm-twist-selecting-video-bgs/"><u>In 2024, Cool Climates with a Warm Twist Selecting Video Bg's</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-epicurean-epiphanies-filming-feast-creation/"><u>In 2024, Epicurean Epiphanies Filming Feast Creation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/g-the-most-out-of-creative-commons-licenses-for-2024/"><u>Making the Most Out of Creative Commons Licenses for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/reduce-share-and-enjoy-top-5-shortened-urls-for-youtube/"><u>Reduce, Share and Enjoy Top 5 Shortened URLs for YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/small-shop-success-through-social-video-content/"><u>Small Shop Success Through Social Video Content</u></a></li>
-<li><a href="https://common-error.techidaily.com/unstoppable-exe-how-to-handle-application-stopped-working-mishaps/"><u>Unstoppable Exe: How to Handle Application Stopped Working Mishaps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-guide-mp3-to-youtube-live-streaming-3-phases/"><u>[New] In 2024, Step-By-Step Guide MP3 to YouTube Live Streaming [3 Phases]</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-advanced-software-for-animation-and-modeling/"><u>[Updated] 2024 Approved Advanced Software for Animation & Modeling</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/30-powerful-freegame-hashtags-for-dominating-youtube/"><u>30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/a-positive-outlook-the-smooth-process-of-pre-ordering-the-new-apple-vision-pro-reflects-exciting-future-prospects-gadgetguru/"><u>A Positive Outlook: The Smooth Process of Pre-Ordering the New Apple Vision Pro Reflects Exciting Future Prospects | GadgetGuru</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-common-errors-perfect-tripod-usage-in-video-production/"><u>Avoiding Common Errors Perfect Tripod Usage in Video Production</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cease-non-filtered-youtube-video-trail/"><u>Cease Non-Filtered YouTube Video Trail</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/charisma-in-characters-two-ways-to-enliven-text/"><u>Charisma in Characters Two Ways to Enliven Text</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-selecting-premium-webcam-recording-tools-for-microsofts-latest-os-windows-11/"><u>The Ultimate Guide to Selecting Premium Webcam Recording Tools for Microsoft's Latest OS, Windows 11</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-rated-diamond-cut-engagement-ring-choices-beyond-traditional-al-alternative/"><u>Top Rated Diamond Cut Engagement Ring Choices : Beyond Traditional Al Alternative</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade\""
-date: 2025-02-06T19:50:04.725Z
-updated: 2025-02-11T01:13:51.385Z
+date: 2025-02-17T16:46:23.505Z
+updated: 2025-02-20T16:09:04.228Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your YouTube Analytics
@@ -42,7 +42,7 @@ While many of the stats you can find on Social Blade are also available right on
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
@@ -64,7 +64,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -84,13 +84,13 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -108,24 +108,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-analyzing-the-income-generated-by-every-youtube-viewer/"><u>[New] Analyzing the Income Generated by Every YouTube Viewer</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-cyber-self-portraiture-creating-a-caricatured-emblem-for-2024/"><u>[New] Cyber Self-Portraiture Creating a Caricatured Emblem for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-drive-engagement-tips-for-going-viral-on-instagram-for-2024/"><u>[New] Drive Engagement Tips for Going Viral on Instagram for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-free-to-fortune-carryminatis-youtube-transformation-ajey/"><u>[New] In 2024, From Free to Fortune CarryMinati’s YouTube Transformation (Ajey)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-the-secrets-of-montage-image-assembly/"><u>[New] Unveiling the Secrets of Montage Image Assembly</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[Updated] Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-content-youtube-thumbnail-artistry-on-mac/"><u>[Updated] Elevate Your Content YouTube Thumbnail Artistry on Mac</u></a></li>
-<li><a href="https://common-error.techidaily.com/diagnosing-common-problems-with-usb-to-hdmi-interface-failures/"><u>Diagnosing Common Problems with USB to HDMI Interface Failures</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exclusive-access-sharing-restricted-youtube-content-with-emailid/"><u>Exclusive Access Sharing Restricted YouTube Content with EmailID</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/free-yourself-from-fringe-a-youtube-video-fix-guide/"><u>Free Yourself From Fringe A YouTube Video Fix Guide</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-voice-chat-connectivity-post-update-for-rainbow-six-siege/"><u>How to Restore Voice Chat Connectivity Post-Update for Rainbow Six Siege</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-update-nvidia-geforce-rtx-1eighty-graphics-card-driver-for-windows-11-download-and-setup-tutorial/"><u>How to Update NVIDIA GeForce RTX 1Eighty Graphics Card Driver for Windows 11: Download & Setup Tutorial</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/immortals-fenyx-rising-release-delayed-update-resolved/"><u>Immortals Fenyx Rising Release Delayed - Update Resolved</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-cease-non-filtered-youtube-video-trail/"><u>In 2024, Cease Non-Filtered YouTube Video Trail</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-the-perfect-panel-of-playback-with-youtube/"><u>In 2024, Crafting the Perfect Panel of Playback with YouTube</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/subscribe-like-a-pro-true-or-false/"><u>Subscribe Like a Pro True or False?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/tailoring-your-content-to-perfection-youtube-edits-in-sony-vegas-style/"><u>Tailoring Your Content to Perfection YouTube Edits in Sony Vegas Style</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-tips-for-selecting-and-acquiring-your-dream-tv-setup-at-home/"><u>Top Tips for Selecting & Acquiring Your Dream TV Setup at Home</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/upcoming-ipad-pro-and-air-models-set-for-early-arrival-in-may-unveil-upgrades/"><u>Upcoming iPad Pro and Air Models Set for Early Arrival in May? Unveil Upgrades !</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-asus-proart-pa32u-review-4k-hdr-professional-monitor-review/"><u>[Updated] 2024 Approved ASUS ProArt PA32U Review 4K HDR Professional Monitor Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-captioning-techniques-for-professional-youtube-content/"><u>[Updated] 2024 Approved Captioning Techniques for Professional YouTube Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-selection-turn-your-videos-into-text-fast/"><u>2024 Approved Best Selection Turn Your Videos Into Text Fast</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>2024 Approved Digital Content Contenders Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>2024 Approved Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-tips-for-embedding-music-in-social-media-videos/"><u>2024 Approved Tips for Embedding Music in Social Media Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-the-power-of-sony-vegas-to-enhance-your-youtube-channel/"><u>2024 Approved Unlock the Power of Sony Vegas to Enhance Your YouTube Channel</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-tutorial-for-reinstalling-intel-centrino-apro-wireless-n-4905agn-drivers-on-your-pc/"><u>Complete Tutorial for Reinstalling Intel Centrino A/Pro Wireless - N 4905AGN Drivers on Your PC</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/enhance-your-apple-devices-functionality-with-essential-tips-to-add-more-ports-unveiled-by-zdnet-experts/"><u>Enhance Your Apple Device's Functionality with Essential Tips to Add More Ports – Unveiled by ZDNet Experts</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-video-shorts-to-generate-income-online/"><u>Leveraging Video Shorts to Generate Income Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-partial-youtube-extraction/"><u>Mastering the Art of Partial YouTube Extraction</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/rapid-renderings-the-win10-way-to-work-wonders-on-images-quickly/"><u>Rapid Renderings The Win10 Way to Work Wonders on Images Quickly</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oppo-a56s-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Oppo A56s 5G Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Elevating Your Video Content  YouTube to IGTV Transition\""
-date: 2025-02-09T22:11:35.029Z
-updated: 2025-02-10T17:00:50.929Z
+date: 2025-02-17T16:34:44.982Z
+updated: 2025-02-20T17:28:45.406Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
@@ -48,23 +48,19 @@ Once you have the file, you can **create a new project** in Filmora and then aft
 
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
 Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
 
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
 
@@ -76,6 +72,10 @@ You can watch the video below to find out more information about the Auto-Refram
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
 YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
@@ -84,16 +84,12 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
@@ -114,6 +110,10 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -129,20 +129,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-wallet-friendly-skyvaults-affordable-ample-data-storing/"><u>[New] In 2024, Wallet-Friendly SkyVaults Affordable, Ample Data Storing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[Updated] Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-comparing-digital-platform-profits-dailymovement-to-youtube-revenue/"><u>[Updated] Comparing Digital Platform Profits DailyMovement to YouTube Revenue</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-earning-through-eyes-the-actual-youtube-view-count-needed/"><u>2024 Approved Earning Through Eyes The Actual YouTube View Count Needed</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-financial-anatomy-of-youtube-shorts-money-splitting/"><u>2024 Approved The Financial Anatomy of YouTube Shorts Money Splitting</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-video-editing-software-showdown-bandicam-vs-camtasia/"><u>2024 Approved Video Editing Software Showdown Bandicam vs Camtasia</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-beginners-guide-to-youtube-seo-keywords-for-2024/"><u>A Beginner's Guide to YouTube SEO Keywords for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-dj-delight-choosing-ultimate-event-videos/"><u>In 2024, DJ Delight Choosing Ultimate Event Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevate-your-channels-youtubes-partner-program/"><u>In 2024, Elevate Your Channels - YouTube's Partner Program</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/laughter-logic-lab-for-2024/"><u>Laughter Logic Lab for 2024</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/master-file-exporting-with-emeditor-transform-documents-into-spreadsheet-wonders/"><u>Master File Exporting with EmEditor - Transform Documents Into Spreadsheet Wonders!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/pioneering-the-pathway-personal-youtube-videos-in-google-accounts/"><u>Pioneering the Pathway Personal YouTube Videos in Google Accounts</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unraveling-the-turing-test-future-of-ai-triumphs/"><u>Unraveling the Turing Test: Future of AI Triumphs?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-daily-diary-staying-fresh-and-avoiding-common-mistakes-for-2024/"><u>Your Daily Diary Staying Fresh & Avoiding Common Mistakes for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-leading-video-ranking-tools-for-youtube-success/"><u>[New] Discover Leading Video Ranking Tools for YouTube Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-hosting-charismatic-chats-keeping-audiences-hooked-live/"><u>[Updated] 2024 Approved Hosting Charismatic Chats Keeping Audiences Hooked Live</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-minute-details-on-screen-through-zooming-techniques/"><u>[Updated] Mastering Minute Details On-Screen Through Zooming Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/15-things-to-do-while-listening-to-podcasts-for-2024/"><u>15 Things to Do While Listening to Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-premium-microphones-for-videographers/"><u>2024 Approved Premium Microphones for Videographers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/confirmation-techniques-for-youtube-accounts/"><u>Confirmation Techniques for Youtube Accounts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-script-to-spectacle-independent-effect-innovation/"><u>From Script to Spectacle Independent Effect Innovation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-breaking-even-on-youtube-key-view-figures-explored/"><u>In 2024, Breaking Even on YouTube Key View Figures Explored</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-your-gear-usage-a-guide-to-windows-widgets/"><u>Navigating Your Gear Usage: A Guide to Windows Widgets</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/smooth-loop-setup-tailoring-youtube-content-for-television/"><u>Smooth Loop Setup Tailoring YouTube Content for Television</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722897496127-two-factor-fortified-learn-to-implement-advanced-authentication-on-gmail-today/"><u>Two-Factor Fortified: Learn to Implement Advanced Authentication on Gmail Today</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/wie-man-loschte-daten-wieder-aus-dem-papierkorb-auf-mac-os-x-rettet/"><u>Wie Man Löschte Daten Wieder Aus Dem Papierkorb Auf Mac OS X Rettet</u></a></li>
 </ul></div>
 

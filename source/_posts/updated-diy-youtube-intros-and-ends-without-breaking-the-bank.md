@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2025-02-06T21:11:32.643Z
-updated: 2025-02-11T00:59:07.080Z
+date: 2025-02-19T16:09:06.924Z
+updated: 2025-02-20T17:46:45.443Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/fa8c86c87f3c1271d21091d603f6092e646d5c6b0
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,14 +143,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-bringing-your-video-games-to-life-customizable-channel-headers/"><u>[New] 2024 Approved Bringing Your Video Games to Life Customizable Channel Headers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-calculating-monetary-gain-for-a-milion-of-youtube-watchers/"><u>[New] Calculating Monetary Gain for a Milion of YouTube Watchers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-small-scale-streaming-mastery-on-youtube-without-big-subscriber-base/"><u>[Updated] Small-Scale Streaming Mastery on YouTube Without Big Subscriber Base</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-team-with-expert-talent-selections/"><u>2024 Approved Elevate Your Team with Expert Talent Selections</u></a></li>
-<li><a href="https://fox-within.techidaily.com/1728475916565-aomei/"><u>AOMEI一键系统恢复技术人员及个性化数据保存功能</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-picks-top-uninterruptible-power-supplies/"><u>Expert Picks: Top Uninterruptible Power Supplies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/maximizing-video-reach-through-title-and-tag-synergy/"><u>Maximizing Video Reach Through Title & Tag Synergy</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/turn-a-blank-slate-on-fb-videos-for-2024/"><u>Turn a Blank Slate on FB Videos for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/worlds-best-short-videos-download-now-free/"><u>World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-darkest-hours-meet-brightest-blessings/"><u>[New] 2024 Approved Darkest Hours Meet Brightest Blessings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-prime-ways-from-video-links-to-audio-downloads/"><u>[New] In 2024, Prime Ways From Video Links to Audio Downloads</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-monetization-sourav-joshi-income-on-youtube-2024/"><u>[Updated] YouTube Monetization Sourav Joshi Income on YouTube 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>2024 Approved Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-the-art-of-youtube-playlist-recalibration/"><u>2024 Approved Decoding the Art of YouTube Playlist Recalibration</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-channelenas-expensive-check-out-our-11-free-name-generators-guide/"><u>2024 Approved Elevate Your Channel'enas Expensive? Check Out Our 11 Free Name Generators Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-quick-guide-youtube-videos-turned-into-engaging-animation-gifs/"><u>2024 Approved Quick Guide YouTube Videos Turned Into Engaging Animation Gifs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-vision-realized-creating-and-launching-an-engaging-youtube-chanel/"><u>A Vision Realized Creating and Launching an Engaging YouTube Chanel</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube/"><u>Break It Down Streamlining Video Length with Efficient Chapter Breaks on YouTube</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/countermoves-in-media-how-to-reverse-videos/"><u>Countermoves in Media How to Reverse Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-iphone-15-plus-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on iPhone 15 Plus</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-narzo-60-pro-5g-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Narzo 60 Pro 5G</u></a></li>
+<li><a href="https://article-posts.techidaily.com/throughput-your-videos-8-top-android-apps/"><u>Throughput Your Videos 8 Top Android Apps</u></a></li>
 </ul></div>
 

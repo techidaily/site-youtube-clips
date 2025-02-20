@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2025-02-05T01:52:32.650Z
-updated: 2025-02-11T00:04:20.753Z
+date: 2025-02-18T16:25:57.982Z
+updated: 2025-02-20T16:21:58.732Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ You have a great idea for a video, but you’re just not sure how to express it 
 3. [After Writing Your YouTube Video Script](#after)
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
@@ -43,20 +47,20 @@ Here are some things to do before you start writing your script for YouTube:
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
@@ -70,10 +74,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -97,10 +97,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -108,7 +104,7 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -118,6 +114,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-blend-unique-web-humor-freshly-made/"><u>[New] Blend Unique Web Humor Freshly Made</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates/"><u>[New] Boost Your Channels Crafting Captivating YT Descriptions Using Custom Templates</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>[New] Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-dismantle-bots-elevate-youtube-watch-time/"><u>[New] Dismantle Bots, Elevate YouTube Watch Time</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-tips-for-exceptional-vr-gaming-video-quality/"><u>[New] In 2024, Ultimate Tips for Exceptional VR Gaming Video Quality</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-t5-thievery-released-a-deep-dive-review-for-2024/"><u>[New] T5 Thievery Released - A Deep Dive Review for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-video-branding-incorporating-watermarks-into-youtube-media/"><u>[Updated] Elevate Video Branding Incorporating Watermarks Into YouTube Media</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-techno-gamers-income-revolution/"><u>[Updated] Techno Gamers' Income Revolution</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>2024 Approved Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-infinix-hot-40-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Infinix Hot 40 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/efface-thin-borders-for-a-seamless-youtube-experience/"><u>Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-iphone-15-pro-maxipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled iPhone 15 Pro Max/iPad Without Computer</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-creative-overlays-for-video-content/"><u>In 2024, Top 10 Creative Overlays for Video Content</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/increase-video-traffic-key-youtube-seo-strategies/"><u>Increase Video Traffic Key YouTube SEO Strategies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mirthful-browsings-your-ultimate-list-of-top-comedy-vids/"><u>Mirthful Browsings Your Ultimate List of Top Comedy Vids</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/pursuing-perfection-on-track-compiling-top-5-simulators-for-2024/"><u>Pursuing Perfection on Track Compiling Top 5 Simulators for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/rapid-restoration-of-reddit-archives-removed/"><u>Rapid Restoration of Reddit Archives Removed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-master-the-art-of-captivating-instagram-video-audiences/"><u>[New] 2024 Approved Master the Art of Captivating Instagram Video Audiences</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-stream-a-comprehensive-ad-revenue-guide-on-youtube-for-2024/"><u>[New] Elevate Your Stream A Comprehensive Ad Revenue Guide on YouTube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pathways-to-identifying-outstanding-video-artists/"><u>[New] In 2024, Pathways to Identifying Outstanding Video Artists</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-core-skills-in-the-art-of-digital-animation/"><u>[Updated] 2024 Approved Core Skills in the Art of Digital Animation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-effortless-playlist-pivot-the-top-5-spotify-to-youtube-tools/"><u>[Updated] Effortless Playlist Pivot The Top 5 Spotify-to-YouTube Tools</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-creating-stunning-youtube-openings-best-tools-list/"><u>2024 Approved Creating Stunning YouTube Openings - Best Tools List</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlocking-cinematic-magic-top-5-filmmaking-insights/"><u>2024 Approved Unlocking Cinematic Magic Top 5 Filmmaking Insights</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/brush-up-your-youtube-videos-with-color-correction/"><u>Brush Up Your Youtube Videos with Color Correction</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clear-distraction-free-viewing-of-old-youtube-content/"><u>Clear, Distraction-Free Viewing of Old YouTube Content</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/close-up-magic-avoiding-distance-blur-on-videoleap/"><u>Close-Up Magic Avoiding Distance Blur on Videoleap</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/decoding-digital-devices-tips-and-reviews-from-toms-tech-analysis/"><u>Decoding Digital Devices - Tips and Reviews From Tom’s Tech Analysis</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-dynamos-youtubes-most-watched-videos-in-a-day/"><u>Digital Dynamos YouTube’s Most-Watched Videos in a Day</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/efficiently-shifting-videos-youtube-to-dailymotion-strategy-for-2024/"><u>Efficiently Shifting Videos YouTube to Dailymotion Strategy for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/is-sideloading-legal-on-iphones-learn-how-apple-intends-to-regulate-and-charge-for-external-app-downloads/"><u>Is Sideloading Legal on iPhones? Learn How Apple Intends to Regulate and Charge for External App Downloads.</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/privacy-first-sending-your-personal-youtube-link-via-google/"><u>Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streaming-wars-understanding-vimeo-and-youtubes-distinctions/"><u>Streaming Wars Understanding Vimeo and YouTube's Distinctions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/streamline-your-musical-journey-with-youtubes-60-second-clips/"><u>Streamline Your Musical Journey with YouTube's 60-Second Clips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transformation-de-fichiers-alaw-a-la-version-numerique-gratuite-movavi/"><u>Transformation De Fichiers ALAW À La Version Numérique Gratuite - Movavi</u></a></li>
+<li><a href="https://games-able.techidaily.com/vrs-expensive-edge-analyzing-the-financial-hurdles/"><u>VR's Expensive Edge: Analyzing the Financial Hurdles</u></a></li>
 </ul></div>
 
